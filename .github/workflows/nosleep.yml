@@ -1,0 +1,57 @@
+name: daily nosleep
+
+on:
+  schedule:
+    - cron: '0 0 * * *'
+  workflow_dispatch:
+
+jobs:
+  update-readme:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+        with:
+          repository: tytydraco/yessleep
+          path: yessleep
+
+      - name: Set up Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.13.0'
+
+      - name: Checkout target repository
+        uses: actions/checkout@v4
+        with:
+          path: target
+
+      - name: Update README
+        run: |
+          if [ ! -d "yessleep/out" ]; then
+            echo "Error: out directory not found"
+            exit 1
+          fi
+          
+          MD_COUNT=$(find yessleep/out -name "*.md" | wc -l)
+          if [ "$MD_COUNT" -eq 0 ]; then
+            echo "Error: No MD files found in out directory"
+            exit 1
+          fi
+          
+          RANDOM_FILE=$(find yessleep/out -name "*.md" | shuf -n 1)
+          
+          if [ ! -r "$RANDOM_FILE" ]; then
+            echo "Error: Cannot read selected file: $RANDOM_FILE"
+            exit 1
+          fi
+          
+          cat "$RANDOM_FILE" >> target/README.md
+
+      - name: Commit and push changes
+        working-directory: ./target
+        run: |
+          git config --local user.email "me@fugoou.xyz"
+          git config --local user.name "fugoou"
+          git add README.md
+          git commit -m "nosleep for $(date +'%Y-%m-%d')"
+          git push
