@@ -45,7 +45,7 @@ jobs:
             exit 1
           fi
           
-          cat "$RANDOM_FILE" >> target/README.md
+          cp "$RANDOM_FILE" >> target/README.md
 
       - name: Commit and push changes
         working-directory: ./target
