@@ -1,87 +1,65 @@
-I was so excited the first day I went live. Yeah, I know it’s a lame thing to be excited about. But considering you need a minimum 1000 followers, it does require some work to build an audience. So, try not to judge me too hard. 
+Hello, Travis Marcella here, If you would like to know what had happened previously... Go here; [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/).
 
-I already knew exactly what I wanted to do on my first live stream. I’ve been obsessed with watching lottery scratch offs for months.
+&#x200B;
 
-I’ve never made it a habit to buy scratch offs in the past, but I would occasionally pick one up when checking out at the gas station. I never spent more than five dollars on the rare occasion I did buy some. But for some reason, I’ve been completely addicted to watching scratch-off live streams. Something about the way they scratch the tickets gives me those ASMR tingles and has been really helpful to reduce my anxiety. I saw one live streamer make 2000$ from follower gifts alone on a 5 hour live stream. When I saw that, I started thinking “Hey, maybe I could make some extra money on this?” 
+I Didn't sleep well that night but It didn't really matter anyway. My father made me stay home so I could process what happened or whatever. I honestly don't feel safe around him anymore, It's like he is an entirely different person. I snooped around in his room and found some strange documents about some....research facility? I'm not completely sure but I didn't get a good look at it as my father was about to enter the room. I hid in the closet until he left, which took a painfully long time.
 
-After moving across the country last year, things have been hard and I don’t have many family members. The ones I do have don’t really keep in contact with me. I guess that’s one of the reasons I started my account. It gets really lonely sometimes and thought I was lucky to find a community of people who have been dealing with the same thing. 
+As i went back to my room, I remembered the rules my father had told me about and realized I had probably broken rule 4, I had screamed when I saw one of the creatures but That didn't explain how those creatures got in downstairs but I assumed that the door wasn't locked or that my father had responded to the things.
 
-I started making some teaser videos, shared basic information about myself, and encouraged people to follow me so I could go live. I was amazed at how many people wanted to support me. And when I finally saw that ticker go from 999 to 1000, I couldn’t contain my elation. I already had a huge stack of scratch offs ready to go that I had been stock piling the last few weeks. I posted a video letting my subscribers know I’d be going live in a few hours. 
+I walked out of my room and attempted to open the door...no luck. My father had locked us inside the house for some reason. I searched for my father to confront him but he had left the cabin without me realizing.
 
-I went out to get a coffee and celebratory donut before getting the last few supplies I needed. I always go to the same spot for coffee because Rockies is the best is town. One of my subscribers in the area recommended it to me - & it’s amazing! It tasted a little off this time, but even so. Nothing could bring me down today. 
+"D-Dad"?! I yelled but got no response.
 
-When I arrived back home, I got everything organized, my clipboard ready to go, and a nice 3 hour mix of Lofi on a playlist to perfectly craft an ideal environment for other people who might have anxiety like me and just wanted to watch something to relax. I noticed the last video I made notifying my subscribers of the live had an above average number of views. 
+I looked out the window to see that the sun was setting. My heart dropped as i realized that my dad's shotgun was also gone. I watched as the sun completely disappeared on the horizon, Night was approaching.
 
-“This is going to be great!” I thought. 
+I banged on the front door, desperately hoping that it would break and I could go find my father. It was a stupid idea but surprisingly, It worked. I felt a rush of cool air as i realized how cold it was. I went to get a coat but went against it as my father could be in danger at this very moment. I ran off to the treeline behind the cabin and looked for any sign of my father. I saw that there were footprints in the ground that resembled my father's boots. I followed the trail into the forest...
 
-I was so excited, I couldn’t wait to get started. After I got everything set up, I started the live and could barely contain myself. I waited for a little while to see if anyone would join, but it took a good 3 songs before I saw the watch eye go from 0 to 1. 
+After following the trail for a while, I started seeing shadows in the corner of my eye. I shuddered at the thought of me being chased and started picking up my pace. The shadows seemed to be getting closer and closer until I could almost swear I was seeing them.
 
-My voice squeaked as I tried to welcome them to my live stream. The number quickly went back to 0. I thought to myself “ok maybe that was a bit too eager. I’ll just start doing the scratch offs, and keep my eyes on the chat function to see if anyone says anything.” I took in a massive gulp of my disgusting coffee and got back to it. 
+I kept running when suddenly the shadows hurdled forward and landed a couple feet in front of me. I heard a guttural screech that made me sick to my stomach. I watched as 5 giant spiders crawled towards me.
 
-My favorite cards are the crossword puzzles, so I started doing that and just mindlessly talking about my day, the card, what I would do if I won the biggest prize, and anything else I could think of honestly. I got really into it, and looked up a few minutes later to see there were a few messages in the chat window I hadn’t noticed. I cursed myself for not seeing them sooner. But when I read the messages, they didn’t look like the normal comments I’m used to seeing. 
+"NO,no no no no no no"! I screamed as they were almost a foot away from me now.
 
-“Notification - Delta & Gamma have started viewing your livestream.”
+Suddenly I watched as the ground beneath me started cracking and 2 giant, brown claws emerged from the ground and crushed all 5 spiders and then tried to attack me as well I barrel rolled out of the way just in time to dodge the giant claws as they crashed back into the earth. Seeing that danger was at every corner, I ran faster as I continued following my father's footprints and they eventually led me into a clearing.
 
-The messages read:
+The clearing was pretty empty except for a small warehouse in the middle of it. I ran to it and opened the door to see my father on an old looking computer, typing in a report file.
 
-“Delta: auction candidate identified. network active, primary location. 
+"Dad-"! I Said before being immediately cut off.
 
-Gamma: Your submission has been accepted.”
+"What the hell are you doing here, Travis"?! He yelled hysterically.
 
-What the hell is this? I’ve seen internet trolls before & I know people can be weird. But what are they even talking about? I completely forgot I was on camera while I was reading it. I looked up to see a dumbfounded me staring back at me through my video monitor. I realized I needed to get myself together and tried to keep going through my cards. But another message came through. 
+We both turned to the open door behind us to see about 8 large shadows heading into our direction.
 
-The chat read: 
+"Y-You led them to us"?! He screamed as he grabbed his shotgun.
 
-“Alpha: Your submission has been accepted. Adding submission to auction now.”
+"Dad...I-I'm so sorry... I was just worried about you- You broke one of the rules"! I protested.
 
-Auction? 
+"Your right... I should not have provoked them in the first place. I wish I didn't have to burden you with this, Travis". He sighed.
 
-Suddenly, my computer screen went completely black. It blinked to life after a few seconds & an old windows chat room browser was open. I stared bewildered as I saw a barrage of hundreds of messages flooding the screen.
+"B-Burden me with what"? I asked.
 
-The messages weren’t words - but numbers. I noticed the numbers started getting bigger and bigger. It almost looked like they were bidding on something. I tried to click out of the screen but my laptop wouldn’t respond. I hit the power button but nothing happened. 
+"Go to the computer and type in 1-0-0-1. It will send an emergency response team to this location and maybe...just MAYBE, we will be saved. Stay in the warehouse and DO NOT LEAVE". He commanded.
 
-The weird message that came up before the live went down mentioned something about an auction, didn’t it? My computer was completely frozen, so I couldn’t go back and check what it said. I only looked at it for a few seconds, but I’m pretty sure it said something about an auction. Finally, the chat messages started coming in slower. Then a message finally came through that wasn’t just cryptic numbers.  
+"D-Dad wait, What about you"? I asked but he was already gone
 
-It read: 
+"I am going to distract them for as long as possible" He shouted back at me.
 
-“Doctor Bonesaw: Can you confirm the treat will be fresh on arrival? 
+We parted ways as i closed and locked the warehouse door. I quickly typed in 1-0-0-1 on the computer and a code orange was sent to someone called "Site Director". I quickly turned to the only window in the warehouse and stared out, hoping I could see if my father was ok. All I saw was the impossible amount of shadows headed toward where my father ran. I haven't even heard any gunshots yet.
 
-Alpha: Confirmation check being initiated now. Three knocks.”
+I tried to process what was happening as I sat down on the floor and started hyperventilating. During the past couple days, I've been questioning my sanity as these shadow spiders or whatever were stalking me and my father. Now, I'm trapped in my dad's secret warehouse where he works for some kind of facility. I tried to wrap my head around this all when I heard the first gunshot, followed by a screech so loud that my ears felt like they were on fire. I covered my ears as more gunshots rang out into the night as well as several more screeches.
 
-Adrenaline hit me with a sharp wave as I heard three knocks loudly on the window beside me. The sound shot through my body as fresh terror coursed through my veins. My terrified brain slowly started to put the pieces of the puzzle together. 
+After a while, to my horror, I stopped hearing any gunshots. I heard the sound of scuttling feet, way too many feet, as the shadows approached the warehouse. I stopped looking out the window at this point and hid under my fathers desk as the shadows climbed around the warehouse, searching for a way inside.
 
-A new message appeared. 
+I saw that a shadow had blocked out the window's light and I knew the end was near. Surprisingly, I faintly heard the sound of a helicopter in the distance, followed by what felt like, a mini gun, barreling many bullets into the hull of the warehouse, obliterating many of the shadows in the process.
 
-“Doctor Bonesaw: funds transferred. 
+Someone kicked down the door and searched the room. It took a couple seconds before the person found me and escorted me out of the warehouse. They told me to get into the helicopter as all I could do was follow their instructions.
 
-Alpha: confirmed. congratulations on your purchase. proceed to location.”
+We flew for what felt like hours and eventually landed on top of some large building that looked like some abandoned office complex. Me and 4 other people climbed down a ladder that led to the front door of the building. I asked if my father was ok but I was ignored and ushered into some kind of large closet that held a single bed with a desk,a chair, a computer, and a bookcase that filled with books about a bunch of random thing's like "A Beginner's Guide To Crypozoology" and "How To Shoot A Gun".
 
-What. The. Hell. 
+These books were strange but luckily I also found some comic books. I wanted answers but I was stuck in this room and I had no more control in this situation. For the first time in a long time, I cried. This whole situation seemed like some fever dream and I don't even know if my father is ok. Yea, he might have been drunk a lot but still, He was my father.
 
-I shut my laptop as fast as I could, grabbed my phone and I started dialing 911. I stared at my phone, waiting the familiar ring that would bring the most beautiful words I would ever hear. A dispatcher saying “Don’t worry. Help is on the way and the psycho outside your house won’t sell you to someone who wants to wear your flesh while eating a soup made of your ground up bones and eyeballs.” 
+I banged on the door but it was locked and made of what looks like steel. I guess the silver lining is that the computer allows me to access the internet. So I'm posting again, like I promised.
 
-But no. My phone hadn’t even initiated the call. It was completely frozen just like my laptop. My flight response kicked in and I decided I would take my chances to make a run for it. In my haste, I ran down the stairs as fast as I could but tripped and came crashing down the last two stairs. As I looked up from the floor to the front door, I saw the outline of three massive figures through my front door’s window. They were staring straight at me. They didn’t even react when they saw me. They just stood there like hell’s guardians. Watching me. But I think I saw one of them holding in a laugh after watching me fall down the stairs. 
+I'm not sure what to do at this point but I will keep in touch with you all.
 
-Bastard. 
-
-I peeled myself off the ground, and ran to my back door. The motion activated flood lights in my backyard were already on and illuminated five more hulking figures standing shoulder to shoulder. 
-
-I ran downstairs to the basement. My only hope of salvation - a 50 year old revolver given to me by my late grandfather. I wasn’t even sure if the damn thing worked, but I would have to take my chances. What else could I do at this point?
-
-As I opened the basement door, my stomach turned. I raised my shaking hand to hit the light switch. As the light flicked on, my hopes of making it out of this alive were dashed. 
-
-I hadn’t got around to renovating the basement since moving in last year, so it has been used to store my old boxes and furniture. All of my things were pushed aside and in their place was a dark chamber of absolute horrors. 
-
-Chains on the walls, tables set up with rusted, dirty medical equipment. A tv monitor showing a bone-saw with a dark red substance coating it. A large chair with restraints around the arms and feet. And a camera pointed at it. 
-
-My small relief was that I seemed to be the only person in the room. I quickly locked the door and began searching for the safe that held my grandfather’s revolver. When I found it, my last hopes were crushed. The door had already been opened and I as stared into the empty safe I felt anything but. 
-
-I tried to pick it up but it seemed much heavier than normal. My arms were weak as my adrenaline started to wear and a heaviness fell over my body. I tried with all the leftover strength I could muster to move the safe in front of the door so I could maybe buy myself a few extra minutes before those monsters come crashing through the door and introduce me to Doctor Bonesaw. 
-
-As I set down the safe in front of the door, I collapsed beside it in exhaustion. I reached in my pocket and took out my phone. It showed I had received a new message notification. After reading it, any hope I had of escaped was gone. My only saving grace was they unlocked my phone so i could receive their grim message. But my relief was short lived. I still can’t make outgoing calls but I’m taking full advantage of this moment to write all this out and try post it before it goes down again. I know I don’t have much time. 
-
-My eyes are heavy and I curse myself for drinking that damned coffee even though I knew it tasted wrong. To anyone reading this, be careful about the personal details you put on the internet. You never know who could be watching.
-
-And I know why they haven’t come bursting through the door yet.
-
-The message I received read: “Sleep well. The doctor will see you soon.”
+[Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/).
