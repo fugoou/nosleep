@@ -1,65 +1,45 @@
-Hello, Travis Marcella here, If you would like to know what had happened previously... Go here; [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/).
+Many people have odd childhood memories—some are funny, some are eerie, and some are just unexplainable. I recall one of these memories. I don't remember the finer details because I was six years old.
 
-&#x200B;
+My parents and I had taken a trip to a place in England. It was a town with a lot of cathedrals. We attempted to stay at a few places but discovered that they were pretty expensive. My parents did, however, discover one.... Hotel 481. The hotel's architecture, as far as I recall, was similar of Victorian homes. The inside was clean yet had an unsettling sense of eeriness to it. My parents went to the reception desk to book a room, while I walked off to play with a bead maze. Playing with the bead maze, my attention was drawn to movement behind the heavy curtains framing the front windows. Looking closer, I saw a tall silhouette, its form obscured by the dim light filtering through the fabric. Strangely, its elongated fingers emerged, delicate yet unsettling in their appearance. Frozen in curiosity, I watched as the figure seemed to acknowledge my presence with a wavering motion. In response, an instinctive impulse urged me to wave back. My parents grabbed me by the hand, and we walked to the room. I faintly recall the number of our room. I believe it was either room 18 or 78.
 
-I Didn't sleep well that night but It didn't really matter anyway. My father made me stay home so I could process what happened or whatever. I honestly don't feel safe around him anymore, It's like he is an entirely different person. I snooped around in his room and found some strange documents about some....research facility? I'm not completely sure but I didn't get a good look at it as my father was about to enter the room. I hid in the closet until he left, which took a painfully long time.
+I, of course, jumped onto the bed and switched on the television to watch some cartoon. My parents discovered they had forgotten their wallets in the hotel lobby, so they decided to leave me alone for a while. I continued watching the cartoon until I heard a knock at the door. I opened it and found no one. I looked down and found a note. I opened the note and read it as best I could: "Now you are all alone." Even as a six-year-old, this still made me feel uneasy. I quickly shut the door and returned to watching my cartoon. My parents returned, and we started preparing for bed. I should have told my parents about the note, but I didn't, for some reason. Either I was afraid too, or I simply forgot.
 
-As i went back to my room, I remembered the rules my father had told me about and realized I had probably broken rule 4, I had screamed when I saw one of the creatures but That didn't explain how those creatures got in downstairs but I assumed that the door wasn't locked or that my father had responded to the things.
+We went to bed. The next day would be a huge day. We were going to see a historical site. However, in the middle of the night, I awoke. I'm not sure why. This does not normally happen to me. I observed what I assumed to be something behind the curtains in the corner of the room. I could see the whole body. It was slim and malnourished. It appeared to be wearing a hood or something over its head. It appeared to be wearing a mask. The mask had a smiling face drawn in red. As an innocent kid, I thought it was paint, but now I am not that sure. It waved again and I waved back. I was freaked out. I could feel goosebumps forming on my skin. It just stared. I eventually went back to sleep.
 
-I walked out of my room and attempted to open the door...no luck. My father had locked us inside the house for some reason. I searched for my father to confront him but he had left the cabin without me realizing.
+When I awoke, I discovered that our visit to the historical site had been cancelled. I was unhappy, but my parents said they would try to find another place to go. In the meantime, I could explore the hotel. There was a playground toward the back of the hotel. I wanted to go there first. Now, you expect playgrounds to be crowded with children, yet there were none. It was very eerie. There was no one, except for one of the hotel workers.
 
-"D-Dad"?! I yelled but got no response.
+She greeted me, stating that I was one of the only kids to actually come here. Even as a six-year-old, I found that weird. I decided to play on the equipment. However, I immediately became bored. There were no children to play with. I was going to leave when I ran into that the thing again. It just waved at me.
 
-I looked out the window to see that the sun was setting. My heart dropped as i realized that my dad's shotgun was also gone. I watched as the sun completely disappeared on the horizon, Night was approaching.
+"Hello little boy." it said, "Why the long face?"
 
-I banged on the front door, desperately hoping that it would break and I could go find my father. It was a stupid idea but surprisingly, It worked. I felt a rush of cool air as i realized how cold it was. I went to get a coat but went against it as my father could be in danger at this very moment. I ran off to the treeline behind the cabin and looked for any sign of my father. I saw that there were footprints in the ground that resembled my father's boots. I followed the trail into the forest...
+"The playground is boring. There are no kids to play with." I said.
 
-After following the trail for a while, I started seeing shadows in the corner of my eye. I shuddered at the thought of me being chased and started picking up my pace. The shadows seemed to be getting closer and closer until I could almost swear I was seeing them.
+It seemed to move its head in intrigue, "Is that so? How 'bout I'll play with you. We could be friends"
 
-I kept running when suddenly the shadows hurdled forward and landed a couple feet in front of me. I heard a guttural screech that made me sick to my stomach. I watched as 5 giant spiders crawled towards me.
+"Really!" I yelled.
 
-"NO,no no no no no no"! I screamed as they were almost a foot away from me now.
+I was a dumb kid who ignored all the red flags with this interaction. I began to play with the thing. It pushed me on the swings and played tag with me. It never told me its name. It just told me to call it "Nine". Nine told me it had a game it could play with me. It was a version of hide and seek. Basically, I would hide, and he would try to find me. Regular hide and seek right? Wrong! I had to play it in the forest behind the hotel. 
 
-Suddenly I watched as the ground beneath me started cracking and 2 giant, brown claws emerged from the ground and crushed all 5 spiders and then tried to attack me as well I barrel rolled out of the way just in time to dodge the giant claws as they crashed back into the earth. Seeing that danger was at every corner, I ran faster as I continued following my father's footprints and they eventually led me into a clearing.
+I was scared of playing in the forest. What if something hurt me? However, Nine reassured me that nothing will happen. I agreed to playing the game.
 
-The clearing was pretty empty except for a small warehouse in the middle of it. I ran to it and opened the door to see my father on an old looking computer, typing in a report file.
+He started counting and I ran into the forest. I had to find a hiding place. However, while walking through the forest. I noticed something weird. There were piles of dirt. There seemed to be more every few feet. These dirt piles had sticks put in them, resembling makeshift graves. I firmly believe these were actual graves. They came in different sizes. Most of them were child sized, while a few were adult sized. Of course, I did not think much of them. I simply found a hiding spot in an old well and waited to win the game. 
 
-"Dad-"! I Said before being immediately cut off.
+A few minutes went by, and nothing happened. I started to think about this. I began to feel anxious, and my heart rate increased. Why in the forest? Why not at the hotel itself? I got out of the well and began to walk back to the hotel. I yelled for Nine, telling him I didn't want to play the game anymore. However, I had gone too far into the forest. I was lost. 
 
-"What the hell are you doing here, Travis"?! He yelled hysterically.
+I heard Nine's voice behind me, "Now you are all alone." I turned around to see Nine. He just stood there. I told Nine that I did not want to play the game.
 
-We both turned to the open door behind us to see about 8 large shadows heading into our direction.
+"Why not? We were having so much fun." asked Nine.
 
-"Y-You led them to us"?! He screamed as he grabbed his shotgun.
+"I....I.... This is scary." I said.
 
-"Dad...I-I'm so sorry... I was just worried about you- You broke one of the rules"! I protested.
+"Why? Just because it is a forest? Nothing will hurt you. Do you want to be my friend, forever?" asked Nine.
 
-"Your right... I should not have provoked them in the first place. I wish I didn't have to burden you with this, Travis". He sighed.
+I gulped and said, "Y-yeah...."
 
-"B-Burden me with what"? I asked.
+However, something in me told me to.... Run. I turned and bolted. I began crying uncontrollably. I breathed heavily. I was horrified. I looked behind me and witnessed something I'll never forget. Nine had his mask off........ Was it.... Apart of his face? I got to the hotel and hurried inside, accidently bumping into one of the employees. It was the same one from the playground. She looked outside. She clearly saw Nine.
 
-"Go to the computer and type in 1-0-0-1. It will send an emergency response team to this location and maybe...just MAYBE, we will be saved. Stay in the warehouse and DO NOT LEAVE". He commanded.
+She took me to my parents. I looked at her nametag. Her name was Alice. My parents listened to my story. However, they did not believe me, but decided to change hotels to make me feel better. That was twenty years ago. 
 
-"D-Dad wait, What about you"? I asked but he was already gone
+In the years following my incident, the hotel burnt down. I recently went to the town to check out the site that Hotel 481 was at. I learnt some things about the hotel. It had a history of disappearances. The majority of them were children, with the exception of a few adults or older teens. The "graves" made sense. They were the victims. I spoke with the hotel's former manager, who had worked there when I was six.  I asked him if any of the employees when he was the manager there were named Alice. He said something that surprised me. There was no one named Alice who worked there.
 
-"I am going to distract them for as long as possible" He shouted back at me.
-
-We parted ways as i closed and locked the warehouse door. I quickly typed in 1-0-0-1 on the computer and a code orange was sent to someone called "Site Director". I quickly turned to the only window in the warehouse and stared out, hoping I could see if my father was ok. All I saw was the impossible amount of shadows headed toward where my father ran. I haven't even heard any gunshots yet.
-
-I tried to process what was happening as I sat down on the floor and started hyperventilating. During the past couple days, I've been questioning my sanity as these shadow spiders or whatever were stalking me and my father. Now, I'm trapped in my dad's secret warehouse where he works for some kind of facility. I tried to wrap my head around this all when I heard the first gunshot, followed by a screech so loud that my ears felt like they were on fire. I covered my ears as more gunshots rang out into the night as well as several more screeches.
-
-After a while, to my horror, I stopped hearing any gunshots. I heard the sound of scuttling feet, way too many feet, as the shadows approached the warehouse. I stopped looking out the window at this point and hid under my fathers desk as the shadows climbed around the warehouse, searching for a way inside.
-
-I saw that a shadow had blocked out the window's light and I knew the end was near. Surprisingly, I faintly heard the sound of a helicopter in the distance, followed by what felt like, a mini gun, barreling many bullets into the hull of the warehouse, obliterating many of the shadows in the process.
-
-Someone kicked down the door and searched the room. It took a couple seconds before the person found me and escorted me out of the warehouse. They told me to get into the helicopter as all I could do was follow their instructions.
-
-We flew for what felt like hours and eventually landed on top of some large building that looked like some abandoned office complex. Me and 4 other people climbed down a ladder that led to the front door of the building. I asked if my father was ok but I was ignored and ushered into some kind of large closet that held a single bed with a desk,a chair, a computer, and a bookcase that filled with books about a bunch of random thing's like "A Beginner's Guide To Crypozoology" and "How To Shoot A Gun".
-
-These books were strange but luckily I also found some comic books. I wanted answers but I was stuck in this room and I had no more control in this situation. For the first time in a long time, I cried. This whole situation seemed like some fever dream and I don't even know if my father is ok. Yea, he might have been drunk a lot but still, He was my father.
-
-I banged on the door but it was locked and made of what looks like steel. I guess the silver lining is that the computer allows me to access the internet. So I'm posting again, like I promised.
-
-I'm not sure what to do at this point but I will keep in touch with you all.
-
-[Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/).
+I have a suspicion that the owner of the hotel was in one whatever Nine was doing, or maybe Nine was the owner. It was obvious that Nine aimed for the children since they were the most gullible. He presumably told them what he told me. He said he wanted to be their friend and then offered the game. While they were in the wilderness, he would find and murder him, then bury their bodies. I was one of the few, if not the only one, that survived him. But the hotel burnt down, where is he now? I'm afraid of what he would do now. Would he try to tie up loose ends?
