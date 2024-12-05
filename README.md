@@ -1,49 +1,23 @@
-I don't know how to start these things so I'm just gonna go from the top.
+My brother and I love going camping, if I had to tell you how much we’ve gone since we first learned to drive you would probably find us strange. And that makes sense, not many people enjoy going into random forests or up random hills and such, but we live west in North America so there is lots of mountains and such. A hiker’s dream and sometimes a camper’s nightmare. 
 
-Me and my two friends Dustin and Charles- who don't really speak anymore due to school stress and lack of lessons which we share- decided it would be awesome to meet this summer for a campout up the forest our town resides near. Disclaimer before you already think this is a terrible idea-we are all 17 and Charl can drive so we are perfectly capable of being able to look after ourselves, especially since me and Charles are fairly well built and, not to toot my own horn but quite intimidating individuals, and Dustin grew up fighting people and other children our age and is very well known for just beating the shit out of people, once again an extremely intimidating guy.
+That day was just the same as the others, loaded up on dehydrated fruit (is used to save space in bag and keep nutritional value) and set off into the more forest heavy places near my town. Was going great, we hiked a few hours, brother threw a rock at a snake even though I’m pretty sure it was poisonous, gathered some wild mushrooms (we’ve pretty much engraved the edible ones appearance into our brains) and set up camp. After a few hours we decided that staying in one spot wasn’t very fun, so we headed off again for the next hours, taking our camping stuff with us further into the woods.
 
-But beside all this our intentions for this campout were to just have a nice kickback with the fellas, have a couple beers, roast some meat on the barbecue and just have a good time. So, we picked a steaming July- 37 degrees no more no less and headed out around 9am. Charl picked me up- with his older brother to buy the beers for the cooler- first since I live the estate opposite him and on the way to wake up Dustin, we stopped off at the market to pick up said beer along with some necessities like some water- his brother walked in and walked back out with a few bottles some cigarettes a barbecue along with some sausages and lamb chops to cook, he made it very clear to Charl he owed him one and even spent an extra few dollars for some sunblock. We dropped his brother off at his girlfriend's apartment and hit the road after collecting Dustin who also brought some bottles- which he stole off his brother- and the tent itself along with 3 sleeping bags.
+Now here’s where it goes downhill for the rest of this story.
 
-A lot of people can relate to me when I say this, but there's a weird sensation you get, it's as if humans have a sixth sense for evil or something wrong. Which I had genuinely the entire time on the journey to the forest even over the loud blaring music and Charl and Dustin constantly cracking jokes at my expense of dosing off asleep every 10 minutes.
+We went further and further into the country side, talking, getting scared shitless by raccoons, snakes, etc
 
-When we got to the forest, my heart sank. The overwhelming fear of just something which I can't place my finger on was just, fucking eerie. Even on the way there I suggested just cutting the day short and sleeping at Dustin's house since his parents were out of town
+Then a terrible smell hits us, if I could describe it you would be gagging along with me. We thought it could be a dead deer or moose (I don’t think moose even live in America so no clue how he figured that). He starts excitingly looking for it, using his shirt to cover his nose. He loves collecting antlers, and hunting, has a wall full of heads and antlers. I was never that into it, I’ve gone a couple of times but it’s usually too cold for me to continue by dusk. 
 
->"*fuck that dude we are like, here now anyway."*  
->  
->"Yeah, bro, c'mon don't be a pussy we been planning this shit since March"
+Anyway, I wasn’t trailing behind him or anything, he’s a grown man, but then. He lets out the most ear piercing scream ever, at first I thought it was another person he found and spooked, but then it hit me that it was him, I rushed over to him and saw him just standing there. There was a trash bag in front of him, it reeked of course, but then I saw it fully using my flashlight, the bag was torn open, and I saw the body of a fairly young looking girl, And I think the worst part that still is engraved into my sight, her body was found by animals before we got there, her face was missing eyes and some flesh in the face, not to the extent where I could see skull, but I could see muscle. Her chest cavity was open and had been eaten by who knows how many animals. We booked it to the nearest town using Google Maps. Then rented a hotel and called 9/11. The town didn’t too long to get to, 2 hours max while walking. Didn’t catch the name of it. But we could’ve give the officers enough locational info for them to know exactly. So we told them rough direction and landmarks. It really got us both, we stopped hiking, and he became eerily silent, and looked constantly scared. 
 
-Was all I was met with- which in hindsight was fair enough due to Charles' brother spending over 35 bucks on us and Dustin stealing his Brother's shit. But I honestly can say I felt like I was going to bite off more than I could chew that day.
+Now for the worst part, one day I decided to do a wood working project to take it out of my mind. While I was going to the shed, I saw the same corpse clear as day, looking at me, upright, I froze and it quickly darted away as soon as I saw it. I then rushed to the spot where it was and saw nothing to indicate someone was there. I figured it a mind trick by my traumatised brain.
 
-The time was about 11:30AM when we got there so we still had shitloads of time to kill before night time, so Charles' and Dustin had the idea of hiking to the furthest point away from civilisation, which I'll tell you didn't ease my already panic-stricken mind, but at the same time, I was with my friends so I had faith in them and wasn't overly scared. After about 5 hours of trekking through the woods not including us stopping for a quick bite, we made it to an opening at about 6PM, perfect timing to get a barbecue on and a fire. 
+Again, few days later I went out on my porch near the woods to smoke, and I saw a vaguely humanoid shape in the tree line, blinked, gone
 
-Me and Charl had the responsibility of starting a fire and Dustin set the tent up. I swiftly unpacked the cooler and filled it to the brim with beers and left the water on the grass near the chairs we had set up incase we needed to sober up, and I got the barbecue out along with our selection of foods ready to cook. By about 7PM, we had the tent up and the fire alight, thanks to my lighter, which I was allowed because I was the only one with parents who let me smoke. I signalled for Dustin to put some sausage on the barbie and that was us set. 
+Weeks later it happened again, this time at my window, this time though, it stayed for longer, 2 seconds longer, even when I moved, then it darted out of view like a puppet with no arm strings would, all floppy and the like. Still wasn’t convinced, I hadn’t gotten any good sleep since then so it could’ve been sleep deprivation for my sake.
 
-**"Sit back and Relax, boys"** I said with confidence opening up my first beer with my teeth which suffered the consequences of this later. I felt at ease to be honest- the night was young and I was excited to kickback with my long term friends. 
+Then it kept happening, again and again, and I started getting scared of her, named her even, ‘Emily’ was what she looked like to me. I was nervous and terrified even in my own house. Constantly checking the trees, and the windows, sometimes I was right, most times not. I don’t want to tell my brother or anyone, he would freak out and word would eventually catch up to him anyway.
 
-By about 11PM the night was approaching- with it being peak summer, the dark approached much later on but by this time I had already stopped drinking and was barely tipsy, so was Dustin, but Charl was wasted and struggled to stand straight so we had the pleasure of looking after him until he trampled off to bed. This moment, the feeling, it hit me like a freight train I dropped my bottle my eyes teared up. No doubt in my mind- we were being fucking watched.
+And the worst one was only a week ago, this time it wasn’t outside and it was at the middle of the night. I was going to go piss, not thinking to rent a hotel by that time. Then I froze, felt eyes on me as soon as I reached for the handle. Looked to my right and to my horror, she was standing, and it wasn’t puppet like, she looked like how a normal human would stand, no floppy arms, they were by her side casually, I blinked, she was still there, again, she was gone, and it felt cold, I booked it to my car, and went to the nearest motel, my brothers house was closer but I’m not telling him the body we found was haunting me. He would pass out.
 
-> **"Bro, do you like, feel that?"** I said, kinda hoping he said no, to give me an almost weird reassurance.  
->  
->"We are being watched. That's not a feeling- that's our bodies saying there's someone merely meters away from us right now. Waiting." Dustin said.  
->  
->**"Bro why the fuck would you say it so creepily?!"**  
->  
->"Fuck this I'm fucking going." Dustin started packing away the beers and water getting faster the quicker he got to packing it away as if something was going to jump out at us.
-
-I followed frantically- I asked if we wake up Charles but Dustin said no and just bolted as fast as he could in the direction we came in I followed sprinting like my life depended on it- probably because it did to be honest. 
-
-Flash forward 12:16, I'll remember this exact time forever. Me and Dustin made it out of the woods and locked ourselves in Charles' car because we stole his keys. Just when we were contemplating leaving and chilling at a McDonald's and leaving Charl a message, we received one
-
->*"Hey fellas, where are you guys? I'm getting kind of nervous I've woken up and all the shits gone. lol. message back soon :\\" seen by everyone 12:16*
-
-"Bro I thought he'd be fucking drunk still." Dustin said panicked. I responded as calmly as I possibly could **"We have to go back."** Thankfully he agreed and we made our way back up using the cracked IPhone 6's light which was a dim ray of hope among the uncanny forest valley. 
-
-When we made it to the tent we quickly ripped open the tent zipped up door and to our absolute dismay- Charl had gone. Without a trace. Me and Dustin called eachother and split up around the tent to search for him but he was gone. 
-
-When we laid in the tent- Dustin noticed something yellow and curved sticking out from the tent pocket- he ripped it off to reveal a post-it note which read 
-
-"It was easy finding you guys- next time don't go as far into the woods." 
-
-However that wasn't all. Upon morbid discovery we deduced the tent's zipper is on the inside- meaning it can't be opened externally which is why we ripped the zipper off. Meaning whilst Charles was texting us- whoever took him away was present in the tent as he was texting.
-
-&#x200B;
+I’ve been in the hotel for now, and I won’t be going back soon. I’ve got to tell him eventually, but it’s not going to be today. 
