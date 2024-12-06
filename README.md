@@ -1,161 +1,109 @@
-I first noticed it in the kitchen.
+I live alone and rent a one story house in a suburban neighborhood in a tourist town. I am a biomedical equipment technician who works evenings at the local hospital. I am also an insomniac. Many express sympathy when I reveal my lifelong condition. They try to console me with suggestions of home remedies to cause drowsiness which fail. What people do not realize is how positive I am about my perpetual and cursed wakefulness. I have many interests to fill in the extra free time. I often read or listen to old radio recordings. These hobbies keep me entertained late into the night while the rest of the world sleeps. 
 
-My sister was putting the final touches on a batch of Christmas cookies. Turning to get more icing, she bumped the plate with her hip, and it flew into the ground.
+I purchased a personal GPS drone. It cost me around two grand to further enhance my nocturnal hours. The price tag of the quadcopter was not as bad as it could have been. It was a complete impulse buy born from my love of aerial photography. I hoped to capture the scenic outdoor surroundings of my area in Northern California. I unboxed it as soon as I got home from Best Buy. I went out on my porch and opened it. One of my neighbors on his routine jog, Sam McKellar, saw me and waved. I responded with a wave myself and shifted my attention back to my new object. It was sixteen pounds. It looked like an oversized Wi-Fi router with four propellers. A 4K HD camera was on its front. It came with options for control through the use of an App or the handheld remote the company provided. Some were suspicious of using their cell. This stemmed from concern about infiltration of corporations into our lives. I tossed those worries to the side and decided my iPhone was a fine device to manipulate my item. I went to work, but not before I calibrated the surroundings onto the drone. 
 
-"Oh, gosh darn it."
+I went into my backyard after midnight once work was over. The drone was on the charger in the garage during the entirety of my shift. I placed it on the grass and perused some of the instructions with a pen-light. It could reach an altitude of over three thousand feet. I hit a switch to activate its night vision capacity before I made it hover in the air. Once I guided it above my property I felt a certain excitement I had never experienced before. After all, I was about to see the place I lived in from a new vantage point. It resembled a mere box in a row of them dotted with verdant square lawns on the live feed. I glided it all over the neighborhood.
 
-"Uh, what? 'Gosh darn it'?" I chuckled. "Who are you and what have you done with my sister?"
+Within fifteen minutes saw something alarming. Mr. and Mrs. McKellar lived a block away from me, and yet that night the man’s old Honda was not in the driveway. He may have been away on business. I knew he was in sales and did have to travel on occasion. 
 
-Britney stared at me, blankly.
+A teal truck pulled in front of the garage and parked. A young man with slicked back hair hopped out and went up to the door and knocked. The wife answered in a bathrobe. They embraced and he walked in. 
 
-Look, I know my sister. She swears like a fifty-year-old sailor drunk on cheap beer. Ruining an hour's work of cookie-making should have *at least* elicited a "fuck".
+I had captured an act of infidelity, one of my neighbors no less, within the first half hour of owning the thing. 
 
-But it didn't.
+*They must have an open relationship* I reasoned. I made an effort to not get too involved in my own hypothetical scenarios. 
 
-"Ah, I see. This this an act for Jonathan." I winked at her. "Don't worry. I won't tell."
+I shrugged the incident off and kept exploring the streets around me.   
 
-"What are you talking about?" she asked.
+I went to bed that night happy with my newfound activity. My lack of talent would never land me gigs as a full time photographer. Still, I was happy to make it a normal part of my routine, a mild obsession to hack at the demon known as sleeplessness. 
 
-I bent down, picking up shattered pieces of cookie. "You know. Your constant swearing. Your secret's safe with me." I reached for another piece of cookie. Picked it up, threw it towards the garbage. Instead of falling in, it ricocheted off the edge. "Ah, fuck."
+Over the next few weeks it would become what I would look forward to the most.
 
-I froze.
+\*
 
-At the exact moment I'd said "fuck," a car horn had blared outside. Drowning it out completely.
+I saw strange things one night. Four pale individuals stood on the front lawn of a four story domicile in my neighborhood. They wore billowing white gowns which fluttered in the wind. Their mouths hung open. Curiosity got the better of me. 
 
-I frowned.
+I brought my device closer to them, a maneuver not recommended by most operators. An overt violation of privacy or blatant spying would cause the drone to get flagged. It would shut down per regulations set forth by the Federal Aviation Administration. They had many rules. 
 
-"Fuck."
+I had to know who these people were and what they were doing out at such an unusual hour. Yes, I am aware of my hypocrisy in that regard. 
 
-Another car horn.
+One of them had blood stains on the front of his bone white suit. When he saw the drone, they peered upwards at it in unison before they vanished. The group had degenerated faster than they appeared. 
 
-"Fuck fuck fuckity fuck."
+This event may seem unusual to the layperson, but I had not slept in six days. Hallucinations via sleep deprivation psychosis is common in my life. I dismissed it as another unreal conjuring of my disorder. I will leave it up to you to agree with me or not.
 
-A strangely loud flock of geese cawed outside the window.
+\*
 
-"What the--" *dog bark--* "is going on here?" I stared at Britney, eyes wide.
+I sent the drone half a mile down past the highway and towards a museum. 
 
-She ignored my question.
+I saw a man stagger in its parking lot. At first I thought he was a drunkard ejected from a recently closed bar across the street. On further inspection, I saw how his head hung to the side in an unnatural way. It was though his neck had snapped. He fell to the ground and dissipated before he could reach a winding sidewalk next to a library. 
 
-"We have to bake more cookies," she continued, as if I hadn’t said anything. "If the Christmas celebration tonight doesn't impress Christopher, he's going to shut down the community center. *Forever."*
+On a bike trail behind the historical building stood another person. She held her arms above her head and sprinted towards the drone. Her feet lifted off the ground. Her body parts fell off one by one and vanished into a fleeting mist. I would have sworn I heard her shriek through my phone’s speaker. 
 
-"The community center? When have you given a--" *train whistle--* "about the community center?"
+I decided it was time to retire for the night and try to go to bed. I knew slumber would elude me after my visual of these ethereal apparitions. 
 
-"Since I started Woofies."
+I brought the drone back past the McKellar household. The stranger’s truck parked there once more and I knew Sam was not home again. 
 
-"What?"
+The same young man with the slicked back hair walked out and reached into his pocket. 
 
-"You know. My business. Baking dogs Christmas cookies."
+He pulled out a cigarette and took a puff before he looked and saw the drone. I had it stay in one place a bit too long. The man went into his inner coat pocket and brought out a pistol. He aimed it at the camera and squeezed the trigger. 
 
-I frowned. "These cookies are for *dogs?"*
+I moved the drone out of the way, and the fact that he was a terrible shot helped. He was a bit inebriated or drowsy which resulted in him missing. He fired two more times. 
 
-She nodded.
+I navigated the drone around different streets. I wanted to give it an unusual path in case he tried to follow it in his vehicle.
 
-"Okay, look. What has gotten into you?" I stood up, brushing the crumbs off my hands. "You don't even *like* dogs. You say they make too much noise and poop everywhere. You don't even like animals, period. Or kids."
+Residents nearby did call the authorities after they heard the shots. A patrol vehicle came out and investigated the vicinity. No one knocked on my door and I was not eager to get involved within the next twenty four hours. 
 
-"That reminds me. Christopher's nephew is going to be at the celebration. He's an orphan and he loves dogs too. I think I'm going to surprise him with a puppy from the shelter!"
+Flying a drone above a vehicle or person was illegal. I did not want to get in trouble. Granted, I was above four hundred feet. He did not have the legal right to shoot at my air craft either within that range. I was not enthused about the idea of going to court and arguing over the technicalities. I could not even judge the man. My response very well may have been similar if I was him in that same circumstance.
 
-I stared at her. “Uh, what?”
+In retrospect, I wish I had told on him. It might have spared the both of us a lot of problems in the future.
 
-“It’s going to be *so* awesome! Ah. Don’t you love Christmas?”
+My own curiosity got the better of me in regards to the McKellar house. I had to check in on them during the flights. I got a thrill knowing I was the only person with the knowledge of their dirty business.
 
-I threw up my hands. "You're acting really weird right now. I'm going to, uh, go rest for a while, okay?"
+\*
 
-She nodded, eyes wide and a perky smile on her face.
+One star filled night in September, I navigated it past the McKellar house once more. The same teal truck parked in the driveway and the man hopped out again. 
 
-That's when I noticed something else. She wasn't wearing her usual outfit of a black tank top and skintight jeans. Instead, she was wearing a bright red sweater and a neat skirt. Her hair--which was usual tied up in a messy bun--fell in perfect, loose waves around her face.
+I had a good view of him as he walked into the abode after the woman opened the door. They kissed and moved out onto the porch for a few moments. 
 
-"You're dressed weird," I muttered.
+He kicked the door behind him when they went inside as she unbuttoned his shirt. From the distance I could still see their forms. They were silhouettes through the beige curtains hung over the foyer windows. 
 
-She just smiled back at me.
+I saw another pair of headlights illuminate the front of the house. It took me a while to grasp what I was seeing. 
 
-I trudged out of the kitchen, through the family room. I was about to climb the stairs, when I stopped.
+It was a Honda. The husband’s car neared the residency.
 
-*Something's different.*
+Mr. McKellar parked along the curb at first. He rolled his window down to take in the view of what was a strange and unfamiliar truck on his property. He drove the car behind the truck to make sure the man would not be able to flee. 
 
-Well, for one, my mom’s house was clean. Which was super weird, because she’s a borderline hoarder who keeps everything from twenty-year-old Christmas cards to free pens. The clutter was gone, a fire was going in the fireplace, and a fluffy red throw sat across the sofa.
+Sam McKellar stepped onto the concrete concourse which led to his house. His had a wrinkled grey business suit. He had a loose tie. He grabbed and yanked off as though it was a heavy burden. He tossed it into the bushes as he fumbled for his house keys and entered the threshold. Even from my elevation, I could see how he took careful steps to maintain silence.
 
-*Weird.*
+Sam went into the garage and walked out with items in both of his hands. In his right he held an ax with the blade turned downwards. In his left he had a canister of gasoline. He set both of these things down on the outdoor blanket at the foot of the front door. 
 
-But there was something else. My gaze caught on the mantle above the fireplace. Even from a distance, I could tell the photos were different. I’d seen the photos there a million times--the dorky photo of me in braces I hated, the photo of the four of us and our cat. They were burned into my brain.
+He fumbled for his keys before he twisted the knob and learned it was already unlocked. He picked up the objects again. 
 
-Not one of the familiar photos remained.
+When he walked in, I moved the drone to the side of the house. I had an angle past a neighbor’s brick chimney. Sam moved upstairs to their master bedroom. 
 
-I stepped closer, studying the photos. A girl with braces playing outside. A mother and father sitting on a sofa, two toddlers between them. Two girls holding hands while sitting on a swing.
+Their curtains were open. The couple made love as Sam barged in. He swung the flat side of the blade at the wife’s face and knocked her out. As she slumped to the ground between the mattress and night stand, the other man tried to leap out of bed. 
 
-My heart dropped. Every muscle in my body paralyzed.
+He made a dash for the window and tried to jump out. Sam pursued him with two bounding steps. The blade sunk into the man’s back as a jettison of blood soaked the front of Sam’s shirt. He lifted the ax out again and heaved it into the man’s spine before he twisted the handle.  
 
-They weren’t us.
+He reached behind him to grab the fuel, and he doused the man in the flammable liquid. 
 
-They looked like stock photos. Stock photos of a family that roughly, very roughly, resembled ours.
+His wife came to. She stood and looked around dazed. She grabbed the lamp and swung it at Sam’s face. A handful of cracked glass went into his mouth, eyes, and nose. He clawed at his skin before she lifted the ax off the ground and swung it at his torso. 
 
-I ran up the stairs, my head spinning, my throat dry. *What’s going on here?* Nothing made sense. Not the way Britney was acting, not the way she was dressed, not my mom’s house, not our photos. It all clashed in my brain, so *wrong.*
+She dragged the writhing body of her husband to the stairs before she kicked chucked him down them. She lifted a phone to her ear and called the police.   
 
-I collapsed into the bed. The bed of my childhood room--the only thing that felt familiar in this house. My stuff had been boxed up long ago, but the walls were still the shade of lavender I’d picked out in middle school. The bedspread was still deep purple. The mattress was still soft as a feather.
+\*
 
-I lay in the silence. Funny how now, there were no random car horns or flocks of Canadian geese. I was almost drifting off to sleep when I heard it.
+I stationed my drone in my backyard before the ambulance and patrol vehicles arrived. Since I had not recorded anything in that time, I did not see a reason to hand over anything as evidence. The most they could use in any kind of formal investigation was flight data. I knew that would lead to them questioning me more than anything else. It would not have been as helpful to them as the scene they cordoned off and collected samples from. 
 
-Footsteps, in the hallway.
+The tale was never reported on by any of our local news outlets. I live in an area where tourism is the number one economic resource. Our officials did not want to scare people into thinking our little haven was anything but safe. 
 
-“Britney?” I called.
+I later heard through community gossip how the boyfriend wound up paralyzed. He did survive in the end.  The husband died at the same hospital I work at from injuries sustained in the attack. 
 
-But they sounded louder. Heavier. Like a man’s footsteps.
+The wife was later given an acquittal.  The jury determined it was self-defense. The jury agreed she did not deserve that extreme of a reaction from her husband.  
 
-I shot up in bed, my heart pounding. Our father had passed away several years ago. Christmas dinner wasn’t for a few days; too early for our uncles to be here. I backed away, heart drumming in my chest.
+When I open up and tell this story to a very small handful of friends, some of them ask me if I still use my drone. I find it odd they would think I would ever quit. 
 
-“H-hello?” I called out.
+One night of misfortune will not lead to me living in fear and stop myself from doing something I find quite fun. I still operate it at the same hour past midnight after my shift ends, and I would not have it any other way.
 
-The footsteps paused.
+I still see the ghosts, as well. Many of them circle my yard now and peer me over the fence. A few of them have not gone away. These hallucinations are there even when I leave in the evening. The sunlight shimmers off their translucent and wraith-like skin. I am sure they will go away at some point. After all, they’re not real, are they?
 
-“Who’s there?” I shouted.
-
-The footsteps resumed. Closer, now--so close that they were right outside the door. “Britney!” I shouted, hoping she could hear me. “Britney, there’s someone--”
-
-The door opened.
-
-My voice died in my throat.
-
-A man stood there. A *naked* man, with only a small towel wrapped around his waist. He stared at me with dark, hungry eyes.
-
-Then he smiled.
-
-“Hey, honey. Are you okay?”
-
-I screamed.
-
-“Honey? What’s wrong?” The man was rushing towards me. I ducked underneath his outstretched arms and ran to the door. Down the stairs, out the front door. I heard Britney shouting behind me. But I didn’t listen.
-
-I kept running, and running. In a few blocks, I reached town. But it wasn’t *our* town. It was a cutesy little town that time forgot, with shops lining the sidewalk and tinsel strung up between the streetlamps. Gone were the liquor stores, rowdy teenagers, and endless supply of litter.
-
-And, yes--there was even a community center. But not our community center of stained concrete and smashed beer bottles in the parking lot. No—it was now a darling brick building, a Christmas candle burning in each window.
-
-*No. No, this can’t be. What the fuck is happening?*
-
-I hurried forward. As I walked, snowflakes began to fall from the gray sky. A few landed on my bare arms.
-
-They didn’t melt.
-
-“Hey!” I called out to the nearest person. A woman waiting to cross the street, with perfect wavy hair and a bright-red peacoat. “Hey! Can you help me?”
-
-She turned towards me, a smile plastered on her face. “Of course! What do you need?”
-
-“I don’t think I belong here. This isn’t--this isn’t my town. It’s--”
-
-I faltered.
-
-Her grin had faded. She now stared at me, face set in stone, eyes burning with hatred. Then she took a step towards me.
-
-I ran.
-
-And that brings us here. I’ve been hiding out behind a perfectly-decorated Christmas tree in someone’s yard. Don’t worry--the house isn’t actually occupied. Despite all the cute lights and candy canes, I looked in the windows. The house is completely empty, on the inside. 
-
-So I’m safe. For now.
-
-But I don’t think it’ll be long. There’s a ring on my left ring finger, probably belonging to the man back at my parents’ house. He’ll probably call the police around here and tell them I’m missing. That I seem mentally unstable. That I should be apprehended immediately.
-
-At least the internet seems to work. But calling Britney’s number, and my mom’s, has only resulted in static.
-
-All I can do now is ask for your help.
-
-If you turn on your TV, and see a Christmas movie featuring a short girl with a mole on her right cheek and an AC/DC t-shirt, that’s me. Help me. Please.
-
-Help me leave this place, before it’s too late.
+END
