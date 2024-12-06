@@ -2,7 +2,7 @@ name: daily nosleep
 
 on:
   schedule:
-    - cron: '0 0 * * *'
+    - cron: "0 0 * * *"
   workflow_dispatch:
 
 jobs:
@@ -11,47 +11,27 @@ jobs:
     steps:
       - name: Checkout repository
         uses: actions/checkout@v4
-        with:
-          repository: tytydraco/yessleep
-          path: yessleep
 
       - name: Set up Python
         uses: actions/setup-python@v5
         with:
-          python-version: '3.13.0'
+          python-version: "3.13.1"
 
-      - name: Checkout target repository
-        uses: actions/checkout@v4
-        with:
-          path: target
+      - name: Install dependencies
+        run: pip install praw
 
-      - name: Update README
+      - name: Fetch random nosleep post
+        env:
+          REDDIT_CLIENT_ID: ${{ secrets.REDDIT_CLIENT_ID }}
+          REDDIT_SECRET: ${{ secrets.REDDIT_SECRET }}
+          REDDIT_USER_AGENT: ${{ secrets.REDDIT_USER_AGENT }}
         run: |
-          if [ ! -d "yessleep/out" ]; then
-            echo "Error: out directory not found"
-            exit 1
-          fi
-          
-          MD_COUNT=$(find yessleep/out -name "*.md" | wc -l)
-          if [ "$MD_COUNT" -eq 0 ]; then
-            echo "Error: No MD files found in out directory"
-            exit 1
-          fi
-          
-          RANDOM_FILE=$(find yessleep/out -name "*.md" | shuf -n 1)
-          
-          if [ ! -r "$RANDOM_FILE" ]; then
-            echo "Error: Cannot read selected file: $RANDOM_FILE"
-            exit 1
-          fi
-          
-          cp "${RANDOM_FILE}" "./target/README.md"
+          python main.py
 
       - name: Commit and push changes
-        working-directory: ./target
         run: |
-          git config --local user.email "me@fugoou.xyz"
           git config --local user.name "fugoou"
+          git config --local user.email "me@fugoou.xyz"
           git add README.md
           git commit -m "nosleep for $(date +'%Y-%m-%d')"
           git push
