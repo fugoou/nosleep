@@ -1,72 +1,74 @@
-# I took the wrong road,  now something is watching me from the snow.
-A few hours ago, I left Aspen hauling an unplanned return load through a mountain range I've never been through before.
+# Free Ride
+“Why don’t you just go to the beach! “Carlos’ brother shouted, slamming the door. Carlos thought his brother must have gone crazy. Not only did he have no way to get to the beach he was locked out wearing sweats and a tank top. Carlos had had no desire or intention to be wandering around the streets today. Just standing around in the summer heat felt exhausting.  His brother had muscled him out of their tiny apartment in order to get some privacy with his girlfriend. Carlos didn’t care what the reason was. No reason was good enough for him to be getting cooked on the sidewalk.
 
-As a trucker, surprise loads and switch ups in the plans are no big deal, normally. But tonight, my GPS led me down a weird road, maybe to avoid construction or traffic, I have no idea.
+ 
 
-I stopped for food and gas while I was on the main road leaving the city, but after driving awhile, I had to make a stop to fix my windshield wipers. 
+With no money in his pockets and few other options he walked down the boulevard heading toward the corner market. If the shop was busy, he might be able to steal a drink or some snacks. If not, he could at least relax in the AC till the owner kicked him out.
 
-Despite the radars looking clear for the day, I found myself in a slowly growing snowstorm, my truck chugging loudly between the unfamiliar rocky cliffsides reaching high above me towards a slowly whitening sky, the sun a slowly waning beacon of hope as the snow began to pick up, kicking violent gusts of icey tree limbs and snow.
+ 
 
-I pulled over on an old road stop that sat near a few fallen trees and some huge, imposing boulders. It had a small parking lot next to a long-since abandoned service station that sat pretty close to the main road.
+The walk over to the store wasn’t far but there was no shade anywhere to be found. Carlos could feel the sweat pouring off him by the time he reached the parking lot. Unfortunately for him the parking lot was empty. That wouldn’t be a good sign for being able to sneak out a drink or some snacks. *At least I can get out of this heat.*
 
-When I got out to fix the wipers, I lingered for a moment half way out the door, watching as the snow seemed to form small tornadoes all around me, encircling  the mostly empty parking lot, dancing with the ravaging winds that began kicking up clouds of snow that glittered in the truck's headlights.
+ 
 
-I got out and climbed up the side of the hood enough to get the wipers unstuck from their positions. On the way back down, the headlights took my sight in a flash for just a moment. 
+Carlos walked into the shop soaking in the blast of cold air that greeted him. His relaxation was short lived though. Moving through the store the owner watched him like a hawk. He slowly wandered down the aisles enjoying the relief from the sun. Time flew by as he tried to look interested in various items, picking them up and putting them back down on the shelf. The owner got tired watching Carlos finally snapping, “This isn’t a hang out you know! It’s a store for paying customers. If you aren't going to buy anything, just get out.
 
-That's when I saw him. A silhouette in the snow, just out of sight. Maybe 100 feet away. I hadn't noticed them before, but a pair of headlights were on next to the obscured figure. 
+“Hey, I was just about to make my purchase, but if this is how you treat your customers I’m out of here.”
 
-My heart skipped a beat as my eyes barely adjusted in time to see him. I was suddenly hyper aware of the sounds of spiteful and angry wind tearing it's way along the now snow covered cliffs that surround me. It felt like my head was going to spin off into the wind at any moment.
+“Yeah, yeah get out of here!” the owner said, waving him off with his hand.
 
-I choked out a weak, "Hello?" that barely made itself heard over the bitter whispers of the wind. 
+ 
 
-Nothing... 
+Carlos backed out of the store gesturing at the owner. Turning around he almost ran into a motorcycle parked in the middle of the parking lot. The heat already had him on edge and with the owner yelling at him he was ready to explode. He looked around ready to yell at whoever had left their bike haphazardly in the middle of the parking lot. Only no one was around. The way the bike had been left he figured the owner couldn’t have gone far. Strangely though he hadn’t noticed anyone else in the store.
 
-I slowly approached, at the time I thought maybe someone needed my help, maybe they didn't hear me.
+ 
 
-When I got to the man, he was standing facing his car. He was on the passenger side and the door hung slightly ajar. The snow had already started building up inside the car and around the man's feet. 
+Waiting for the owner to return Carlos looked over the bike. The street style motorcycle looked brand new freshly painted matt black. The more Carlos looked over the bike the more jealous and angrier he got. Glancing back around the parking lot he was surprised that there was still no one in sight. When he looked back down at the bike, he got an even bigger surprise. The keys were dangling from the ignition. Carlos had no idea how he had missed it before.
 
-"Sir, are you ok?" I managed to squeak out as I grabbed the man's shoulder, fully expecting him to be frozen solid.
+ 
 
-I managed to get him to turn, and at this point, I wish I never had.
+*Why not borrow the bike for a little joy ride? If the owner really cared about it he wouldn't have been so careless. Besides it’s not like things don’t go missing here all the time. Let's just take it around the block.*
 
-The man wasn't frozen, despite the snow slowly building up on and around him. He turned and looked at me, his features gaunt and a gristled and grey beard hung low and dripped with icicles. He almost looked normal... But his eyes.
+ 
 
-Like two soulless white orbs that were suspended in cavernous black holes on his lost looking face. 
+Swinging his leg over the bike Carlos settled into the seat. Cautiously he looked around again making sure that there was no one in sight. He smiled, turning the key in the ignition and the motorcycle rumbled to life. Gripping the handles Carlos sat revved the bike shooting off down the boulevard. He didn’t have much of a plan other than to catch a breeze before ditching the bike.
 
-As soon as I grabbed his shoulder, he practically jumped up a foot into the air. I  tried to signal to him, but he wouldn't react to my words or finger snapping. He was either blind and deaf, or catatonic. 
+ 
 
-His throat cleared and he had to fight not to upheave as he spoke frantically to me, "It's in wind, it's in the wind..." He kept saying it. Over. And over. 
+Speeding down the boulevard he spotted one of his friends walking by. He slowed down to shout and wave, but realized something was wrong. His hands wouldn’t come off the bike. Jerking at his hands he swerved dangerously around in the lane. No matter how much he fought, his hands stayed locked around the throttle. Carlos let off the throttle trying to slow the bike to a stop. The bike had a different plan in mind, steadily increasing its speed.
 
-He got louder, slowly breaking into a hysteric "IT'S IN THE WIND! IT'S IN THE WIND, GOD DAMN IT! IT HIDES IN THE SNOW!"
+ 
 
-The man started thrashing about in a rabid state, spitting and frothing at the mouth, screaming upwards into the sky and letting his fear and hatred be carried through the mountains by the wind. 
+Carlos held on for dear life as the bike raced down the streets getting faster by the second. His heart raced pounding in his chest. It was all he could do to weave between the cars narrowly avoiding collisions. Looking ahead his heart froze, the next traffic light cutover to red. Cars flooded through the intersection blocking his path. Carlos lowered his head against the bike, closing his eyes and screaming.
 
-I only watched long enough to see his skin was beginning to flake off in frozen chunks as the wind began to rend across his body. The headlights of my truck were starting to falter. Something was wrong.
+ 
 
-I ran frantically back to my cab, the sound of the old man's screams of terror slowly faded into the howling and rushing winds that pursued me. I could feel the ice starting to pierce my coat and flesh, trying to reach into my veins.
+Horns blared and steel crumbled as cars collided with one another trying to avoid the motorcycle. A moment later Carlos opened his eyes, shocked to find himself through the intersection in one piece. Over his shoulder he could see people starting to climb out of the wreckage shouting at one another. He also saw a set of red and blue flashing lights. With his face buried in the motorcycle he hadn’t seen the cop waiting at the intersection. Not that he could have stopped the bike.
 
-And now here I am, watching the snow slowly build up on the hood of my truck from the inside. The power died a little bit ago. 
+ 
 
-Sometimes, I see the old man wandering about in the blizzard. Once he came over to my truck. He tried the handle of the passenger side door for about two minutes, rambling and muttering to himself slowly. 
+ Racing toward the highway Carlos hoped the cop was too preoccupied with the wreck to pursue him. As he merged onto the highway bridge a quick glance in his side mirror confirmed he wasn’t that lucky. The cop’s flashing lights were quickly approaching from behind as he merged onto the bridge. This was quickly becoming his worst nightmare. Stuck on the six mile stretch of the Franklin bridge with nowhere to hide. His only option was to try to outrun the cop. 
 
-When he was close, I saw most of the skin and meat on his skull has been torn off by the wind. The muscles are still keeping him going, but that's about it. His eyes were searching, his mouth was trying to ramble while blood and meat slowly churned out in an ooze from his mouth.
+ 
 
-I called the police, hospitals, fire department... But I can't give them an address. My GPS is not working here. And for some reason they can't track me down. Most of them think I am joking...
+The sun gleaming off the ocean water below was blinding as Carlos weaved his way through the traffic. Despite his reckless weaving through traffic the cop was still closing the distance. A loud voice shouted over the cop’s megaphone “PULL OVER!”. Carlos could see the cop car pulling up beside him out of the corner of his eye. All the joy was gone from his brief ride and he was more than ready to pull over. But his hands were still locked tight to the bike and it showed no signs of slowing down. He uselessly pulled at the bike throttle hoping to coax out more speed.
 
-I don't have much longer to type here. I can hear something in the wind. It's telling me to come out and it will help me find my way home. It wants to take me to a place where I will always be warm and happy. It feels a bit crazy saying it, let alone typing it...
+ 
 
-But I'm not going to trust it. I see what it does to us. 
+To his own surprise the bike shot forward at an alarming rate quickly leaving the cop behind. As the bike accelerated, so did the wind blowing into Carlos’ face. Bringing his eyes to a squint he could barely keep them open. A few seconds later Carlos was forced to shut his eyes completely. The violent rush of air from passing other cars drowned out all the other sounds. It was terrifying white noise filling the time before his inevitable crash. Carlos fought to keep the bike straight, but it started to drift. Panicking, he pulled at the handles to the left trying to keep his balance. Then jerking the bike back to the right. Through frantic adjustments Carlos lost any sense of where he was on the road. Without warning the front of the bike lifted up into the air. If Carlos hands hadn’t been locked to the handles, he would have been sent flying off the back.  Expecting the bike to rush forward he clung to the bike with his entire body. Instead, he felt weightless.
 
-That old man came back. He was looking right at me, his mouth wrapped up in a snare like smile that showed blood covered teeth and rotted gums. Even though it was mostly skull now, he kept leaking that red ooze.
+ 
 
-I watched as the wind tore him away from the door handle this time. He was dragged through the snow by something in the wind. I couldn't hear it, but I saw his sinister laugh as he clawed at the snow and ice, his fingers leaving oily red streaks of blood as he tried to cling to anything he could.
+Forcing his eyes wide open he saw a massive teal rushing towards him. It took his brain a second to catch up, realizing it was him rushing toward the ocean. The bike had careened over the railing and was hurtling toward the water below. The fall felt like it was ripping Carlos' stomach right out of his body. His mind told him to scream but there wasn’t any time to. Instead, he took a last desperate gasp for air. The bike smashed against the surface causing an eruption of water.
 
-I saw him for one last moment, and fear finally twisted his face as realization and self awareness kicked in.
+ 
 
-Then, it was quiet. All but the skittering snow that is slowly consuming my entire truck. My entire life. And it has been quiet ever since.
+Submerged underwater he propped his legs on the bike trying to stand up and rip his arms free. Standing up against the seat his feet began to sink into the bike. The black body of the bike began to twist and morph in the water. It started to collapse into a large black blob then stretch out into something new. A long horse’s head began to stretch its way out of the blob that Carlos was stuck to. At the same time four long legs started to pull out from the blob forming the horse's legs. Then the large torso formed, still latching onto Carlos’ limbs. The bike’s new horse form began to solidify, and it started to kick its legs. The kicking became a gallop, dragging Carlos deep toward the ocean floor.
 
-I can't make calls anymore, but I keep spamming "post" on this, hoping it will get some shred of bandwidth. 
+ 
 
-I won't go out there. Maybe someone will find me, but probably not. I have 3% battery now and all I have is the smell of cold air, and the whispers of the wind, trying to force it's way inside.
+Pressure built up in Carlos’s lungs as he struggled to hold his breath. He was quickly running out of time. Pulling himself toward the horse he opened his mouth wide letting out a large air bubble. With desperation racing through his mind, he bit down hard on the horse's neck. Reeling from the bit it spun in a circle creating a whirlpool underwater. The whirlpool kicked up sand and debris from the ocean floor. Carlos’ vision started to darken looking back towards the surface. The dim glow of the sun was fading away. The last bit of air coughed out from his body making way for water to flood into his lungs.
 
-I'm going to try and get some sleep. I am so cold. If I can, I'll update you. If not, well... Stay out of the wind.
+ 
+
+Feeling his body go limp, the horse finally released him, setting him adrift in the ocean.
