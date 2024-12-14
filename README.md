@@ -1,74 +1,102 @@
-# Free Ride
-“Why don’t you just go to the beach! “Carlos’ brother shouted, slamming the door. Carlos thought his brother must have gone crazy. Not only did he have no way to get to the beach he was locked out wearing sweats and a tank top. Carlos had had no desire or intention to be wandering around the streets today. Just standing around in the summer heat felt exhausting.  His brother had muscled him out of their tiny apartment in order to get some privacy with his girlfriend. Carlos didn’t care what the reason was. No reason was good enough for him to be getting cooked on the sidewalk.
+# Four Days Ago My Missing Son Returned…Only I Don’t Have a Son
+Day One
 
- 
+It was Friday morning. I started my day nursing a hangover from the night before, drinking my way through a pot of coffee and munching on toaster strudels (real healthy, I know). I had a morning filled with zoom meetings, and was feeling thankful for the option to keep the camera off because, let’s face it, I’m not as young as I used to be and good lord, does a night of drinking do some damage.
 
-With no money in his pockets and few other options he walked down the boulevard heading toward the corner market. If the shop was busy, he might be able to steal a drink or some snacks. If not, he could at least relax in the AC till the owner kicked him out.
+Anyway, as I was going into my last meeting before lunch, my phone rang. I silenced it quickly and set it face down so I wouldn’t be distracted. It’s no good to be off cam AND distracted. After the meeting, I forgot all about the call and got up from my desk to make myself some lunch – a salad with grilled chicken (cancels out the toaster strudel, right? Right?)
 
- 
+Just as I sat back at my desk, my phone rang again. When I picked it up, I saw I had five missed calls – two from my husband, Dylan, and three from a number I didn’t recognize. What the heck? I dropped my fork and mashed the answer button. It was the latter that was calling me back.
 
-The walk over to the store wasn’t far but there was no shade anywhere to be found. Carlos could feel the sweat pouring off him by the time he reached the parking lot. Unfortunately for him the parking lot was empty. That wouldn’t be a good sign for being able to sneak out a drink or some snacks. *At least I can get out of this heat.*
+“Hello?”
 
- 
+“Hi, is this Mrs. Harding?”
 
-Carlos walked into the shop soaking in the blast of cold air that greeted him. His relaxation was short lived though. Moving through the store the owner watched him like a hawk. He slowly wandered down the aisles enjoying the relief from the sun. Time flew by as he tried to look interested in various items, picking them up and putting them back down on the shelf. The owner got tired watching Carlos finally snapping, “This isn’t a hang out you know! It’s a store for paying customers. If you aren't going to buy anything, just get out.
+“Who’s this?” I asked.
 
-“Hey, I was just about to make my purchase, but if this is how you treat your customers I’m out of here.”
+“This is Detective Phillips from the police department.”
 
-“Yeah, yeah get out of here!” the owner said, waving him off with his hand.
+My mind jumped to the missed calls from Dylan. Oh, God. Did something happen to him? A car accident? A shoot out? Fuck! My heart was beating out of my chest. Words lodged in my throat like a wad of wet bread. I sputtered, then asked, “Is my husband alright?”
 
- 
+“What?” the detective said, obviously confused.
 
-Carlos backed out of the store gesturing at the owner. Turning around he almost ran into a motorcycle parked in the middle of the parking lot. The heat already had him on edge and with the owner yelling at him he was ready to explode. He looked around ready to yell at whoever had left their bike haphazardly in the middle of the parking lot. Only no one was around. The way the bike had been left he figured the owner couldn’t have gone far. Strangely though he hadn’t noticed anyone else in the store.
+“My husband,” I gasped. “Is that what you’re calling about?”
 
- 
+“Oh, no ma’am…”
 
-Waiting for the owner to return Carlos looked over the bike. The street style motorcycle looked brand new freshly painted matt black. The more Carlos looked over the bike the more jealous and angrier he got. Glancing back around the parking lot he was surprised that there was still no one in sight. When he looked back down at the bike, he got an even bigger surprise. The keys were dangling from the ignition. Carlos had no idea how he had missed it before.
+“Thank God,” I breathed. “What can I do for you?”
 
- 
+“Ma’am…I’m calling because we found your son.”
 
-*Why not borrow the bike for a little joy ride? If the owner really cared about it he wouldn't have been so careless. Besides it’s not like things don’t go missing here all the time. Let's just take it around the block.*
+Shock prickled through me. “Excuse me?”
 
- 
+“Your son, ma’am, we found him. He turned up at the police station last night and we were able to positively identify him this morning.”
 
-Swinging his leg over the bike Carlos settled into the seat. Cautiously he looked around again making sure that there was no one in sight. He smiled, turning the key in the ignition and the motorcycle rumbled to life. Gripping the handles Carlos sat revved the bike shooting off down the boulevard. He didn’t have much of a plan other than to catch a breeze before ditching the bike.
+My mind started spinning at the detective’s words. He must have the wrong Mrs. Harding. I don’t have a son. I don’t have any children at all. Dylan and I never wanted them. We have a nice life, just the two of us and our dog, Gus. Financially, we do well. We can pick up and travel whenever we want. Besides, I just never had that maternal instinct. And there’s nothing freaking wrong with that, despite what my mother thinks.
 
- 
+“Hello? Ma’am? Did you hear what I said?”
 
-Speeding down the boulevard he spotted one of his friends walking by. He slowed down to shout and wave, but realized something was wrong. His hands wouldn’t come off the bike. Jerking at his hands he swerved dangerously around in the lane. No matter how much he fought, his hands stayed locked around the throttle. Carlos let off the throttle trying to slow the bike to a stop. The bike had a different plan in mind, steadily increasing its speed.
+The detective’s voice jarred me from my thoughts. “Um…yeah, but…”
 
- 
+“We need you to come down to the station. Your husband is already on his way.”
 
-Carlos held on for dear life as the bike raced down the streets getting faster by the second. His heart raced pounding in his chest. It was all he could do to weave between the cars narrowly avoiding collisions. Looking ahead his heart froze, the next traffic light cutover to red. Cars flooded through the intersection blocking his path. Carlos lowered his head against the bike, closing his eyes and screaming.
+Dylan was? Why?
 
- 
+“I think you must have the wrong number, Detective Phillips.”
 
-Horns blared and steel crumbled as cars collided with one another trying to avoid the motorcycle. A moment later Carlos opened his eyes, shocked to find himself through the intersection in one piece. Over his shoulder he could see people starting to climb out of the wreckage shouting at one another. He also saw a set of red and blue flashing lights. With his face buried in the motorcycle he hadn’t seen the cop waiting at the intersection. Not that he could have stopped the bike.
+“Shit,” he swore. “Is this Alyssa Harding, address 563 Pine Tree Court?”
 
- 
+“Yes, it is, but—”
 
- Racing toward the highway Carlos hoped the cop was too preoccupied with the wreck to pursue him. As he merged onto the highway bridge a quick glance in his side mirror confirmed he wasn’t that lucky. The cop’s flashing lights were quickly approaching from behind as he merged onto the bridge. This was quickly becoming his worst nightmare. Stuck on the six mile stretch of the Franklin bridge with nowhere to hide. His only option was to try to outrun the cop. 
+“Phew,” the detective said. “Thought I’d really messed up there. You’re definitely the Mrs. Harding I’m looking for. Please, come down to the station at 555 Wilson Avenue ASAP.”
 
- 
+Before I could get another word out, the call disconnected. I pulled the phone back from my head and stared at it in disbelief. I was the Mrs. Harding he was looking for? It didn’t make any sense. What made less sense was that Dylan was headed to the station, too.
 
-The sun gleaming off the ocean water below was blinding as Carlos weaved his way through the traffic. Despite his reckless weaving through traffic the cop was still closing the distance. A loud voice shouted over the cop’s megaphone “PULL OVER!”. Carlos could see the cop car pulling up beside him out of the corner of his eye. All the joy was gone from his brief ride and he was more than ready to pull over. But his hands were still locked tight to the bike and it showed no signs of slowing down. He uselessly pulled at the bike throttle hoping to coax out more speed.
+I logged off work, changed out of my “work clothes” (consisting of yoga pants and an old t-shirt), and pulled my hair up into a messy bun. Gus tap danced around me as I hurriedly got ready, then I dropped a treat on the floor so he wouldn’t get mad when I left him. Outside, there was a warm breeze, odd for an afternoon in mid-November. Something about it just felt wrong.
 
- 
+My hands trembled the whole way to the police station as I navigated my Prius through the leaf-strewn streets. I pulled up outside the low brick building and heard my name the second I stepped out onto the street. I turned. Dylan was rushing toward me, a grin plastered on his face. I almost didn’t recognize him.
 
-To his own surprise the bike shot forward at an alarming rate quickly leaving the cop behind. As the bike accelerated, so did the wind blowing into Carlos’ face. Bringing his eyes to a squint he could barely keep them open. A few seconds later Carlos was forced to shut his eyes completely. The violent rush of air from passing other cars drowned out all the other sounds. It was terrifying white noise filling the time before his inevitable crash. Carlos fought to keep the bike straight, but it started to drift. Panicking, he pulled at the handles to the left trying to keep his balance. Then jerking the bike back to the right. Through frantic adjustments Carlos lost any sense of where he was on the road. Without warning the front of the bike lifted up into the air. If Carlos hands hadn’t been locked to the handles, he would have been sent flying off the back.  Expecting the bike to rush forward he clung to the bike with his entire body. Instead, he felt weightless.
+“Alyssa! God, I tried to call you twice! Why didn’t you pick up?”
 
- 
+“I-I was in meetings all morning,” I said, thrown off by his intensity. “What is going on, Dylan?”
 
-Forcing his eyes wide open he saw a massive teal rushing towards him. It took his brain a second to catch up, realizing it was him rushing toward the ocean. The bike had careened over the railing and was hurtling toward the water below. The fall felt like it was ripping Carlos' stomach right out of his body. His mind told him to scream but there wasn’t any time to. Instead, he took a last desperate gasp for air. The bike smashed against the surface causing an eruption of water.
+“Didn’t you talk to the detective?” he asked, grabbing my hand. He pulled me toward the glass entrance to the building with such force, I stumbled over the broken concrete a couple of times.
 
- 
+“Yes, but, I don’t understand,” I said, breathing heavy. Something was really wrong here.
 
-Submerged underwater he propped his legs on the bike trying to stand up and rip his arms free. Standing up against the seat his feet began to sink into the bike. The black body of the bike began to twist and morph in the water. It started to collapse into a large black blob then stretch out into something new. A long horse’s head began to stretch its way out of the blob that Carlos was stuck to. At the same time four long legs started to pull out from the blob forming the horse's legs. Then the large torso formed, still latching onto Carlos’ limbs. The bike’s new horse form began to solidify, and it started to kick its legs. The kicking became a gallop, dragging Carlos deep toward the ocean floor.
+“They found him, Lyss!” Dylan cried, prying open the door. “They found Logan!”
 
- 
+Logan. Logan. The word tumbled around in my head like a single item inside a dryer. Logan. They found him. What the fuck was going on?
 
-Pressure built up in Carlos’s lungs as he struggled to hold his breath. He was quickly running out of time. Pulling himself toward the horse he opened his mouth wide letting out a large air bubble. With desperation racing through his mind, he bit down hard on the horse's neck. Reeling from the bit it spun in a circle creating a whirlpool underwater. The whirlpool kicked up sand and debris from the ocean floor. Carlos’ vision started to darken looking back towards the surface. The dim glow of the sun was fading away. The last bit of air coughed out from his body making way for water to flood into his lungs.
+I stopped short, yanking my hand from my husband’s, this man who looked like my husband anyway, but certainly wasn’t acting like him. “Dylan, stop!”
 
- 
+He stopped walking and blinked at me, confusion clouding his face. “Lyss, what’s going on? Didn’t you hear me? They found Logan! Why are you acting so strange?”
 
-Feeling his body go limp, the horse finally released him, setting him adrift in the ocean.
+I bit down on my tongue, fighting the urge to unleash a series of swear words. I wasn’t the one acting strange here. Why couldn’t he see that? Who the fuck was Logan? Why were we even here?
+
+I took a deep, measured breath. “Dylan, I don’t know what’s going on. I don’t know who Logan is, and why the fuck we should care that they found him.”
+
+My words were like a slap to the face. Dylan recoiled, a look of disgust coming over him. His eyes darkened and he leaned in close, murmuring to me, hot breath washing over my face. “Please don’t do this right now. Just come with me.”
+
+I wanted to turn around and walk away. But I didn’t. I should’ve. If these past four days have taught me anything, it’s that following Dylan through that police station was the worst mistake I’ve ever made in my life. But something inside me told me to go with him. Curiosity, I guess. Wanting answers. The urgency in Dylan’s demeanor. I should’ve fucking run.
+
+“Fine,” I said quietly.
+
+We took the elevator up to the second floor and pushed through a set of double doors to a reception area. Dylan approached an officer behind a desk.
+
+“Mr. and Mrs. Harding here to see Detective Phillips,” he said.
+
+The officer’s face lit up. “Yes, of course, he’s waiting for you. You can head right back to his office.”
+
+He pointed straight back through a maze of cubicles and Dylan motioned me forward. Dread snaked through me and my legs started to tremble as we walked. Officers in cubicles stopped to stare at us. One was even crying, wiping tears from her cheeks with a wad of tissues. What was with all the fucking dramatics?
+
+The office door swung open before we even got there, and a man in his mid-forties with a slight pot belly and a full beard grinned out at us. “He’s right in here, folks, come, come. He’s been waiting anxiously for you.”
+
+He sounded so excited, it was almost contagious. Until I remembered that there was nothing to be excited about. Whatever was going on was seriously fucked up. Dylan went first, stepping over the threshold and into the small office. I saw his body tense, then relax with a rush of breath.
+
+“It really is you!” he cried, his voice breaking. “Lyss, it’s him! After all this time, our son has come home!”
+
+I stepped timidly into the office. A boy—maybe six or seven—sat perched on a chair, his dark curly hair disheveled and standing up at odd angles on his head. He clutched a juicebox in one hand and a ratty teddy bear in the other. He was pale, but his cheeks were unnaturally rosy, and he looked up at us with the darkest, widest eyes I’ve ever seen. 
+
+Seeing him was like a gut punch. Fear course through me like an electric shock. This kid, whoever he was, definitely wasn’t my son. In fact, I was pretty sure he was pure fucking evil. 
+
+[Part 2](https://www.reddit.com/r/nosleep/s/DFpQ2C3fni)
