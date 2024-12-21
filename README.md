@@ -1,281 +1,142 @@
-#  I Work at a Secret Government Facility and Something Really Strange is Happening Here(Part2) 
-[Part1](https://www.reddit.com/r/nosleep/comments/1h5pxn9/i_work_at_a_secret_government_facility_and/)
+# I Got a Job as the Village Herder, but the Rules are Terrifying Part 2, final.
 
-‘Did that alien really spot me? Am I in trouble?’ I began to worry.
 
-All this combined with the mysterious events at the base, only managed to further heighten my paranoia. It took a whole hour, for the anxiety to start wearing down. Since nothing untoward had happened in all that
+[Part 1](https://www.reddit.com/r/nosleep/s/qGInv75R4j)
 
-time, it was slowly becoming a little easier for me to brush this off as a mere coincidence.
+I stepped inside, the door creaking shut behind me with a finality that sent a cold shiver down my spine. The air was thick with dust, a musty smell that clung to my skin, mingling with something else something foul. The lights flickered, casting erratic shadows on the walls, which seemed to close in on me with every step.
 
-When I finally reached town, I decided to stop by my cousin Henry’s place. I desperately needed somebody to talk to. Yet as a precautionary measure, I drove around town for the next 60 minutes stopping at odd places, just to make sure I wasn’t being followed.
+The floorboards creaked underfoot, groaning in protest as I made my way through the small hallway. The walls were covered in peeling wallpaper, yellowed and stained, as if the house had been abandoned for years yet there was no sign of decay, no sign of time passing at all. Everything felt frozen, suspended in the air, as if I had stepped into some place that existed outside of time.
 
-It was already 5 am when I finally reached his home, and I wasn’t surprised to see him awake. He runs a small illegal gambling den in the city, and usually works late into the night.
+The silence was oppressive, like a blanket smothering my every breath. Every step I took echoed too loudly, bouncing off the walls and magnifying my anxiety. I glanced over my shoulder, half-expecting to see something lurking just beyond the doorway, but nothing followed.
 
-Henry was sitting by the fireside enjoying a pint of beer. I quickly brought him up to speed with the events of the day.
+A strange, guttural sound suddenly filled the air low, like the growl of an animal, but distorted, almost human. I froze, my heart leaping into my throat. Was it the sheep? Was it something worse?
 
-When I was finished, he asked, “Do you still have the telescope?”
+The light flickered once more, casting a fleeting shadow across the hallway. The temperature seemed to drop, the air growing thicker, colder. And then, a soft rustling sound a dragging noise, like something scraping across the floor came from somewhere deeper in the house.
 
-I nodded. He took it out from the briefcase and pointed it at the sky. I showed him how to work it, and warned him not crank it up all the way to level 3. He nodded.
+I tried to move, but my legs were rooted to the spot, as if the house itself was holding me in place. The walls seemed to breathe, pulsing gently, and the floor beneath my feet felt... wrong. Unstable. Like it was alive.
 
-And then, he saw it too. All the three spaceships were suspended mid-air. Just like I had spotted them the first time. He was in shock and whistled softly to himself.
+Then, from the darkness ahead, a shape emerged.
 
-“What’s gonna happen Mike? Why do you think they are here?” he asked. I simply shrugged not knowing what to say.
+At first, I thought it was a man a tall, gaunt figure, its back hunched unnaturally, its arms hanging too low at its sides. Its skin was pale, sickly, stretched tight over bone. The thing’s eyes were wide and vacant, black as coal, gleaming in the dim light. Its face was contorted, too wide, its mouth too large, filled with jagged teeth that gleamed in the flickering light.
 
-“Are they going to hurt us?” he inquired, sounding worried.
+It stopped just short of me, its breathing slow and shallow, like it was savoring my fear. The silence in the house was now broken by the wet, raspy sound of its breath, a horrible noise that made my skin crawl. It tilted its head, as though studying me, the way a predator eyes its prey.
 
-“I’m sure the government already knows of their presence. They must be dealing with them” I replied, though not fully convinced.
+I backed away instinctively, but the thing didn't move at least not in the way I expected. It was like the creature was floating, gliding across the floor, its limbs twitching, snapping into strange angles, too quick, too jerky. One moment it was in front of me, and the next, it was standing just behind me, its breath hot on my neck.
 
-He then panned the device straight at me and said “I can see your heart, lungs, spleen and guts from here Mikey!”
+I swallowed hard, my throat dry, my heart pounding in my chest. The air was thick now, suffocating, and I realized I was gasping for breath. Get out. I have to get out.
 
-He then pointed it down to my trousers and exclaimed “Somebody’s packin down there!’.
+I turned to run, but the house itself seemed to shift, the walls warping, the hallway stretching impossibly long. I stumbled, disoriented, as the thing laughed a sound so deep, so guttural, it felt like it came from the earth itself. The walls around me pulsed, the house closing in as if it were alive, feeding off my fear.
 
-I grabbed the telescope and put it back in the briefcase.
+The sheep’s distant bleats faded as I sprinted down the hallway, but the creature’s laughter followed me, echoing through the house like a curse. I was trapped. There was no escape.
 
-“I want to sell this thing to help pay for Jessica’s surgery. Do you know any buyer?” I asked him.
+I reached for the door the door I came through but when my hand touched the handle, it was cold, slick with something wet. The door wouldn’t open. I pulled harder, but it wouldn’t budge. The thing was right behind me now, so close I could hear the wet drag of its feet on the floor, the sharp, broken gasps of its breath as it closed in.
 
-He told me about a smuggler in Tipmann Avenue, which was an hour’s drive away from his house. I decided to visit him first thing in the morning.
+I turned to face the creature, my back pressed to the door, but the terrifying shape was gone. In its place stood something far worse a black sheep.
 
-Henry looked at me in silence. “Mike, you would probably be dead by now had you not received the call from the hospital,” he said a moment later in quiet realization.
+My heart nearly stopped. This wasn't just any sheep. I had seen it befor back in the field when the herd had scattered, its wool a pitch-black contrast to the purity of the white sheep. The black sheep.
 
-“And don’t blame yourself for Joe’s death ok,” he added. “Had you stayed back, you would have all been killed by now, including Buster,’ he reasoned. I nodded in understanding, but deep down I couldn’t shake away the feeling of guilt. Joe was all alone back there and had no body to turn to for help.
+The oppressive weight of Rule 7 crashed down on me like a thunderclap. “There are only white sheep in the village. If at any moment you notice a sheep with black wool, you are in danger. If you don't get it away from the herd before night comes, you won't reach the village.”
 
-Henry then got up and hugged me tight, “I’m glad your fine.” he said.
 
-We spoke for a little while longer before agreeing to call it a night. 
+The black sheep stared at me with those hollow eyes, its presence suffocating. I felt the room grow colder, the shadows thickening like they were closing in, trapping me here with it. Its eyes, black as coal, glowed faintly in the dim light of the house. Its slow, deliberate movements made my legs shake.
 
-As I lay down on his couch, I felt the exhaustion kicking in and immediately fell asleep.
+I backed away instinctively, but the sheep moved with me, its head tilting ever so slightly, following my every movement. The air became thick, and the shadows seemed to swirl in unnatural ways, almost as if they were alive. My chest tightened, and my breathing grew shallow. I could feel my heartbeat in my throat, loud and erratic.
 
-*I looked at my Mickey Mouse watch. It was 5:36 PM. I was happily licking my ice-cream in the backseat of my car when a truck came and rammed into it. I looked around in the car, but I was all alone.*
+The sheep took another step forward, its grin widening far too wide for a creature like that. Its mouth stretched in an unnatural way, revealing sharp, jagged teeth. "You shouldn't have come inside," it whispered, its voice low and cruel, like nails scraping against the walls of my mind.
 
-*I started doing everything in my power to try and get out. But I was unable to open the door. It was stuck. I tried to smash the window with my foot. But I failed again. It was too strong.*
+The house around me seemed to distort, the corners of the room darkening as though being swallowed whole by the shadows. The sheep’s presence seemed to make the walls breathe, closing in with every step it took toward me.
 
-*Then a man looked at me from the outside. He had long hair and wore a French beard. He smashed the glass with his elbow and rescued me from the wreckage. ..*
+I wanted to scream. To run. But I couldn't. I had broken the rule.
 
-I opened my eyes and realized I was still sleeping on Henry’s couch. It was the damn dream again. But it was very different this time, and I had never seen that guy before.
+I could feel the house itself beginning to shift, twisting in ways that didn't make sense. The black sheep's eyes never left mine, its unsettling grin widening even further, and the walls seemed to press against me like they were going to swallow me whole.
 
-When I looked at the clock I realized it was 3:00 in the afternoon, and my cousin had already left for work.
+I could feel the house breathing, alive with the darkness that surrounded me. I couldn't breathe. The shadows closed in on me, suffocating, and then… everything went black.
 
-I got up from the couch, took a quick shower and put on some of Henry’s clothes. While going through his cupboard, I noticed a new jacket and decided to try it on. It fit perfectly, so I decided to keep it. I took out the telescope from the briefcase, and placed it in the inner pocket of my new jacket.
 
-Got in my car with Buster, and took off to meet the smuggler whose address Henry had provided. When I was halfway along, I stopped at a signal to take a right turn to Tipmann Avenue. A man with long black hair and a French beard stopped his bike next to my jeep.
+The oppressive darkness swallowed everything, and I couldn't breathe. The black sheep's eyes glowed brighter, its smile stretching even further as it advanced. I backed away slowly, panic clawing at my chest, but the walls of the house seemed to shift and contract, pushing me further into the corner. I was trapped.
 
-I was a little taken aback at the coincidence because he was the same person who had appeared in my dream this morning. I kept staring at him, while he had his sight fixed on the road. When the signal turned green, he raced ahead and I decided to follow him.
+But then, something some instinct, a tiny glimmer of hope pushed through the fear. I remembered Rule 7: "If you don't get the black sheep away from the herd before night comes, you won't reach the village."
 
-A few miles later, he stopped his bike in front of a store and walked inside.
+But I had failed. I had broken the rule, and now there was no escaping the consequences. Or was there?
 
-I straightened my shirt and cleared my throat before stepping out of the jeep, and began formulating a plan in my mind as I walked towards the store.
+I reached down, fumbling for the staff I had dropped earlier. My hands trembled, my vision blurred with fear, but I knew I had to act. As the black sheep took another step toward me, I swung the staff at it, shouting, “Stay back!”
 
-“Good morning. What can I do for you?” he asked me, when I entered the same shop with Buster.
+The moment the staff made contact with the sheep, the room seemed to shudder, the shadows recoiling for a brief moment. I didn’t stop, swinging again, this time with everything I had. The sheep hesitated, its glowing eyes flickering for the first time. For a split second, it seemed almost… vulnerable.
 
-The man with long hair was manning the counter, and appeared to be in the dry cleaning business. He was wearing a sleeveless jacket with a nameplate that read Adam.
+That’s when I saw it an opening. The door. It was ajar, just a crack, and the outside world seemed to beckon me. Without thinking, I rushed toward it, adrenaline fueling every desperate step.
 
-To my surprise, there was another person seated just a few feet away who looked just like him. They were in fact identical twins.
+The black sheep let out a low, guttural growl, and the shadows surged after me, but I didn’t stop. I dove through the door, feeling the cold air hit my face, the night’s chill wrapping around me like a blanket.
 
-“You saved my life.” I said to Adam.
+I glanced back as I sprinted into the field, the house behind me warping and twisting in the darkness, but the sheep its grin now a twisted, distant memory didn't follow. The village was still far off, but I didn't care.
 
-“Excuse me?” he replied back sounding confused.
+I ran without looking back, my legs burning from the exhaustion, my breath ragged as I pushed myself harder. The village wasn’t too far now, or so I thought, but the night was pressing in around me like a weight, every step making it harder to breathe, harder to stay focused.
 
-“You saved my life when I was involved in a car accident. But that was only a dream” I said to him.
+The cold air from the house still clung to my skin, its oppressive darkness lingering in my mind. I could still feel the presence of that black sheep, the memory of its hollow, glowing eyes following me, even though I knew it wasn’t there anymore.
 
-The brothers glanced awkwardly at each other before breaking into a grin, treating me as if I were a mad person.
+But I couldn’t shake the fear. I had broken Rule 7. I had failed. And I had no idea what that meant for me.
 
-I simply took the telescope from my jacket, and placed it on the counter in front of Adam. I just wanted to see how he would react. And he immediately recognized the device for what it was. He was not laughing anymore, and I now had all his attention.
+I glanced over my shoulder. The field behind me was quiet, eerily still, as though the very air was holding its breath. My heart pounded in my chest as I forced my legs to move faster. The shadows around me seemed to stretch and reach for me, as if the night itself were coming alive, closing in.
 
-“Who are you?” he asked for the first time fully serious.
+Then, just as I thought I was free, the familiar shape of the sheep herd appeared in front of me, standing in a perfect line across the path. Their blank eyes were locked on me. The white wool gleamed eerily in the moonlight, the peaceful grazing now replaced with an unsettling stillness.
 
-“My name is Michael. I used to work as a security guard. I found this lying around in an abandoned building.” I said.
+I froze, my pulse racing. Something was wrong. The air seemed to thicken once more, and the sheep too quiet, too motionless stared into the depths of my soul.
 
-I refused to divulge any further details about myself.
+They weren’t just sheep anymore. They were something else. I could feel the weight of their gaze like a judgment. They knew what I had done. They knew that I had broken the rules.
 
-“How did you find me?” he asked still looking confused.
+Then, one of the sheep took a step forward. Its wool shimmered for a moment, and before my eyes, it began to change, to distort, the once innocent face twisting into something far darker. A human-like smile formed at the edge of its mouth, too wide, too twisted to be real. Its eyes locked with mine, glowing faintly, almost mocking.
 
-“In my dream like I already told you. Now I realize this sounds both stupid and bizarre.”
+I stumbled back, my breath coming in shallow gasps. I could hear the sound of the others shifting around me, their quiet bleats morphing into something more like whispers, voices that I couldn’t quite understand but that felt threatening nonetheless.
 
-“So did you really save my life? No, of course not. I saved my own life from the car wreck, and I saved my cousin’s life as well.”
+"You broke the rules," the transformed sheep whispered, its voice echoing in my mind. "Now there's no going back."
 
-“But there must be a reason why you came in my dream this morning, because I spotted you on your bike only a few hours later. Now I have reached a point in life, where I can longer just ignore incidents like these as mere coincidences.”
+A chill ran down my spine as I turned, my feet moving before I could even think. I ran, but the sheep followed me, their presence hanging over me like a storm cloud. I had to get to the village. I had to make it back, or whatever this was would consume me.
 
-“So I decided to follow after you, and here I am, right now, in front of you, in your own store.”
+As I approached the village, the familiar sights should’ve been a relief, but instead, they only made my skin crawl. The houses stood like silent sentinels, their windows dark and cold.
 
-I then tapped on the telescope with my finger and asked. “So, are you interested?”
+I wanted to tell myself that everything would be fine now that I had survived the worst. But a creeping suspicion gnawed at me. I wasn’t sure if it was the fear of what I had done, breaking the rules, or something else something deeper.
 
-Adam took a deep long breath and finally asked, “Ok Michael. How much do you want for it?”
+As I neared the village square, I saw figures moving in the shadows villagers watching me from doorways and windows. Their eyes weren’t filled with sympathy or relief, but cold, calculating curiosity. They knew. They had to know what I had done.
 
-I said, “30k. In cash and would like it now please”.
+I walked past the well, where a small group of people had gathered. One of them, an older man with a gaunt face, stepped forward. His eyes never left mine.
 
-“Why the urgency?”
+"You broke the rule," he said, his voice barely more than a whisper.
 
-“My wife needs emergency surgery, and I need the 30 grand to make that happen”
+I froze. "What... what are you talking about?"
 
-Adam nodded.
+His smile was slow, like he already knew the answer. "The black sheep. You failed. And now, you must face the consequences."
 
-“Ok. Let’s go test this thing upstairs. But your dog stays here. Don’t worry. My brother will keep an eye on him. You cool with that?” he asked.
+Before I could respond, another villager, a woman this time, stepped into view. Her face was expressionless, but her eyes betrayed a deep, unsettling understanding of what had happened. "You didn't just break the rules, you stepped into the darkness. And now, the darkness has claimed you."
 
-I looked at his brother, and he raised his hand to assure me Buster would be fine. I nodded and followed after Adam to the terrace.
+I tried to back away, but it was too late. The villagers closed in, surrounding me. The fear was suffocating now, the realization that I was never meant to leave the fields alive. They had always known the cost. They were all complicit, all part of the same twisted cycle. And I had just become another piece in it.
 
-I could see Adam was comfortable with handling the telescope. He had obviously used it before. He placed it in front of his eye, and then began to fidget with the controls. He panned it at various office buildings and continued to keep testing it.
+As the villagers closed in, their cold eyes staring at me, I knew that escape was no longer a choice. I had done everything wrong. But then just as I was about to succumb to whatever fate they had planned for me a loud, frantic bleating broke through the silence. My heart raced as I looked up.
 
-He then passed it back to me saying it wasn’t working properly. I took it from him and began testing it myself.
+The sheep.
 
-I looked into the telescope. The green display was working fine; I could zoom in and out. I then cranked it up to level 2. I could now see various people busy at work inside their offices.
+They had come. But these were not the docile animals I had seen before. Their eyes gleamed with an unnatural hunger, their bodies moving in eerie unison as they stampeded toward the village. The ground shook beneath their hooves, the bleating turning into an overwhelming cacophony of terror.
 
-When I kept panning the telescope, Adam suddenly came into my line of vision. The telescope suddenly zoomed in to reveal the insides of his chest, and what I saw made the hair on the back of my neck stand up.
+The villagers froze. The look on their faces shifted, from smug satisfaction to an almost primal fear. They knew what was coming.
 
-There was a little alien residing inside Adam’s body, and he was looking right back at me.
+I watched, helpless, as the first of the sheep reached the outskirts of the village. It rammed into one of the villagers with terrifying force, knocking them to the ground. The others followed, flooding the streets like an unstoppable tide. The villagers tried to scatter, but they were no match for the relentless force of the sheep.
 
-Before I had any time to react, I fell to the floor feeling fully paralyzed. Adam had just tasered me. The only thing I could remember after that was his fist coming in contact with my face, and I lost all consciousness.
+And then, something worse happened. As the sheep tore through the village, they didn’t just attack they absorbed. I saw one villager, screaming, their body being swallowed whole by the flock. The sheep didn’t eat them; they became them. The figure that emerged from the chaos was something… different. Twisted. The villagers weren’t dying they were merging, becoming part of the herd in a horrific new form.
 
-When I finally came around, I realized I was still at the dry cleaners. Buster was busy licking my face and wagging his tail. He was obviously happy to see me finally awake. I looked around the store, and the twins were nowhere in sight. Adam obviously must have carried me downstairs after knocking me out.
+I stumbled back, my pulse pounding in my ears. I had to get out. This was no longer just about survival it was about escaping a nightmare that had no end.
 
-Meanwhile, on the counter I saw the telescope, and next to it were a stack of bills totaling $30K. There was also a note attached to it.
+I turned and ran, not knowing where my legs were taking me, just that I needed to get far away from this madness. As I fled, I could hear the chaos behind me the screams of the villagers, now joined with the relentless bleating of the sheep. The ground seemed to tremble beneath my feet with each thunderous step the herd took. I didn’t look back. I couldn’t. All that mattered was getting out.
 
-It read, “Break your little finger if you get into trouble”.
+The village was fading behind me, swallowed by the flood of twisted sheep and distorted villagers. The last thing I saw was the church, its doors wide open, as if inviting the darkness inside. I pushed myself harder, my chest burning, my legs aching. But I couldn’t stop. I couldn’t let them get me.
 
-I looked at my palm, and noticed a tiny puncture mark in the webbing of my right hand between the ring and the little finger.
+I ran through the fields, my heart racing, the night closing in around me. And then, just as I reached the edge of the woods, I dared to glance over my shoulder one last time.
 
-‘What did they inject into my hand? What did that note even mean? And why did they leave the money on the counter without even taking the telescope?’ I thought to myself.
+What I saw froze me in place.
 
-My head was swimming with many unanswered questions. But I was grateful for the money. I immediately wired it to the hospital, and asked the doctor to get started with the surgery. But first I wanted to check in on Henry. For some inexplicable reason, I began to worry about his safety. I got in my car and started to drive towards his place.
+In the distance, where the village used to be, the now-destroyed villagers twisted and deformed by the sheep were kneeling. Their bodies were bent in unnatural ways, their faces twisted into grotesque expressions of worship. And before them, standing like a dark god amidst the chaos, was the black sheep.
 
-When I parked the car outside his home, Buster immediately began to bark. He could sense something was wrong too. I took out my pistol from the dashboard and ran towards his house. I decided to enter through the backdoor, hoping it would give me some kind of tactical advantage if necessary. I kicked the door open, and entered the house through the kitchen to get to the living room.
+It stood tall, its eyes glowing with an unnatural light. The villagers no, the herd were bowing to it, their bodies contorting as if in reverence. They were part of it now, no longer human, but something far darker.
 
-My heart sank when I looked at Henry’s lifeless body. He was sitting in his favorite chair, killed in the same way as Joe. All that was left of him now, were his skeletal remains. I dropped to my knees, and the tears started flowing down my face.
+The realization hit me like a wave: the cycle had always been the same. The village had never been real. It was all just a twisted game, a sacrifice to the sheep. And now, it was my turn to join them.
 
-Buster started barking loudly again. His face looked really tense and I soon realized why.
+But I was free.
 
-Three large aliens had suddenly come out of hiding, and their eyes were all fixed on me. They were at least 8 feet tall, with large hands and muscular bodies.
-
-The alien in front of me was brandishing a baton kind of weapon in his hand. Every time he swished it in the air, electrical sparks flew from it. Buster suddenly lunged at him to tear into his leg, but he casually managed to kick him away. He flew back 2 feet in the air and yelped in pain.
-
-I then aimed my gun at him to take him out, when another alien whacked me in the head from behind. And I fell to the floor unconscious for the second time in less than 5 hours.
-
-\*\*\*\*\*\*\*\*\*\*
-
-When I regained consciousness, I realized I was seated in a large elliptical hall. A huge workstation was occupying one half of the space. This included a giant display at the center that was throwing up all kinds of data.
-
-On either side of the screen, there were large control panels with switches, buttons, mini displays, knobs and other monitoring instruments. I could see at least 10 aliens hunched over busy at work.
-
-Twenty feet away from them, I could see a large swivel chair at the center that was overlooking the entire operation. It also had somebody seated on it, with their back turned towards me. When I tried to get up, I realized I was confined to a chair. My waist, wrists and legs were all cuffed to it. I looked around for Buster, and found him asleep in a corner.
-
-Before I could call out to him, I heard a voice say, “Hello Michael, Welcome Aboard!”
-
-The person on the swivel chair had turned around to face me. It was the same alien whom I had first spotted while using the telescope. He too was over 8 feet tall with an elongated jawline, and a bulbous head that protruded backwards. He did not have a nose but a triangular slit in its place.
-
-But the most unique feature about him was his eye. He had only one, and it was positioned vertically at the center of his forehead. He looked older than the rest of his crew, and it was clear that he was the one calling the shots around here
-
-“How do you know my name?” I asked him.
-
-He smiled and said “You humans like putting all your details out there in the ether. Right from your government records to social media, everything seems to be just a click away.”
-
-The alien was speaking in his own native tongue, but an AI program in the background was simultaneously translating it into English.
-
-He was wearing a large robe with the logo of a bright sun and an eye at its center. I knew I had seen that logo somewhere before, and then suddenly remembered the telescope.
-
-I softly uttered the word ‘korelo’ under my breath, but he picked it.
-
-“That’s right” he said. “I am Captain Korelo, and the telescope you found belonged to me”
-
-He continued to speak. “I come from the Planet ZX4. The telescope was my gift to the erstwhile President when I visited Earth for the first time in 1969. In fact I have visited earth many times over the decades. Little did I imagine that one day, I would come in possession of it again.”
-
-He pointed his finger at the telescope they recovered from me, which was now sitting on his desk.
-
-“So are you some kind of a diplomat? Are you here representing the government of your own planet?” I asked him.
-
-“No. I am a private contractor. I come here regularly hoping to get a lay of the land. Study your species. Analyse your society, gauge how you people function as a collective unit, and to keep track of the developments being made in science and technology. It is an essential part of my job. So when I do finally get the green signal, I’d like to be prepared.” he said.
-
-“Green signal for what?” I asked.
-
-“To colonise your planet and take over your resources of course!” he replied calmly. I just looked at him in silence.
-
-Then Korelo continued, “You see Michael, even in my part of the world, politics is an inevitable aspect of life. As societies get more advanced, the masses begin to grow a conscience. They become more vocal about individual rights, liberty, the right to livelihood, and those sorts of things. But it’s a conscience of convenience. They are always willing to look the other way, as long as they are not directly accused of being the aggressors.”
-
-“However, the need for new lands and new resources is never going to stop on its own. When you have the ability to terraform any planet to mimic the conditions of your own home planet, it becomes easier to colonise than to have to constantly fix and maintain what is already yours. It also reduces infighting within us, because people can now simply move to newer pastures and start afresh.”
-
-“But somebody has to colonise to make that happen. And the government is unwilling to do the dirty work. So they outsource it to people like me. This gives them plausible deniability, while also enabling me, to make a lot of money in the process. Everybody is happy in end.”
-
-“In fact, the committee of nations from my part of the world had long ago compiled a list, where it was decided to colonise planets in a set order. We extract and utilize the resources of one planet before moving on to the next. Planet Earth has been green lit for colonization now,” he signed off.
-
-“You think you can just troop in here with a few spaceships and take over our land and its people?“ I asked him.
-
-“To assume that there won’t be any pushback from 8 billion plus people, would be a gross underestimation on your part. We might not have you technological superiority, but that doesn’t mean we can’t put up a tough fight. We are not living in caves. We are nuclear capable. If we have to go down, we will take you down with us.“ I added, my tone unwavering.
-
-Captain Korelo let out a soft chuckle.
-
-“It’s been over a week since my arrival on Earth. I have already informed your government of my plans. The ultimatum has been given.”
-
-“But do you see any pushback on the ground?”
-
-“The average guy is still going to work, picking his child up from school and kissing his wife before going to sleep. So, where is this so-called fight back?”
-
-“Do you know why that is?”
-
-“Because they can’t. Every major defence system has already been put under lock and key. The missiles wont fire, the fighter jets can’t fly, the drones can’t take off, and the nuclear bombs won’t detonate.”
-
-“So how will your people retaliate exactly? Are you going to take your machine guns and start firing at the sky?”
-
-“Furthermore, the governments are already running scared. Because they know what happened in Russia was not an accident.”
-
-“The Russian government tried to keep pushing their luck, so I let one of their bombs detonate. It sent a clear message to all the other governments, and I now have their complete cooperation.”
-
-Korelo let the silence linger for a moment, giving his words time to resonate, then spoke again.
-
-“I alone decide what happens to your planet and your people. Neither you, nor your government can do anything about it.”
-
-“In fact, I completely control all your defence systems now. Only the commercial flights are up in the air, and they are also being constantly monitored. This is just so that secrecy can be maintained and to avoid the public from panicking. But even that will stop after tonight”, he added.
-
-“What will happen tonight?”
-
-“Cleansing!!” Korello answered.
-
-“What do you mean?” I asked him.
-
-“When I visited earth during the 90’s, I was invited on a hunting trip by the then Australian Prime Minister. We shot and killed Kangaroos for fun. He said it was important to cull them to keep the population manageable.”
-
-“You see Michael, when you are in my line of work, it becomes necessary to effectively deal with the criticism that comes with it.”
-
-“Wiping out an entire civilization doesn’t work, and it rubs everybody the wrong way. “
-
-“But culling!”
-
-“Now people don’t object to that, even if it makes them a little uncomfortable. In fact they even see it as a necessary evil.”
-
-“So during my expeditions, I allocate a piece of land to the locals and I let them shortlist and pick whatever they think is of value to them. Almost always, most civilizations pick what is most essential to keep societies running. Like engineers, doctors, leaders, teachers, police officers and blue collar workers etc. But they are only allowed to pick a few of each. And then of course, the wild and domestic animals to keep the habitat lively and exotic. “
-
-“And that is what will happen to all you earthlings too. Over the next 24 hours, the population of the human race will drop to 3% of what it is now. Special zones will be earmarked for the survivors. You can herd your donkeys, goats, chickens, birds and insects or whatever else you deem is important there. The list of what or who needs to survive has been left for individual governments to decide. ” he finished off.
-
-“And the governments are all ok with this?” I asked, feeling incredulous.
-
-He nodded. “They don’t have a choice. They are already working on it discreetly without the public knowing.”
-
-“How can you justify this as culling? This is blatant genocide that borders on extermination. You claim things like the right to livelihood matters even in your part of the world, yet you seem completely unfazed about killing billions of people. I don’t understand how you can get away with this, if law and order holds any sway in your society.” I said.
-
-Korelo smirked and said, “Your problem is you see us as equals. We are not. I don’t see it that way, and my own people don’t as well.”
-
-“When you kill kangaroos and call it culling, it is usually because their overpopulation is a strain on the natural resources. But the other reason is their increasing numbers is an inconvenience to YOU! Their high numbers disallow YOU from enjoying the resources to live YOUR life.”
-
-“Similarly a large human population is not only an inconvenience, but also a threat to my own people. If their numbers are high, the humans will constantly feel slighted about losing their own land and will eventually get emboldened enough to do something about it. So when you cull as much as is required, you don’t have these problems. They quickly come to terms with their destiny, and even demonstrate compliance.“ Korelo said.
-
-I still struggled to wrap my head around the casual ease with which he talked about taking so many lives.
-
-“But don’t your own people feel any remorse when they see pictures or videos of dead bodies that run in the billions?”
-
-“There are not going to be any dead bodies.” he replied calmly.
-
-“What do you mean?” I asked him,
-
-”People who don’t make the cut, they will be vaporized. “
-
-I felt the anger rise in me even as I just sat there, with my mouth open unable to speak.
-
-“So is that what you did to the scientists at the base? Vaporise them? “I asked him sarcastically. He simply nodded.
-
-“I also instructed my people to leave the skeletal remains of your security friend, so that it sends a message to your government as well.“ he said.
-
-“So doing the same thing to my cousin Henry, is you sending me a message, is it?” I asked.
-
-“Yes.” he replied in a matter of fact manner.
-
-My shoulders began to droop even as every fibre in my body was vibrating with anger. Then I finally asked him ”What am I doing here Captain? Why am I not dead already?”
-
-  
-[Part3](https://www.reddit.com/r/nosleep/comments/1h7bxrt/i_work_at_a_secret_government_facility_and/)
+I turned my back on the village, and I ran into the darkness of the woods, knowing that the nightmare would never stop chasing me. The sheep had claimed their prize, and I had managed to escape for now.
