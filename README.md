@@ -1,138 +1,205 @@
-# it's lurking in the forest, with fire in its eyes, part 2
-Lane County is where I was born and raised, It's a quant bit of Oregon. It's got Springfield, home of the Simpsons, Euegene, home of the worst drivers in the northwest, and little Fall Creek where the Hicks run free. My family has been here for generations. And in all that time, we've had some wild stories. A crazy hunting trip, a motorcycle accident, even a few pretty nasty arrests. But nobody's would have ever thought that I would be witness to something as awful as the body at FernRidge. 
+# There Was A New Star In The Sky Last Night. Now Everyone Is Acting Strange…
+I woke up this morning with a raging headache. I was out late last night celebrating landing a big account at work, and afterward I’d come straight home and crashed, barely even keeping my eyes open long enough to make it inside my apartment. I took an aspirin, showered, and dressed, watching a YouTube clip from yesterday about the explosion at T Coronae Borealis. Amazing how the explosion of a white dwarf 3,000 light years away could get so much attention here and now. But I guess “new stars” don’t come along every day - more like every eighty years, according to the experts. 
 
-Throughout the next few days, my family and friends asked what I was doing out there, how they were sorry I had to find that poor soul and how they were glad it wasn't me.
-I hadn't been sleeping well since the incident, and I woke up in a cold sweat with the sound of those crows in my ears. After a while, when the story was finally posted in the paper, I learned who the poor soul was. His name was Jeffrey Sotherland, and he had apparently been missing for three days. He went out for an evening run and never came home.
+I left my apartment and saw Ms. Simmons standing in the hallway. *Great.* I usually avoided her; she was a retiree who didn’t have much to do since her kids moved away and always wanted to gossip about the neighbors. Gossip wasn’t really my thing, but she was so lonely that she was hard to say ‘no’ to, so I often ended up trapped listening to her go on about who said what or who went where or who wronged whom. But today, she just looked at me with a weird smile, light glinting off her eyes. Too relieved to look a gift horse in the mouth, I briefly greeted her and jogged to the stairs, thankful for the reprieve. 
 
-The coroner's report said it was a bear attack, but I've never heard of a bear mangling someone so viciously. It seemed like it was done with real unadulterated malice. I tried to get the thoughts out of my head, and I dug deep into the local stories of the Lurker. Why? I don't know. Maybe the thought of finding something kept me busy. Maybe I thought it would help me to think a real monster did that horrible act, or maybe I was just bored.
+I left my building and walked to the subway station. Without paying much attention to anyone around me, I swiped my pass and boarded the train. As I sat in the car, something seemed different than usual. It took a second, but then I realized what it was. The noise I was used to - people chattering on their phones, playing videos, speaking rudely to each other - was gone. It was completely silent. I looked up and realized why - no one on the entire train was talking. Instead, they were all staring. 
 
-A few times, I tried to call Lizz, thinking maybe talking to someone who had an inkling of what I was going through would help. But I couldn't do it, I needed some time to think. As the days dragged on, I found a little newspaper snippets on how there had been a couple dozen Sightings over the past few decades. I asked my older family who had lived in the region about it, and they all scoffed and said it was a bunch of hogwash. However, I did find a story about a woman who claims to have seen the Lurker up close.
+At me. 
 
-With no other leads, I drove to the outskirts of Eugene where the woman lived. I found her little home with a sign out front that said
-“Evaline’s hut of the Occult.”
-I took a deep breath and walked inside. It was a small wicken shop. There were crystals and incense and some strange talismans on the wall. As I walked in, I heard an older woman's voice call out.
-“be out in a minute, I'm just doing some inventory.”
-Her voice sounded rough like she had been smoking her whole life. A few moments later, a short woman in her mid to late forties with silvery hair walked out.
+And they all had the same look on their faces - a warped, disturbed smile, like they were seeing something that wasn’t part of this world. 
 
-“ Hey there Deary, what can Evaline do for you? Are you looking for some new incense to calm some jagged nerves, or maybe a dream catcher to help you rest at night?”
+Freaked out, I hurried off the train, wanting to get away as quickly as possible. But as I walked down the street, I noticed more and more people looking at me the same way. And some of their eyes shone with an unnatural light. I started running, bursting through the door of my office. I’d made it. 
 
-I shook my head softly.
-“no thank you ma’am, I actually had some questions for you.”
+“Hey, Matt. What’s going on? You look like you’ve seen a ghost.”
 
-She looked at me somewhat confused.
-“questions? About what?”
+I looked up and saw Jim, one of my best friends. We’d met here five years ago when we’d both been interns, and we’d been fast friends ever since. If there was anyone I could talk to, it was him. 
 
-Her eyes narrowed.
-“you a fed?”
+“Man, you wouldn’t believe the morning I’ve had! Have you noticed anything weird today?”
 
-“what? No! I'm a…..I'm a…”
-My mind stuttered to find the right words. She gave me an inquisitive look.
+“Weird like what?” 
 
-“spit it out, deary. i ain't gonna bite.”
+“Just… people acting strange, not like themselves.”
 
-I swallowed hard.
-“I'm a Cryptozoologist, and I want to ask you about the Lurker.”
+Jim rubbed his chin in contemplation. “Well, Jenny at the coffee shop put a little heart over the i in my name on my coffee this morning. Does that count as weird?”
 
-Her somewhat joyous expression faltered, and she looked at me intensely.
-“ And why do you want to her about that?”
+I sighed in relief. If he hadn’t seen anything, then everything was probably fine. 
 
-“I'm looking to prove it's existence, I want to know what's in those woods. And I want to know why it's here.”
+“No, I think that just means she has a thing for you. You should ask for her number.”
 
-She rubbed her neck methodically, and she motioned for me to follow her out back. We passed through boxes that smelled like spices and herbs. As we exited to her back porch, she sat down in a rocking chair, motioning for me to sit in a lawn chair just across from her. She pulled out a long cigarette from a box in her coat pocket, and she lit it and began to draw on it. The mounting silence was deafening, and finally, I sighed and said.
+“What?” he responded in surprise. “No way, man. You’re crazy.”
 
-“ The lurker?”
+Ok, man,” I replied. “If you say so. But when the new year comes and you’re still single, don’t say I didn’t try to help.”
 
-“It's bad news, boy!”
-She cut me off quickly.
+Relaxing, I went into the kitchenette to make my morning coffee (I didn’t share Jim’s morning Starbucks habit - I’d rather save the money and retire someday). Afterward I returned to my desk and started working. 
 
-“and you shouldn't go messing with it…”
+Around lunchtime, Jim came over and sat on the corner of my desk like he always did when he wanted to shoot the breeze. 
 
-I took a deep breath and continued.
-“look I just want to know what you know about it. Have you seen it or not?”
+“So…?”
 
-She smirked as she blew out a stream of thin grey smoke.
-“yeah, I've seen it. It's the reason I'm here in this little shack of a house.”
+“Yes?”
 
-I raised my eyebrows in confusion.
-“what do you mean?”
+“What you said about Jenny this morning. Were you just kidding, or..”
 
-“the Lurker is a forest spirit. As far as I can tell, it came with the Danish settlers who founded Junction City.”
+Good Lord. “Dude, if you *really* don’t see it, you’re too blind to do this job. ASK. HER. OUT.”
 
-“that still doesn't answer my question.” 
+He looked toward the ground, clearly nervous and unsure of how to go forward. I was about to give him some tips when I realized something. 
 
-She keeped dragging on the cigarette, the ash slowly falling to the porch.
-“it latches onto someone. Watches them and decides when it's time to take them to the forest, but it needs earth and soil. It needs its forest. Here, just inside the city, I'm safe…”
+The office had gone silent.
 
-“your still not making any sense?” 
+I don’t mean “everyone is focused on their work” silent. I mean “someone cut off the volume on the tv” silent. I looked up, and my coworkers were looking our way.
 
-She sighed loudly, putting the burnt cigarette in the ash and trying next to her.
-“ When I was about twelve years old, my dad was a logger. He went and worked in the trees on the hills all up and down the county. One day, he didn't come home. His foreman told my mom that he went to grab some equipment at the truck and never came back.”
+And they were smiling.
 
-She leaned back in her chair, looking at the skyline.
-“the police searched for days, but the forest is thick. Finally, after a week, they found him, or what was left of him. His body had been torn to pieces. All that was left was mangled bones. The only way they could identify him was his work vest.”
+Without looking at him, I said “Jim, we need to get out of here. Now.”
 
-She placed her hand to her mouth, fighting back tears, I sat there, giving her all the time she needed. She looked back at me, her voice wavering. 
+“Relax, man. We can head out to lunch in a few. I just need to get this last report in for Williamson.”
 
-“later that week, my mother wanted to scatter his ashes at FernRidge lake, he liked to fish there on the weekends. As we scattered the ashes, I looked across the lake and saw this tree moving strangely, and from a crook in its branches, I saw two gleaming eyes like…”
+“No,” I said, starting to worry. They were coming closer. “We need to get out of here. RIGHT. FUCKING. NOW. There’s no time to explain - I need you to trust me on this.”
 
-“Burning coals?”
-I blurted out. She looked at me solemnly and nodded.
+He looked like he wanted to ask a question, but I guess the look of sheer panic on my face persuaded him. 
 
-“I tried to tell my mother, but by the time I did the tree, or whatever it was, was gone. It was never there to begin with. All that was there was a murder of crows, flying deeper into the woods.”
+“OK, man. Whatever you say.”
 
-I recoiled slightly at the memory of the crows returning to me, and she continued not seeming to notice my reaction. 
-“that night, as I went to bed at our little farmhouse, a storm was brewing. The wind was tearing through the trees. I couldn't sleep, and when I looked out the window. I saw a tree that wasn't there before. Right outside my window, I went to inspect it, and as I did, I heard the loud sound of wood cracking and popping like a tree fall. Then…”
+“Great,” I said, standing up and heading for the door. “This way.”
 
-She started to stammer the thought apparently so much to take. She continued her voice with a low whisper coursing with visceral dread.
+I began to walk slowly and calmly toward the door, hoping not to push them into any sudden action. Jim followed along, matching my pace. But I could see some of them moving toward the door, and I knew that soon they’d cut us off and we’d have no way out. 
 
-“ I say the Eyes…. Two burning coals just outside my window, then the sound….the sound was like the sound of a dying Elk…the next thing a knew a tangle of branches was flying through the window, glass flying everywhere and my mother screaming…”
+With no time to think, I acted on instinct. I ran for the door. Although confused, Jim ran to keep up with me, but was looking at me with confusion. 
 
-She faltered again.
+“Why are we runni—”
 
-“what happened next?” I asked, my morbid curiosity getting the better of me.
+“No time! Just trust me - we have to go!”
 
-She sniffed and spoke in a quivering voice.
-“ When I woke up, our house was destroyed, and my mother was able to get us into the cellar. She looked like she had been through hell, we packed what little we had and moved here to my aunt's house. My mother wouldn't talk about that night. She said it was too much to bear. Then, after we had settled in, I saw the eyes again right there…”
+He seemed a bit skeptical, but he kept running. Unfortunately, our coworkers started running, too, and there were more of them. I made it through the door just in time with Jim right behind me. 
 
-She pointed across the street. 
-“It never got any closer than that. It was then I realized that the Cities are safe…safe from whatever that thing is…and I've never left this house since….”
+We ran out onto the street, but there was a mob of smiling figures. They turned toward us as soon as we stepped out, as if some sixth sense had alerted them to our presence. As one, they raised their arms and moved toward us. 
 
-She trailed off her eyes red from fighting the tears. I waited for her to compose herself, she turned to me and in a shaky voice she said.
-“ Quit while you are ahead kid, this thing is an animal, and we are encroaching on its turf.”
+“What the hell is happening?” Jim asked, confused and panicking. 
 
-I looked at her softly and said
-“ Thank you for sharing, but I think the world deserves to know what's out there.” 
-I motioned to the hills and forest of the skyline.
+“Keep running!” I scream-whispered back. 
 
-She shook her head slowly.
-“ Nobody needs to know what's out there. It just wants to be left alone. Just stop pushing…or something bad will happen to you.”
+We rounded a corner and ducked into an alleyway. We had lost them. I looked at Jim - he was a combination of scared shitless and completely befuddled. 
 
-I smiled at her and said calmly.
-“thanks, but I'm willing to take the risk.”
+“What the hell was that?” he whispered. 
 
-She shook her head softly and sighed.
-“well I can't stop you, but take this.”
-She reached up behind her neck and pulled up a small pendant, it was a strange silver “V” shape with two small lines pointing down at the bottom and in the middle was a red stone set in the shape of an eye.
+“That’s what I was freaked out about when I got to work this morning.  All day, I’ve been seeing people with that freaky smile chasing after me. And I could swear that some of their eyes were glowing. I don’t know what it means. But I know I can’t let them catch me.”
 
-“What is it? I asked inquisitively.”
+“Do we know what’s wrong with them?”
 
-She smiled at me and said.
-“ It's my Mala’dreug, my Evil Eye…it's to ward off foul spirits…I have two.. and I would feel better knowing you have one.”
+“No idea,” I replied. “I’m really not anxious to go up to one and ask.”
 
-I took the pendant from her and laced it around my neck.
-“ Thank you, Evaline.”
+He nodded at that and leaned back, thinking silently. But the silence didn’t last. We heard another person running down the street away from them. He tried to cross the street and jump the fence, but the crowd caught him. I thought about going to help him, but there were at least thirty of them. What could I do?
 
-She shook her head.
-“don't thank me, just promise me that if you find that thing. You’ll get as far away as possible.” 
+Before I knew it, the crowd was laying him down on the ground. They held down his arms and legs so he couldn’t move, and then one of them held his head, forcing him to face upward, while another pried his eyes open. 
 
-I nodded and got up to leave.
+I’ll never forget his screams.
 
-“Wait!” she spouted abruptly.
+After a few minutes, he stopped screaming. Then the crowd backed away and he stood up. He was the same as before, but not. He looked calm, sure of himself. And on his face was the same smile as the others, the smile that said he knew everything and had no cares in the world. 
 
-“I have one more thing for you.” She shuffled back into the house and came out with a Manila envelope. She handed to me and said softly.
-“my mother drew that the day after we moved in….”
+I looked behind me and Jim wore a look of abject terror. 
 
-I opened the envelope and gasped at the sight of the drawing. It was a crude depiction of what looked like a tree with its trunk, forming the body of an Elk. with huge pale sunk in eyes that seemed to burn right to my core.
-“ I will take good care of this. Thanks again.”
+“What…?  What?”
 
-She nodded somberly and motioned me to the door. As I left her house and slowly made my way to my car, I had the strange feeling that I was being watched. I looked up at the phone wires above my head and saw a large crow sitting there watching me intently. I shuddered and walked a little faster, glancing up at it every few steps, its eyes never leaving me. As I got into my car and shut the door, it flew down and suddenly landed on my hood. Its black eyes bored a hole into my soul. And I swear for a moment, its eyes flashed orange. It squawked angrily and flew off my car towards the hills. I sat there pondering why I felt so on edge. Then it hit me, the birds eyes flashed orange, like two burning coals.
+“That’s what I was trying to ask you about this morning. When I asked if you’d seen anyone acting strange? People are walking around like zombies with these weird smiles on their faces. Some of them chased me this morning before I got to the office.”
+
+“But what would have caused any of this?” 
+
+“I’m not sure. The news was talking about some weird explosion in space that was visible from here last night - I think this was one of the only places it could be seen clearly. I don’t know, that sounds crazy to me, but I can’t think of anything else. Can you?”
+
+Jim was silent. 
+
+“And now that I think about it, I think whatever it is got my neighbor, too. She was acting weird this morning.”
+
+I could see him trying to absorb these new developments. He took several deep breaths to get a hold of himself. 
+
+“OK, say I believe… any of this. What do we do?”
+
+“Well,” I said, thinking it through. “We can either get some weapons and go on the attack, find a place to hole up and hope it blows over, or find a car and get out of dodge.”
+
+“Do we have any weapons?” Jim asked. 
+
+“No,” I replied. “And there are way more of them than there are of us.”
+
+“Do we have a car?”
+
+“Not that I can get to without going back through them. I don’t think that’s such a good idea.”
+
+“Do we know if it’s actually going to blow over?”
+
+“I really hope so, but we don’t know anything for certain.” I replied. 
+
+“Then I vote for option 2,” he said with determination.
+
+With that, we started looking for a place to hide out. We moved quickly and quietly, trying not to draw their attention. We dismissed several places - too many points of entry, doors or windows we couldn’t secure, etc. At one point, we hopped over a fence and Jim landed flat on his back. I was worried, but after a couple of minutes he got up and we kept moving. Eventually we got lucky and found an abandoned automotive shop that looked like it went out of business with a lot of the inventory still here. We locked the doors and windows, found the best vantage point to make sure no one snuck up on us, and holed up for the duration. 
+
+Later that night, I woke up to a strange sound. I didn’t know what it was, but then I looked over. Jim was standing up facing in my direction, and in the moonlight I could just make out his face. 
+
+He was smiling. 
+
+*Crap.*
+
+“Jim, man, are you ok?”
+
+He didn’t say anything, just started creeping toward me. 
+
+*Double crap.*
+
+“Jim, listen to me. Whatever is going on, I really need you to fight it, ok buddy? You’re still you.”
+
+Nothing. 
+
+“Were friends, right? Remember when we met as interns? When we both were completely overwhelmed after that first intern meeting and went out that night and got drunk together?”
+
+He said nothing, but the creepy smile remained. 
+
+It had definitely gotten him. But when? We’d been together all da— Oh. When he’d tripped before, he’d landed on his back. Facing the sky. *Dammit.*
+
+I looked around the room, looking for anything I could use as a weapon to defend myself. 
+
+Nothing. 
+
+He was getting closer. I tried talking to him again. 
+
+“Jim, stay back. If you keep coming, this is going to go badly.”
+
+If anything, the smile widened. He kept coming. 
+
+I looked around. The exit was about five yards past him - if I could get to it, I could make a break for it and probably outrun him. I didn’t know who else was out there, but at this point I’d take my chances. 
+
+I ran toward him and made a last-minute move to go around him, but as I was almost past I felt a pain in my stomach and hit the ground. I was laying on the ground, dazed but knowing I needed to get up. And then I felt hands encircle my neck and squeeze. 
+
+I tried to fight him off, but he seemed to have an unnatural strength and I couldn’t break his grip. His eyes began to take in a strange glow, and then he stopped squeezing, grabbed me by my legs, and started dragging me. 
+
+Towards the door to the outside. Towards the sky. 
+
+I knew if he got me out there, I’d be done for. Looking for any chance, I saw a forgotten wrench laying on the ground. If I could only reach it…
+
+My fingers dragged across it and I lifted it and hit the thing-that-used-to-be-Jim in the back as hard as I could. 
+
+He didn’t even flinch. 
+
+What the hell *was* he?
+
+He kept moving, so I hit him again, this time in the arms. His grip loosened and I pulled free. 
+
+I stood to face him. He looked back at me, completely calm. The man I knew was gone - this thing looked at me with an unnatural expression on his face. Manic. Demented. Evil. 
+
+Suddenly he jumped at me. I couldn’t believe how fast he moved. But I was ready. I waited until he was almost at me and then slid to the side and swung at his head as hard as I could. 
+
+There was a crunch and he went down. Taking no chances, I swung again. And again. 
+
+Finally, he stopped moving. I looked down and saw his face pointed up at me. 
+
+The sight of his eyes faintly glowing, face twisted into a macabre grin as blood dripped down his skull, will stay with me until the day I die. 
+
+Afterward, I knew I couldn’t stay there. I don’t know when more would be coming, I didn’t have supplies, and I wasn’t willing to stay with the body. I sat there, gathering my strength, and went outside after dark. After a mile, I lucked on an abandoned truck with the keys still in it. I drove as far as I could, stopping for gas and food when it seemed clear, and ended up in a small town on the other side of the country. People here are quiet, they keep to themselves, and they don’t look at the sky. 
+
+Since I got here, I’ve been looking on the internet, and I don’t see any reports of anything like this happening elsewhere. I don’t even see any info on it happening in my town. I’ve written everything down so I know it was real. I don’t understand how this happened. I don’t know why it only happened in my old town - there was nothing special about it, it was just like any other. And I don’t know if it’s over. 
+
+But I know three things. I’ll never look at the sky the same way again. If you’re smart, neither will you. 
+
+And if you hear of something strange in the heavens, or if the people you thought you knew start acting strangely…
+
+*RUN.*
+
