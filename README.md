@@ -1,281 +1,59 @@
-# Payback 
-I was just returning back from another interview. It has been the third one this month.
+# I Went for a Drive to Clear My Head, But Something Wasn’t Right
 
-I failed to make the cut yet again.
+Ever since I got my full license and could drive on my own, I’d head out late at night to clear my head or just unwind. I’d sneak out of my room, careful not to make any noise, grab my coat, boots, phone, and wallet, and then drive off to some back roads. I’d usually be gone for just one or two hours—enough time to drive somewhere, park, and unwind before heading back. I kept this to myself. During the drive, I’d maybe see one or two other cars, and I almost never encountered anyone when I got to my destination. These drives usually happened around 2 or 3 a.m., when most people weren’t out, and that’s exactly what I wanted.
 
-Life hasn’t been easy for an ex-soldier with the economic downturn currently underway.
+Anyways, I’m writing this after getting home from one of those drives, and I’m hoping someone here can help me make sense of it—or at least tell me if I’m going crazy.
 
-The COVID pandemic had also wiped out all my savings.
 
-So I was open to securing any job that would help me pay my bills.
+It was the same as any other night. I got out of bed, threw on some clothes, grabbed my coat, boots, keys, wallet, and phone—just like always—and stepped out into the snowy night. I walked over to my car, unlocked it, started the engine, and waited for it to warm up before heading out.
 
-I hadn’t eaten all day and just passed by a McDonalds. It was already crowded and I thought to myself, ‘Let me just order a takeout’.
+While I waited, I rubbed my hands together, trying to keep warm. I always felt a little vulnerable, just sitting there in the car, waiting for it to heat up. So I kept glancing around, checking to see if my parents had noticed or if anyone was walking around, even though it was late. But like every other night, there was no one around. No one to see me start up the car. And once I pulled out of the driveway, it was the same—still no one around.
 
-I could see a few vehicles waiting in front of me.
+I drove out of the neighborhood and onto the main road. After a while, I turned off and made my way down the back roads. The pavement grew more uneven, the houses spaced farther apart, until they were almost entirely replaced by forest. I lived in the countryside, so it didn’t take long to get away from society.
 
-There was a guy in his motorcycle honking incessantly, demanding the customer in front to keep it moving.
+I was driving down a road I’d been on plenty of times before. As I approached a bend, I noticed what looked like another set of headlights through the trees—nothing unusual, I’d see cars every now and then. But when I rounded the bend, there was no one there. There weren’t any turnoffs on the road, so I figured it must’ve been my headlights reflecting off something in the woods.
 
-He was a tall man with long hair and clearly looked edgy and irritable. Both his arms were heavily tattooed. He stepped down from his bike, and started to walk towards the car in front of him.
+But as I kept driving, the feeling of unease started to creep in. It felt like I kept seeing more headlights—vanishing in and out of sight, like they were just out of reach. I told myself it was nothing, just a trick of the light, or maybe cars parked off to the side, turning off their headlights before I could spot them. It was pretty dark out, and unless something was right in front of me or had its own light, it was hard to see anything.
 
-I couldn’t make out what he way saying but I could see the conversation was getting heated.
+A few miles later, I parked at my usual spot. I sat there for a minute, trying to shake off the feeling. It was just weird reflections. Nothing to worry about.
 
-I got down from my car and walked towards the biker guy.
 
-As I got closer, the biker banged on the hood of the car and was pointing his finger at the man threateningly.
+I sat in the car for a moment, trying to shake off the unease. I’d been out here enough times to know that in the silent darkness, your mind can play tricks on you—something about trying to stimulate itself when there’s nothing else to focus on. Still, something about tonight felt different. The headlights seemed too real to be just tricks, but they had to be. I couldn’t think of any logical reason for what I was seeing.
 
-The guy in the car was looking a little alarmed. He had a young boy seated next to him.
+After a few minutes, I decided to get out. The cold air hit me as I opened the door, biting at my skin. The silence was suffocating, and I immediately regretted leaving the warmth of the car. The snow crunched under my boots as I paced around, trying to shake off the feeling that I wasn’t alone. Tonight felt different; I’d never felt this uneasy before. I laughed a little at myself, trying to brush it off. There was nothing around—just trees, snow, and the quiet whisper of the wind.
 
-The woman working at the driveway counter appealed to the biker to maintain his cool. But he would hear none of it.
+I looked back at the car, my thoughts lingering on the road and those headlights. My eyes automatically scanned the trees around me, expecting to see some movement. But there was nothing. No cars, no lights, just the same endless dark. After taking a few deep breaths of the cool night air, I went back to the car, planning to head home.
 
-She then proceeded to call the police and this made the biker more irate. He snatched the receiver from her and hit her face with it. She fell backwards and started bleeding from the nose.
+I got back into the driver’s seat and checked all my mirrors. In the rearview, there was a set of unmistakable headlights. They had to be real; there was nothing else. I stared at them, not taking my eyes off the reflection as they grew closer. Eventually, the car passed by me. I glanced over at it as it went by—a blue truck, a middle-aged man wearing a high-vis jacket 
 
-The biker then proceeded to turn his gaze towards the man in the car. He opened the door and dragged the guy outside.
+As he passed, he briefly looked in my direction, and something about his gaze felt off. I can’t quite describe it, but if you’ve ever seen those uncanny valley videos online, you’ll know what I mean. He looked human, but there was something about him that made him feel not human.
 
-He drew his hand back to throw a punch at him.
+I couldn’t ignore it anymore—the vanishing headlights, the constant unease, and now this guy in the truck. I put my car in drive and started heading home, but it felt like I was being followed. I saw more headlights ahead, which usually brought me a sense of relief on most nights, but tonight, they only scared me. Each time I got close enough, they would vanish. I glanced in my mirrors, and there they were again—more lights. With each pair of headlights I saw, my panic grew.
 
-I caught his arm from behind and kicked him hard in the shins. He yelped in pain and let go of the other man.
+Eventually, my dashboard lights turned off, and my headlights dimmed before shutting off completely. My battery had died. I managed to pull over to the side of the road, but there I was, alone in the middle of the woods, with my car dead, and my anxiety spiraling out of control. I couldn’t shake the feeling that something was wrong, and my paranoia only grew with the silence surrounding me.
+ 
+I zipped up my coat, put on my gloves and hat, and looked under the hood, using my phone’s flashlight to see. But I knew it was hopeless—I knew nothing about cars. The most I could do was fix a flat tire, and recharging a battery was out of my league. I closed the hood and checked for service, and as expected, no bars.
 
-He then turned back angrily to take a look at me. He was wearing a black jacket with the name Kenny embossed in front.
+I stood outside my car, now hoping to see headlights. I saw a few, but like before, they appeared and then vanished. This happened a few times, and then I noticed it—the silence. It was too quiet. It was always quiet out here, but there was usually something—birds, owls, something scurrying in the brush. But tonight, nothing. It was dead quiet. Not even the wind was making noise. No wildlife sounds. The leaves swayed, but the forest was eerily still.
 
-I said, “Listen Kenny. I have had a really bad day. So you either stop this madness or I am going to break your bones.”
+It wasn’t until I saw headlights again that the silence was broken. I could tell these lights were different because they were accompanied by the hum of an engine. I got up and waved my arms, and the truck stopped. A big guy stepped out. I explained my situation, saying I thought my battery had died. He popped the hood, using his phone to illuminate it, and said, “Yeah, looks that way, bud. I’ve got some jumper cables in my truck. I can fix you up, and you’ll be on your way.”
 
-He snarled and threw a punch at me with all his might. I swerved to the right and ducked just in time, causing him to miss completely.
+I thanked him profusely. Not only had this man stopped to help, but he didn’t seem like some creature, like the guy in the other truck. After a bit, he had my battery charged up with the jumper cables—whatever those were—and I didn’t really understand the mechanics, but I knew my car was fixed, and I could finally go home.
 
-Next, he whipped out a switch blade from his pocket and lunged towards me with it. I side stepped him and counterattacked with a punch to his plexus. He went down on one knee.
+ As he finished up, I thanked him again, and he gave me a nod before getting back into his truck. As he started the engine and began to pull away, he glanced over at me one last time. His eyes lingered a little too long, just a bit too steady. Then, as if realizing he was staring, he quickly turned his gaze back to the road. But it wasn’t the look itself—it was the way he moved. It felt… off. There was something deliberate about it, like he knew more than he was letting on.
 
-I caught hold of his knife arm and ordered him to drop it.
+Before he drove off completely, he called out from the window, “Take care, Aiden. Stay safe out here, alright?”
 
-“Drop the knife kenny!! This is your last warning”, I repeated.
+The words were casual, but the use of my name—how did he know my name? I hadn’t told him, and I sure hadn’t seen him before. It wasn’t anything overt, nothing that would make anyone suspect anything too strange at first. But something in the way he said it, like he had no reason to know it but did anyway—it sent a chill down my spine.
 
-He started to fidget with his other arm around his shoe. I realized he had another weapon hidden in his sock.
+As his headlights disappeared into the dark, I stood there frozen for a few moments, trying to make sense of it. The silence seemed thicker now, the shadows longer. I couldn’t shake the feeling that I wasn’t alone, that I was still being watched.
 
-So before he could attempt anything else, I twisted his forearm and landed a crushing blow to his elbow. It snapped into two and he lay on the floor yelping in pain.
+But I drove home, and this time, no headlights appeared. No cars. The night was completely silent, but sometimes, I thought I heard whispers from the forest, like it knew I was noticing things I shouldn’t. The stillness. The guy in the truck. The man calling my name.
 
-By this point, other people came forward to intervene and help with the situation.
+As I drove, the whispers seemed to grow louder. They were incoherent, but they felt… angry. I could barely take it, the weight of the tension pressing down on me. But then, just as suddenly as it had started, it stopped.
 
-As Kenny was being led away by the police, he kept staring at me with madness in his eyes.
+I approached the highway again, and the familiar sight of houses began to reappear. The entrance to my neighborhood loomed in the distance, a welcome sight.
 
-“I am coming back for you. This is going to be the biggest regret of your life”, he yelled.
+I parked my car, went inside, and came straight to my room. It’s 3 AM now, and I still haven’t been able to sleep. Every time I hear a creak in the house or something outside, I flinch. I don’t know if what I saw on those roads was real, or if that man really did have something wrong with his face. Did I tell the other guy my name? What were the whispers? Can someone please help me understand what happened? Is there any explanation for any of this?
 
-I didn’t care and started going back to my car.
-
-Then the man who was threatened by Kenny came forward and shook my hand.
-
-“Hi. I am Rupert. That is my son Henry”, he said.
-
-I waved my hand at the boy and he waved back.
-
-“I would like to thank you for what you did for me back there”, he said.
-
-“You not only helped me maintain my dignity, but also helped me save face in front of my son”, he continued.
-
-“This means a lot to me as a dad” he said.
-
-I nodded in acknowledgement not sure what I was to add to the conversation.
-
-He then reluctantly asked,” Is there anything I can do to repay the favour? Please feel free to ask . Anything. I would be most grateful.”
-
-I thought for a moment. I could see the man was wealthy.
-
-“If it’s not too much of an ask, I would appreciate a job if available. If you feel that is difficult, no problem. Forget I asked. No worries.” I said.
-
-He smiled back at me warmly. He reached into his pocket and handed me a card.
-
-“Please come to my office tomorrow. We can talk” he signed off.
-
-From that moment on, I became the personal bodyguard and chaperone of his 8 year old son Henry. We immediately hit it off and became pals. I looked after all his son’s traveling arrangements.
-
-We would also go to McDonalds every week for his favourite Burger and fries. I later learnt that his father was a very wealthy man who made most of his money during the dot com bubble.
-
-I also became friends with the female employee at the driveway counter who had earlier been attacked by that biker punk Kenny.
-
-Her name was Stella and it didn’t take very long for the two of us to start dating.
-
-With a fulfilling job and a loving girlfriend by my side, my life was finally back on track. I couldn’t be happier.
-
-And then one day - it all came crashing.
-
-Henry and I as usual visited the McDonalds joint and I was surprised to see Stella missing at the counter.
-
-I asked the staff about her and they said she hadn’t turned up today.
-
-I thought that was weird. She had stayed over at my place and I saw her leave for work in the morning.
-
-I tried calling her number but it was unreachable.
-
-I dropped Henry at home and headed towards Stella’s apartment.
-
-She had given me a spare key and I opened the door with it. Everything was in its place.
-
-I tried her number again. It remained not reachable.
-
-I decided to go back to my apartment to check if she might be there.
-
-When I reached the door, I could see the lock had been smashed. The door was left slightly open.
-
-I took out my side arm and slowly entered the apartment.
-
-I could see a life size figure of Ronald McDonald the clown sitting on my sofa.
-
-The famous mascot was sitting leaning back against the cushion with one arm resting on the backrest. Just like how he likes to sit on benches outside McDonald outlets all across the world.
-
-I was a little taken aback, but quickly switched on the lights to take a closer look.
-
-As I moved closer, my knees buckled under my own weight.
-
-It was Stella. She was the one who was dressed as the clown.
-
-There were injury marks around her neck. She had been strangled to death.
-
-I managed to call the cops while still reeling from the shock.
-
-I also noticed her right hand which was resting on her thigh, was close fisted. When I pried it open, i found a crumpled piece of paper inside.
-
-It read -
-
-“She was really begging me for mercy.
-
-Where was soldier boy when she needed him huh?
-
-Boo Hoo….I’m Lovin It!!
-
-I’m Lovin it!!
-
-Signed Yours Kenny”
-
-I could feel a surge of anger envelop me. And yet I lay there helpless.
-
-Had it not been for the surveillance cameras at the entrance of my home, I would have been in prison by now.
-
-The police could clearly see Kenny carrying Stella’s body and breaking into my apartment.
-
-They put out a nationwide notice for Kenny and he’s been on the run ever since.
-
-Even after 2 months following Stella’s death, the police were not any closer to catching the culprit.
-
-But I did apprise Henry’s dad of the situation. His life was also at risk after considering what happened to my girlfriend.
-
-But our collective worry was for Henry. We didn’t want to see him suffer for no fault of his.
-
-So I started training Henry to take his own safety seriously. I devised multiple safeguards to keep him protected while being outdoors. Always ensured that I was personally there to drop and pick him up from school.
-
-My boss appreciated all that I was doing for his son. He knew I had taken Stella’s death hard.
-
-He was a generous and compassionate man and I liked working for him.
-
-Although he did notice I wasn’t my usual cheery self anymore.
-
-One day when I was waiting at the office, he tossed the keys of his new car at me.
-
-“This should perk you up. Take her for a spin” he said.
-
-“And also go pick Henry up from school”, he finished as he left for a meeting.
-
-I got down to the parking lot, and there she was … waiting. The new Bugatti Chiron.
-
-I opened the door and took the driver’s seat. The fresh smell of the leather upholstery was already lifting my spirits.
-
-‘Boss was right! I am perking up’, I thought to myself.
-
-I drove around the block and stopped by McDonalds to pick up the usual order for me and Henry.
-
-I felt a tinge of sadness when I could no longer see Stella at the counter.
-
-Anyways, I picked the order and started my way towards school.
-
-As I went past the restaurant, I saw an old jeep parked by the side of the road. I didn’t think much of it at that moment.
-
-When I reached Henry’s school, I parked the car a few feet away from the entrance. A couple of minutes later, I noticed the same jeep I saw at McDonalds go past me and park 20 mts in front.
-
-I would have never given it a second glance had I not spotted it at the restaurant.
-
-The jeep had 3 passengers. They looked like bikers with tattoos, beard and long hair.
-
-And then there was Kenny standing behind a tree to avoid detection. But I spotted him.
-
-He was gesturing towards them to get ready. I could see his Harley parked just a few feet away.
-
-They were planning some kind of ambush.
-
-The school bell rang and the children were already out on the streets.
-
-I could see Henry at a distance in the courtyard. He was slowly making his way towards the gate.
-
-I immediately called him on the phone and told him to go to the Principals office and stay there. I made it clear under no circumstances was he to venture out until I gave him the all clear. He understood.
-
-He was safe as long as he was within the school’s premises.
-
-The next thing to do was move to another location. The children were already pouring onto the streets, and the last thing I wanted was to see a child getting hurt.
-
-I started the car and went past the jeep before taking the next turn. I kept driving.
-
-Few moments later, the jeep caught up with me and the driver violently swerved towards the left causing me to go off course. My car came to halt.
-
-The guys quickly alighted from the jeep and they were all armed to the teeth.
-
-Kenny came in his motorcycle and stopped his bike a few feet ahead of me. He took out his shotgun and had it aimed straight at my chest.
-
-The firing started before I even had the time to react.
-
-I instinctively ducked for cover with my eyes closed.
-
-But in my heart, I knew my time was up!!
-
-As the seconds went by, even with all those bullets being sent my way - my body felt strangely light.
-
-‘Am I in heaven already?’ I thought to myself.
-
-I slowly opened my eyes and tilted my head upwards to take a peak.
-
-And I realized I was sitting in an armored bullet proof car.
-
-The entire biker gang were mad with rage, doing everything possible to penetrate that thick armor plate.
-
-Kenny was barking orders at his gang to continue the onslaught. He then pointed his finger at me and yelled, “I am coming for you.”
-
-I looked down at the seat next to mine and saw the takeout I had ordered.
-
-Just to piss him off even further, I took out my Big Mac and slowly took a big bite.
-
-I sat there in gastronomic bliss savoring my burger, while being under a continuous hail of bullets.
-
-The firing suddenly stopped. Kenny the psycho was livid as hell - to see me have a good time.
-
-I looked him in the eye while I took a sip of my favorite milkshake.
-
-And then, continued to chomp on my burger.
-
-He looked a little crestfallen at how his plan was misfiring and then frantically gestured his troops to keep at it. The firing started again.
-
-But it didn’t last long. They eventually all ran out of ammo and his buddies began to flee the scene, as we could hear sirens at a distance.
-
-The attack had taken a toll on the car. But it managed to withstand all that damage. All that firing.
-
-A life saver!
-
-I looked at Kenny again. Only one thought was running through my head now.
-
-‘My Turn’.
-
-I switched on the ignition and rammed the car straight into Kenny. He hit the bonnet hard while the car continued to race forward.
-
-He was clinging on to dear life with his outstretched hands desperately clutching at the sides of the car.
-
-Next in the demolition line, was his prized Harley Davidson.
-
-I hit it full steam and watched it smash to smithereens - with parts scattering all across the road.
-
-Then, I hit the brakes and Kenny was sent flying 10 feet forward.
-
-After impact, he slowly staggered to his feet - all bloody and bruised.
-
-His face was swollen like an apple.
-
-He was pleading towards me with folded hands to show him mercy.
-
-‘This is for Stella. And She’s lovin it’, I said out loud.
-
-I hit the accelerator again.
-
-  
-[X](https://www.reddit.com/user/Federal_Machine692/)
+Small update: I was about to post this when I noticed a truck parked outside my house, across the road. I’m pretty sure it’s the blue truck from the woods.
