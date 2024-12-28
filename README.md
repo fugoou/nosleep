@@ -1,267 +1,206 @@
-# I work at the only grocery store in town and somethings off. (Part 2)
-Miss Williams would come into the store every week to get her groceries. She was the kind of old lady figure that no matter your background she always reminded you of your grandmother. She was one of the few residents born and raised in town who didn’t move away whenever they got the chance. 
+# Rockin' the Dad Bod [Part 4]
+\[[Part 1](https://www.reddit.com/r/nosleep/comments/1hg8t0b/rockin_the_dad_bod_part_1/)\] \[[Part 2](https://www.reddit.com/r/nosleep/comments/1hhhiwy/rockin_the_dad_bad_part_2/)\] \[[Part 3](https://www.reddit.com/r/nosleep/comments/1hi8rmj/rockin_the_dad_bod_part_3/)\]
 
-She would always come into the store with her curly white hair, floral dresses that looked more like pajamas and her tiny weiner dog named Ruffles would always come sniff every staff member to make sure they were still doing their jobs properly. (Technically dogs aren't allowed in the store but no one was allowed to say no to Ruffles.) 
+The E6 Travel Mart looked almost the same as I left it. Castle still lay on the floor in a fetal position. He had stopped his all-out crying, but still sniffled a little when he inhaled. The pile of Pop-Tarts and Funions was still on the floor where Kevin dropped them. *Kevin* – where was he?
 
-She was one of the most loved people in the community and was a celebrity of the town. Which made it all the more heartbreaking and confusing when a group of kids found her lifeless body in the alley behind the chinese restaurant. 
+“Castle, what’s happened to you?” Where ten seconds earlier, the Parson was full of the confidence of the righteous, he now sounded shaken.
 
-This type of crime is something I never like to talk or hear about. Like I mentioned serial killer and true crime stuff has always freaked me out but since it’s someone I know it’s impossible to ignore. 
+I followed the Parson into the potato chip aisle, where Castle still lay. The fallen trucker extended his arm, then slowly extended a shaky index finger. “*She* took me out,” he whimpered.
 
-The vague description by the radio news anchor left me with a pit in my stomach I cannot stand. The absence of graphic description left my mind to swirl with what possible awful fate she must have endured in her final moments.
+The Parson followed the trucker’s accusatory finger and turned to glare at me. “Ah, I see,” he said calmly, “that our little Pauline is a SINNER!” I flinched when he screamed the word *sinner*.
 
-“Do you even care?!” I finally heard Chris bark at me after the ringing in my ears subsided. 
+Now the Parson extended his own accusatory finger at me. “Sinner! You took out Castle. You must atone!”
 
-“Umm Mis…Miss Williams. She’s uhh she’s” I said, stuttering every word trying my best to make any sort of sense. 
+“Sure?”
 
-“What on earth are you talking about?” Chris responded, flailing his arms in exasperation. 
+“You must tell me where I can find the King!”
 
-Seems in his power trip fueled tirade he completely missed the shocking news we all just heard. I quickly walked towards the customer service desk by the registers and turned up the volume on the radio. 
+“I don’t know ….” I began to profess my true ignorance about where Kevin had gone. But, as I started telling the Parson that I didn’t know where Kevin was, I suddenly *did* know where he was because, as I spoke, I saw Kevin hiding in the drinks fridge behind the Parson at the end of the aisle. My truthful statement became a lie before I had even finished my sentence. “… where he is. Like. At. All.”
 
-“…Police are still not saying for certain but there is suspicion that the grizzly murder of 78 year old Kathy Williams may have some connection to the string of killings the area last endured only a year ago. This is Lisa Martel CHQ277 Radio News Netw…” I turned off the radio and silence fell over the store so palpable that I couldn’t even hear the shitty pop song over the loudspeakers anymore.
+“You must be struck down!” The Parson lifted his crooked Bible over his head. He took a step backwards and turned to face straight up-and-down the potato-chip aisle. The Parson’s movements were confusing - It was a strange way to smite someone, stepping backwards and turning to place them in front and to the side.
 
-The silence only broke with the sound of Holly letting go and bursting into hysterical tears. The news of Miss Williams was the final gust of wind that knocked over the paper thin wall she was trying to keep up to protect herself. 
+It clicked. *Chess*. This is all some kind of demented game of chess. Keven, the Parson said, is the king. Castle is a rook. When Castle confronted Kevin, right here in this same potato chip aisle at the E6, he made sure he stood directly in front of Kevin to threaten him. I’m a pawn. I struck diagonally when I punched Castle. Castle’s pathetic collapse when I hit him wasn’t from any super-strength I have. It’s just how the game goes – if a pawn attacks you diagonally, you’re out.
 
-She quickly ran to the back whipping away her tears. 
+I thought of the Parson’s bolo tie doo-dad and the diagonal cross piece on his church’s cross – he’s a bishop. He can only attack diagonally.
 
-I looked over at Chris and once he regained his focus we made eye contact and when I gave him a sympathetic look he nodded over to the direction Holly ran off too and I went to see if I could provide any sort of comfort. 
+“Sinner!” he yelled again. I looked at him dumbly, my brain still finding the hidden order in my fever dream of an evening. A few seconds passed. “I will strike you down,” he said again. I looked up at his hand, brandishing the book with the diagonal cross. “You have sinned!” Why wasn’t he hitting me?
 
-As I fast walked towards the break room I saw Rob back on the floor again. He was walking down the dog food alse with a walk that boarded on skipping. I almost felt bad for a moment knowing he must be ignorant to death of Miss Williams and the terrifying rant on the walls of our bathroom.
+*Because it’s my turn!*
 
-Once I got to the break room I saw Holly facing away from me packing her things into a backpack. 
+I stepped forward so I was shoulder-to-shoulder with him. He stepped backwards, putting me in his diagonal, again.
 
-“Hey, are you okay?” I ask pensively.
+The Parson’s step backwards put him only a foot away from the shop’s refrigerator wall; a foot away from the glass door to the fridge that Kevin had awkwardly crammed himself into. I smiled.
 
-“I just need to leave, I can’t be here right now” She said, never breaking her thousand mile stare into her open backpack.
+Kevin opened the refrigerator door and jumped into the aisle. The Parson spun around. “The king-” he sputtered.
 
-I was overcome with a fear I could quite describe. As if by walking out the door of the store I would be letting her walk into the den of a starving lion. 
+Kevin quietly said “I take you,” and backhanded the Parson’s hat off his head.
 
-I have grown up in this town my whole life, I know every pothole on every street and almost every address and who lives there by heart. But for some reason the town seemed different, as if the once welcoming residents and friendly neighborhood had been replaced with a traumatized populace ready to attack any stranger.
+The Parson collapsed onto his knees and held his holy book high above his head. “Lord,” he said, “please play my piece again.” Then he lowered his head and began whispering prayers.
 
-“Can I walk you to your car?” I asked  
+“Nicely played,” Kevin said to me. “Tricking him into getting next to the door to the fridge I was hiding in. Smart stuff. I knew I picked the right pawn. You, Pauline, are going places.”
 
-Holly looked undecided for a moment, I could tell she probably just wanted to be alone so before I could speak and tell her not to worry about it she said.
+I stared at Kevin for a full minute-and-a-half. I was paralyzed with an incapacitating mixture of fear, confusion, rage, and then a little more fear on top. The huge squirt of adrenaline that my glands or whatever dumped into my bloodstream when the Parson threatened me with his book left me quivering with fight-or-flight energy that I now had no need for.  
+  
+Kevin attempted to talk to me while I basically silently vibrated in front of him.  
+  
+"Pauline comes through for the W!"  
+  
+Nothing from me.  
+  
+"I knew you'd come back to help me out."  
+  
+I wanted to respond. I just couldn't. The road from my brain to my mouth was closed for maintenance.  
+  
+"I was right about you. You're definitely queen material."  
+  
+My lips pressed together for a moment as if I was going to say something that started with the letter 'B.' Consciously, I still had nothing to say. It was just that my mouth, without any signal from my brain, kind-of took matters into its own hands. Or its own lips, I guess.  
+  
+My addled brain tried to follow what my mouth was doing. Was there anything I could say that started with 'B.' No. Nothing came to mind.  
+  
+"Pauline? PAULINE? Are you still with me? You're not seeing the grid, are you?"  
+  
+Kevin's odd, slightly off-putting question about "seeing the grid" gave me something to focus on. The mouth/brain roadway opened up a single lane for travel. "Grid?" I tried to say. My mouth had already decided to say ‘B’ so my question came out as "Brid?"  
+  
+"Ohhh," Kevin said, seemingly only now realizing how far down the rabbit hole my brain had slipped. "Let's get you some Pop Tarts. That'll clear things up."  
+  
+He put his hands on my shoulders and gently turned he around. Then he walked me back to the E6's cash register counter. There was a wheeled stool behind the counter for the so-far non-existent cashier to sit on. Kevin pulled the chair around the counter and sat me in it. "Wait here. I'll go get what you need."  
+  
+He wandered off into the potato-chip aisle, carefully stepping over Castle and the Parson, who were still wallowing on the floor, and returned with a box of Pop Tarts. "It's a special flavor," he said, showing me the box. "Cosmic Fudge." The box showed a picture of a Pop Tart whose top bore a colorful, swirling galaxy rendered in icing. It had a bite taken out of the corner, and a spray of psychedelic paisleys, fractals, and neon-green vines was pictured gushing out fudge-colored interior.
 
-“Ya, thanks” 
+“This will really clear things up for you.” He tore the box open and pulled out a pair of Pop Tarts wrapped in foil. “Here, eat this,” he tore open the foil pouch and handed me a galaxy-decorated Pop Tart.
 
-As we were making our way to the front door I saw Rob and some of the other part timers watching the news coverage about Miss Williams on the flat screens in the electronic section. 
+This wasn’t the first time in my life someone handed me something potentially mind-altering and told me that ingesting it would make me feel better. Frankly, most of the time, I *did* feel better after eating whatever mystery substance was offered.
 
-While the part timers looked horrified and saddened by the news, Rob with his towering frame looked angry, intensely angry. As if he was going to get revenge on whoever did the crime in a brutal manner. Ever since our little “exchange” on Tuesday I have been completely avoiding him and scared I would possibly get his attention by staring I quickly followed after Holly.
+I took the offered Pop Tart and bit off the corner, leaving it looking just like the picture on the box. Unlike the box, my Pop Tart didn’t emit a geyser of psychedelic shapes. Just a sweet, deeply-fulfilling taste of fudge.  
+  
+“I know how you're feeling,” Kevin said as he watched me chew and swallow. “You don't know why you came here tonight, but you got the feeling that something ain't right.”
 
-Once we reached Hollys car I opened the door for her and she gave me a polite smile and climbed in. When she closed the door she rolled down the window. 
+I took another bite of the Cosmic-Fudge-flavored pastry. Kevin kept talking. “You’re so scared in case you fall off your chair. And you’re wondering how you’ll get down the stairs.” He switched from talking to me, to off-key singing. “Clowns to the left of you, Jokers to the right, and here you are stuck in the middle with me.”
 
-“Thanks for walking me to my car. I appreciate it.” She said trying her hardest to keep her calm. 
+I turned to Kevin so I could glare at him while I told him to shut up. But, like he just said, something wasn’t right.
 
-“Anytime, I wouldn’t want anyone walking alone right now, especially someone I cared about” I said with a smile and rush of panic about how cheesy that was. 
+“Kevin,” I said. “Why are you wearing that hat?”
 
-She let out a light laugh and gave me the first real smile she had given all day.
+“Hat?” he said. “Look again. It’s a crown.”
 
-“You’re cute.” She said in a way I am still debating was either flirty or friendly. 
+I closed my eyes. The darkness was a nice break from the surreal scene in the E6 travel mart. I opened my eyes. Everything was different.
 
-I smiled and an awkward silence fell for a few seconds until my curiosity got the best of me.
+Except for the chair Kevin plopped me into, the E6 was gone. No more cash registers, aisles of junk food, and refrigerators with soda. I was on a grid. On a huge chessboard. The squares were enormous – each was a hundred yards across. A hundred fifty, maybe. They were shiny and perfectly smooth – as if each square was a single enormous, highly polished tile.
 
-“Did you know Miss Williams very well?” 
+*My* square – the one that I was centered in – was a white one. Castle and The Parson lay on the white surface a few feet away – as if all of us had been transported from the E6 to the grid as a unit, with the positions between us remaining the same. Or as if the E6 Travel Mart was an illusion that had vanished when I ate the bite of Cosmic Fudge, and all of us were always on the grid.
 
-“No not really, I mean she came into the store all the time. She was really friendly but I didn’t know much past that.” She said as her face dropped like a bag of rocks and she began to stare blankly at her steering wheel. 
+Kevin stood in front of me, staring intensely into my eyes. He still wore a gold crown.
 
-Right as I opened my mouth to ask what had been bothering her all day she started her ignition and put her car in drive and looks over at me and said.
+“Do you see now? Where we are? *What* we are?”
 
-“Thanks again for walking me, I told my dad I’m coming home early and he’s expecting me so I should go. Text me, my number is on the staff board in the break room.” 
+I studied his crown. I’m not an expert on crowns, but his looked legit. Heavy. Gold. Constellations of red, green, and blue gems decorated its surface. In the center, a huge white crystal. Diamond? No, it was far too big to be a diamond. But the most prominent feature of the headpiece was that it appeared to be *bolted* to his head. A dozen-or-so golden hex-bolt heads ran around the base of the crown.
 
-Watching her car leave I saw a figure at the end of the parking lot that made my heart sink even lower to the floor.
+“Look at them,” Kevin said, pointing at the prone figures of Castle and The Parson.”
 
-Standing about a quarter of a kilometre away looking directly at me was the lanky customer. Still holding his box of garbage bags. 
+They each wore … *things* on their heads. *Hats* is too normal a word for what they had on. They weren’t crowns, though. The Parson wore something that looked like what the Pope might wear – tall and arched like a Cathedral ceiling. But black. And attached to his head with the same golden bolts.
 
-As Holly's car left the parking lot he stared at me for a few more seconds and turned and walked in the direction of Holly leaving the lot. 
+Castle’s headpiece was literally a model castle. Picture the Princess Castle at Disney, but bolted to a huge truck-driver’s head.
 
-A few hours later when I was on my lunch break Tony walked into the breakroom. I could tell just by the way he walked he was about to rant. 
+“Do you see what we are?” Kevin repeated.
 
-“That shit took me 2 hours to clean!” He said, slamming his latex gloves on the table. 
+“You’re….” I trailed off because I didn’t want to hear myself say something that implied either I, or the universe itself, was insane.
 
-“If you're gonna have a mental breakdown why would you use a sharpie? That's just inhumane.” He continued while I wondered if he even knows I’m here. 
+“Chess pieces. I’m the king. The white king. And you, Pauline. I want you to be my pawn.”
 
-“You know what's weirder? I was talking with Holly in the parking lot earlier and…” 
+“But …? How …?” I couldn’t even form a question. Logic and proportion had fallen sloppy dead.
 
-“That is weird” Tony interrupted “Why would she talk to you?” 
+“You just sit tight and keep eating that Pop-Tart. I’m going to tell you a story.”
 
-“You’re fucking hilarious man” I said sarcastically before continuing.
+I took another bite of my Cosmic Fudge breakfast snack.
 
-“That guy was standing at the end of the parking lot just staring at us, like he hadn’t left since he bought his shit.” 
+“I was an investment banker. Wall Street. I liked to take risks. Big risks. I was extremely successful, until suddenly one day, I wasn’t. In fact, you could say that one day, I became the exact opposite of successful. I lost a lot of people’s money. And all of my own. I was fired. I moved through a bunch of random jobs for a while, but nothing clicked. Nothing let me take the risks I wanted. Then I met her.”
 
-“That is weird, he must be new. I have never seen him before.” Tony replied as he sat down across from me at the table. 
+“Who?” I asked with a mouthful of Cosmic Fudge.
 
-Just as he sat down Rob walked into the break room with a couple of the older full time employees. A couple named Janice and Steven have been with the store since the Mcleans took it over. Both in their late 50s or early 60s (everyone is too scared to ask) they have well past their customer service days but they say they wanna work here till they die. Come to think of it, I don't think I have ever seen them leave. 
+“The queen. The white queen. I was waiting for the bus to take me to whatever lame job I hadn’t gotten fired from yet. Then she pulled up, driving a Lamborghini. She revved the engine a few times to get my attention, then rolled the window down.”
 
-Janice was complaining to Rob about how they need to ditch the fancy new cash registers (which were made 3 years after I was born) and go back to the classic manual cash registers. 
+“She was dressed like a queen. Not like a dodgy old Queen-of-England queen. She wasn’t wearing anything medieval-looking. From where I was on the bus-stop bench, I could see she was wearing a snazzy couture black-and-white checkered blazer and a white-gold broach in the shape of a chess piece.”
 
-The combination of seeing Rob and the terrifying prospect of an elderly lady's complaints made me decide to end my lunch break early. 
+“Then she shouted to me: ‘*Hey! We’re starting a whole new thing over there. Wanna be a king?*’”
 
-As I got up and walked towards the group I noticed Holly’s number on the staff board like she said. After looking over at Tony to see him playing a slot machine game on his phone I quickly put her number down in my phone. 
+“There’s a lot of contextual information missing from that statement. Like who is *we*? Or what kind of thing is getting started. You could ask a ton of follow-up questions, you know? But I only asked one. I said *Over where?*”
 
-The rest of my shift was spent wandering the aisles in a Zombie like haze completely distracted by deciding the best way to text her.  
+I swallowed the last bite of Pop Tart. “What did she say?”
 
-After an embarrassingly long amount of time I decided to go with “Hey it’s Derek, how are you feeling?” 
+“She said, ‘*On the grid. Get in!*’ So I did.”
 
-As I drove home, I turned on the radio and the news was talking about the murder of Miss Willams. I would usually flip over the station but I felt an odd desire to listen to what happened to her. 
+“Wow,” I said. “That’s some really bad decision-making on your part. Getting into a car with an obvious wacko, under the premise of doing something that doesn’t even make sense if you’re tripping on LSD.”
 
-“The investigation continues into the murder of local resident Kathy Williams, the residents of her hometown reeling with grief and the gruesome manner of death has now been revealed, listener discretion is advised.” 
+“Exactly,” Kevin replied. “Does that sound familiar? Like, is there anyone else you know, besides me, who would do something like that?”
 
-I once again reached for the knob but felt a wash of curiosity I couldn’t shake. I slowly moved my hand to the volume and turned it up slightly. 
+I didn’t answer. I spun around in the chair, looking out over the grid. The grid was enormous. It was hard to see anything more than two squares away, just because of the distance. But I could make out that we weren’t here alone. Far away, in the direction of the dark country road and The Parson’s church, I could barely make out two dark figures. In the other direction, a dark shape stood on the horizon.
 
-“Police today have said today the manner of death was a neck fracture that severed Williams brain stem.” 
+“So,” Kevin continued, “she drove me to the grid. And that was the start of the game.”
 
-Maybe that meant she didn’t suffer?
+“So, you’re playing chess? On a huge chessboard?”
 
-“Police also confirmed they are looking into the possibility of this most recent death being connected with the senior murders that were thought to be concluded just over a year ago, in the area and surrounding towns.” 
+“We’re playing a game that’s chess. But also not chess at all. And we’re playing it all over the universe. The universe, Pauline, is a lot weirder than you think it is. You know the story Alice in Wonderland?”
 
-I was so focused on the broadcast when I pulled into my garage I nearly jumped out of my skin when my phone buzzed on my console. It was Holly. 
+“Yeah, Alice falls into a rabbit hole, and ends up in a surreal, dream-like world.”
 
-“I’m doing better, thanks for asking! How is your night going?”
+“Well, the Universe is like that, but backwards. The normal, mostly ordered universe that you know – *that’s* what’s at the bottom of the rabbit hole. You and me: we’ve climbed *out* of the hole. This – “ he gestured at the grid “ – is the real world. Part of it, anyway”
 
-Since I had the next 2 days off all I really did was text Holly, we mostly talked as friends and I was beginning to think the romance between us was maybe entirely one sided. Until I received one message from her. 
+I swallowed the last bite of my Cosmic Fudge Pop Tart. Kevin got down on one knee, like he was going to propose marriage.
 
-“Hey, are you busy tonight? I gotta get something off my chest.”  
+“Pauline. I would like you to be my pawn. Let’s play together.”
 
-“Thanks for reaching out by the way” Holly said opening a new packet of cigarettes before putting one in her mouth and lighting it. 
+I looked around again. Sure, accepting his offer meant I wouldn’t have to go to work on Monday. So, a check in the ‘pro-leave-the-universe’ column. I looked at Castle and The Parson, sprawled out on the grid surface, still moaning and whimpering.
 
-“Not a lot of people in this town to talk to so I’m glad you were able to come out tonight.” She continued after a puff of her freshly lite cigarette. 
+“If we get taken out, what happens?”
 
-As we sat in her car in the parking lot of the only baseball Diamond in town I thought of all the things I have wanted to tell her since I met her. How she made me feel better no matter the circumstances just with a smile or how walking into the store to see her at the register made my heart race a million miles a minute. But as these thoughts swam through my mind all I could get out was.
+“Nobody knows, exactly.”
 
-“Of course, anytime!” 
+“If we win, what happens?”
 
-She smiled and offered me her cigarette. 
+“Nobody knows, exactly.”
 
-“You smoke?” 
+“What if I refuse to play?”
 
-I don’t but would she think I was a nerd if I said no? 
+“Well, you can just go back to enjoy life with your husband and family.”
 
-“Ya I do” I said, taking the cigarette from her hand just before taking a drag and coughing a lung out almost as soon as it touched my lips. 
+“I’m not married.”
 
-She laughed and said, “Do you now?” 
+“Okay, you can return to your boyfriend, and have date-night every other Tuesday.”
 
-“I.. I do..don’t” I said, still desperate to catch my breath. 
+“I’m single.”
 
-She grabbed the cigarette from my hand. “You’re cute, It’s okay, I have been trying to quit since I started honestly.” 
+“Single. Well then, you can return to the little universe you know, at the bottom of the rabbit hole, and really focus on your career. Hit the grind hard. Build up that 401-k balance.”
 
-An awkward silence fell over the cabin of the car but I eventually worked up the courage to ask. 
+I laughed. My “career” was just a series of boring, entry-level jobs with no real prospects for advancement.
 
-“You said you had something to get off your chest, do you still wanna talk about it?” 
+I smiled the way I always do when I’m about to do something nuts. “Fine. I’ll be your pawn, Kevin.”
 
-She looked down at the steering wheel soberly, I could tell she had been avoiding the topic but needed to let it out. 
+Kevin stood up and placed his hands on my shoulders. For a second, I thought he was going to kiss me. Instead, he spun me around in the chair. The grid blurred and when I had completed the full 360 degrees of spin, I was back in the E6.
 
-“It’s my dog, we… we found her dead the other day” she said choking back tears. 
+“Hold tight!” Kevin said. He ran into the back of the store. I heard him rummaging around on the shelves. A few seconds later he returned with a box that said. “Pawn Helmet – Unisex. Medium.”
 
-“Oh my god, I’m so sorry that’s terrible! Are you okay?” I said sympathetically. 
+He tore open the box and pulled out a heavy steel helmet. The kind you’d wear if you were a pikeman going to battle in the 1600s or so.
 
-“Not really, I’ve had her since I was 8, she was one of my best friends just… just seeing her like that almost killed me” She said not holding back the tears anymore. 
+He handed me the helmet. “Make sure it fits.” Then he pulled a plastic baggie of golden bolts from the box.
 
-“What happened?” I know it's not the most sympathetic thing to ask in this situation but I couldn’t even register the words in my mind before I spoke them. 
+I put the helmet on. Apparently, medium is my size for seventeenth-century war helmets.”
 
-She took almost a minute to collect herself but talking through the tears she said. 
+“Uh, what are you going to do with those bolts?”
 
-“She… she… was ribbed in half… at first I thought maybe by a car but she was just on the sidewalk! no part of her was eaten or even missing her intestines just laid there! My mom thinks it was an animal but in my heart I just know it wasn’t an animal, it was a sick twisted son of a bitch!” 
+He didn’t answer me. He pulled a wrench from the box, tore open the baggie of bolts, and pulled one out.
 
-I slumped back in my seat. Who would be capable of doing that to a defenceless animal? And for what purpose? For some disgusting game? Or to let out some primal rage? Whatever the reason it sickened me to a point I felt nauseous where I sat. 
+“Close your eyes,” he said.
 
-My mind raced for something to say but it kept coming up blank. 
+There was pain. A lot of pain. I kept my eyes closed, so I don’t know exactly what Kevin did to produce the wet crunching and popping noises that came from each part of my head he worked on.
 
-“I just knew something was wrong when I got home that night.” She said after a silence that felt like an hour. 
+“Don’t move. You don’t want this thing installed crooked. It’ll look funny.”
 
-“When was this?” I asked so quietly I wasn’t sure she heard me.
+Twelve gold bolts later, he said “We’re done. Open your eyes.”
 
-“It must have happened Tuesday night cause we found her Wednesday morning.”  She responded. 
+I slowly opened my eyes. Kevin smiled at me. His shirt was dotted with a few drops of blood. He gently turned the chair so I was facing the glass door of the E6. I saw myself in the reflection. It was me. Regular me. Wearing my Friday-business-casual outfit. With a steel war helmet bolted to my head. Thin red streaks of blood started at each bolt and ran down my forehead and face.
 
-I felt my stomach twist into a knot. First Miss Williams now that, I knew that the nightmare we thought had passed a year ago was coming back and coming with anger. Could I really continue on living in constant fear that some malevolent monster will come out of the shadows and attack me or any of my family? The constant peeking around corners and the panic that strikes through me when someone doesn’t answer a text after a while. 
+The pain from the helmet installation was already fading.
 
-We talked a little more and I did my best to provide any sort of comfort for her but I was never very good with people crying. 
+“Ready to play?”
 
-When she pulled up to my driveway she put the car into park and gave me a dejected look. 
-
-“Are you gonna be okay?” I asked. 
-
-“Ya, my dad said he and his other cop buddies are gonna find whoever did this, they are just delayed because of Miss Williams.” She responded with a sigh. 
-
-“I didn’t know your dad was a cop.” I said surprised. 
-
-“Ya he was actually the head of the senior murders case a year or so back. I remember him pulling his hair out for months and with everything now I can see the stress building in him again.” She said looking blankly out the windshield. 
-
-I wonder if she told him about the weird guy with the graffiti the other day? Does she even know about that? It was in the mens bathroom after all. Maybe I’ll just tell her later I don’t know how much more she could handle tonight. 
-
-After we said our goodnights and I got back inside I texted her again.
-
-“I really enjoyed spending time with you, please let me know if you ever need to talk. I’ll always be here for you.” 
-
-I didn’t receive a response for the rest of the night. That isn’t weird, maybe she isn’t checking her phone, she was pretty upset, she probably just needs some alone time. 
-
-By the afternoon the next day I still hadn’t received a response. I was sitting on the couch watching TV when my phone buzzed next to me. I grabbed it at a speed I didn’t know I was capable of. 
-
-Tony: “You didn’t even kiss her? Pussy.” 
-
-For fuck sake Tony. I can’t remember what I said in response exactly but it definitely had something to do with Tony’s mother. 
-
-The next morning I still hadn’t heard back from Holly and when I got to the store in the morning I saw Chris and Rob in the corner of the registers whispering what seemed like an intense conversation. Chris was opening his arms in exacerbation and Rob just stood there looking blankly into Chris’s eyes with his dead stare. 
-
-When I got into the back office I saw Steven unpacking his lunch from his backpack into the staff fridge. 
-
-“Hey Steven” I said dejectedly. 
-
-“Oh good morning Derek!” Steven responded as infuriatingly upbeat as ever. 
-
-“Another one bites the dust eh!” He said, giving me a nod. 
-
-“What do you mean?” I asked
-
-“Oh you didn’t hear? That makes sense it only happened yesterday, Holly quit.” He said nonchalantly, shrugging his shoulders. 
-
-I stood completely still, I couldn’t think, my head was an empty shell with only my beating heart picking up speed breaking the silence in my body. 
-
-“What? Why?” I asked through my heavy breathing. 
-
-“Don’t know, she just called Rob yesterday, no notice or nothing just quit out of the blue.” He said finally finishing packing his stuff and heading for the floor. 
-
-“It’s a shame, she was really sweet, good cashier too. Anyway see you out there!” He added before leaving for the floor. 
-
-I was left alone in the break room. I don’t know why but I knew something was wrong, granted I didn’t know her extremely well but I knew this was not like her. She is going through a lot but to give no notice? And to Rob? She was terrified of Rob. Why would she call him instead of just sending a resignation email? Especially with no notice. 
-
-These questions ran through my mind over and over until my lunch break when I was walking out of the store to go get some food, passing by Rob who didn’t even acknowledge me as he was furiously typing on a phone.
-
-Just as I was wondering what his deal was I got a text.  
-
-Holly: “I’m sorry” 
-
-I texted her back immediately telling her there’s nothing to be sorry about and asking why she quit and if she wanted to meet up again. I didn’t care about looking cool or hiding my feelings anymore. I just needed confirmation that she was okay and I was being completely irrational. 
-
-She never responded. In fact my texts didn’t even send as if she turned her phone off or blocked my number. 
-
-That was the last straw as I left the store and immediately drove to her house. I wasn’t sure what my plan was, if she answered the door and thought I was a creep than whatever at least I know she’s okay and I can rest easy with that fact. 
-
-Driving through the streets at an unreasonable speed I finally pulled up to Holly’s house and saw her car was still in the driveway parked right next to her dads cruiser. I knocked on the door over and over, I rang the doorbell and even shouted her name. I got no response, no one came to the door or even looked out the window. Every blind in the house was closed and all the lights were off. 
-
-I wanted to call the police but what would I tell them? My crush stopped answering my texts? A girl in her 20s quit her dead end job at a grocery store? 
-
-I needed something to tell them, something concrete. So with my entire body screaming at me to stop I reached for the door handle. It was open. 
-
-The creaking of the door opening still plays in my mind as I try to fall asleep and the overwhelming feeling to run has still not left me. 
-
-Despite my heart telling me to leave, my legs stayed firmly planted, only being interrupted by stepping forward into the dark foyer of the house. Down the hallway was a half opened door with the light of a desk lamp illuminating the bottom and sides of the door frame. 
-
-The walk to the door felt like a mile but once I got to the door I cracked it open to find a perfectly intact office with family photos and police portraits on the wall. In the centre of the room was a large wooden desk with papers scattered across it in all directions. Among the manila folders and endless police reports was a letter, sitting on top the pile practically lighting up to draw my attention. 
-
-I picked it up and turned it over and it simply read “FOUND YOU!”. It was the same crude handwriting as the psycho in the bathroom. 
-
-I had to keep my knees from buckling as my shaking hands became so uncontrollable I dropped the note on the floor and booked it for the door. 
-
-When I got to the door I stopped myself, I looked up the stairs and to see the only other light coming from the first door when you reach the top of the stairs. 
-
- Before I could even talk myself out of it I reached the top of the stairs and put my hand on the door handle. 
-
-Slowly turning that handle I saw a sight I cannot drive out of my mind, the scene looked more like the work of some demon of hell than of any mortal man. 
-
-Holly laid on her bed, arms and legs visibly broken, her face was so bashed she was unrecognizable as the girl I knew. Her father laid at her bedside, blood pooling into an endless lake of some hellish design. His throat had been cut down to the bone. There was blood everywhere, on the walls, on the ceiling, on her dresser everywhere. As if whatever creature did this attacked with so much rage that no human was even capable of. The only thing I didn’t realize till later was the doll, the wooden doll sitting on her dresser was completely clean despite everything surrounding it being covered in blood. 
-
-I stumbled out of the doorway so fast I nearly fell completely down the stairs. I ran as fast as I possibly could back to my car and immediately called the police. 
-
-The rest of the day went by in a blur. All I saw when I closed my eyes was the scene in Holly’s room, talking to police and giving them my story over and over. I began to feel sick with every word I spoke. Getting home that night I knew I needed to leave. My semester started in 3 weeks anyway so I needed to get out. Every time I even looked at the store I felt sick. 
-
-I am writing this now to get some sort of closure. Maybe if I tell the world it will make a little more sense and I’ll be able to move on. It’s been a year since I last went back to my home town and to be honest I don’t think I ever will. Since I left the investigation has hit another stand still. More details have come out and it appears the Doll Killer he’s now called is still at large. But if I’m being completely honest the real reason I am writing this is because I got a letter this morning. “FOUND YOU!”
-
+“I’m ready.”
