@@ -1,22 +1,91 @@
-# I made it to work early today...
-I actually got to work early today, and only one other coworker was there at the time. 
+# The frosted Diary 
+Snow fell in heavy silence as 15-year-old Claire stepped into her family’s new house. The Victorian home, perched on the edge of a quiet forest, was far from the city she’d known all her life. Her parents had called the move “a fresh start,” but Claire saw it for what it was—a desperate attempt to fix things that couldn’t be fixed.
 
-We were prepping for an evening event, but it was still midday and sunny. I was the lead for the upstairs concession stand, and she the downstairs, with more coworkers scheduled to arrive a half hour after us.  
+The house creaked and groaned, its age evident in the warped wooden floors and frost-covered windows. As her parents unpacked downstairs, Claire wandered upstairs to claim a room. She chose the smallest one at the end of the hall, its walls adorned with faded wallpaper depicting snowflakes and sleds.
 
-My coworker asked me to grab a few cases of water and pop from the walk-in fridge. 
+As she set her suitcase down, a cold draft swept through the room. Her eyes caught something odd: a small hatch in the ceiling, slightly ajar.
 
-Let me preface, this building is an old stadium for a vehicle track at our state fairground. From the concession stand, you go into the fair's storage room. This is a large room full of carnival ride parts and mirrors and a couple of decommissioned rides from fairs past, as well as other miscellaneous stored things. Then, there's a weird little hall with unknown-to-me rooms, you take a left, and the very old walk-in fridge is there, with some dilapidated stairs beside it, but no one uses them anymore for safety reasons. 
+Curiosity sparked. Dragging a chair beneath the hatch, she climbed up and pushed it open. The attic was dark and musty, with the faint scent of mildew hanging in the air. Among the cobwebs and forgotten boxes, something caught her eye—a small leather-bound book, its cover cracked with age. A diary.
 
-It's always given me the creeps because it's very dimly lit, and you may catch your own reflection, or a life size clown's that belongs on a carnival ride. But, it's part of my job to stock the stand, and no one newer than me was here to pass the job on to. So, I grabbed my cart, and went in.
+Back in her room, Claire sat on the bed and opened the diary. The handwriting was spidery and rushed, as if written in a panic. She flipped to the first entry.
 
-I got the usual hairs standing on the back of my neck and the increased heart rate, but I managed to get all the cases we needed to set up, and started to head back out. Except, when I opened the old, heavy door of the fridge, I noticed the dim lighting had totally gone out behind me. 
+December 12th, 1902
+"Il est venu hier soir. J'ai entendu les cloches d'abord, faibles, mais de plus en plus fortes. La neige était rouge... ce n'était pas seulement du sang, mais elle fumait comme si la terre elle-même avait froid."
 
-Super creepy, but not too crazy for a building built in 1894 (obviously, updates have been made since, but I wouldn't guess too many). 
+Claire’s breath hitched as she translated: “He came last night. I heard the bells first, faint but growing louder. The snow was red… it wasn’t just blood, but it steamed, as if the earth itself was freezing.”
 
-I turned on my phone's flashlight and began to push my cart through the hallway and back into the large storage room. I am not kidding you: my wheel jammed and my phone's flashlight turned off simultaneously! I fumbled with my phone for a second, and opted to just try and manhandle the cart full of liquid weight through the maze of carnival junk, when one of the alarms on an old game started to blare, red light flashing, lighting up the room with each turn of the siren. 
+The words painted a grotesque image in her mind—snow soaked in crimson, the steam curling into the air like ghostly tendrils. She shivered, slamming the diary shut.
 
-Everything in me became an adrenaline fueled flight out of there. I switched to the other side of the cart, and pulled, dragging the stuck wheel along until I made it to the door out. I slammed my weight into it, and in the same motion, drug the whole cart through! I made it back to the light of day! 
+That night, she couldn’t sleep. The diary sat on her nightstand, and her mind replayed the words. Snow. Bells. Red.
 
-I'm sure everything about me read “terrified,” and my coworker asked me if I was alright. I asked her if she had heard the alarm go off. She told me that she did not. She looked so confused, that I have to believe her. I really don't know how she could've missed it… Even if she didn't see the red lights, it was so loud...
+Just as her eyes began to close, a faint sound reached her ears. She froze, straining to hear.
 
-Everyone I work with has a ghost story from this building. I guess I've earned mine. 
+Jingling.
+
+It was faint at first, like a distant wind chime, but it grew louder. Her chest tightened as the sound grew closer, weaving through the night air until it seemed to echo just outside her window.
+
+Throwing off the covers, she crept to the frosted pane and peered out.
+
+Nothing.
+
+Then she saw them—hoofprints in the snow, leading from the forest to the house.
+
+The next morning, Claire told her parents, but they brushed it off. “It’s probably just deer,” her father said with a dismissive wave.
+
+But the hoofprints remained, clear and sharp in the fresh snow.
+
+That evening, Claire returned to the diary, flipping to another entry.
+
+December 13th, 1902
+"Les cloches encore. Père a verrouillé les portes, mais cela n'a pas d'importance. Il était déjà à l'intérieur..."
+
+Claire’s pulse quickened. “The bells again. Father locked the doors, but it didn’t matter. He was already inside…”
+
+Her stomach churned as she read on. The entries grew darker, describing a creature with burning eyes and horns that scraped the ceiling.
+
+That night, the bells returned. Louder this time, their sound sharp and deliberate, as if summoning her.
+
+The air in her room grew cold, and frost crept along the windowpanes. Claire hugged her knees, her breath forming clouds in the frigid air.
+
+A loud creak broke the silence. Her bedroom door was opening.
+
+Claire’s heart pounded as she dove under the bed, clutching the diary to her chest. The room grew colder still, and the sound of heavy footsteps filled the space.
+
+Peering through the shadows, she saw them: clawed hooves stepping across the wooden floor, trailing snow and ice.
+
+A guttural growl filled the room, and the bells jingled again, now deafeningly loud.
+
+She clamped a hand over her mouth to stifle a scream as a long, bony hand with razor-sharp claws slid across the floor, searching.
+
+“As-tu été sage, petite fille?”
+
+The voice was low and gravelly, the French words dripping with malice. “Have you been good, little girl?”
+
+Tears streamed down Claire’s face as she tried to stay silent. The creature’s glowing red eyes burned in the darkness, scanning the room.
+
+The bed above her groaned as it leaned forward, impossibly heavy.
+
+Suddenly, the diary slipped from her trembling hands and hit the floor with a hollow thud.
+
+The creature froze.
+
+With a roar, the bed was flung across the room, slamming into the wall. Claire scrambled backward, but the creature loomed over her, its massive horns brushing the ceiling. Its grin revealed jagged teeth, and its blackened tongue flicked out like a serpent’s.
+
+The sack on its back writhed and squirmed, faint cries escaping from within.
+
+“Please…” Claire whispered, her voice barely audible.
+
+The creature tilted its head, studying her. Its eyes glinted as it leaned closer, its rancid breath filling the air.
+
+“You’ve been good, haven’t you?” it rasped.
+
+Claire nodded frantically, unable to speak. The creature’s grin widened, its jagged teeth gleaming in the pale moonlight.
+
+“À bientôt,” it hissed, the phrase chilling her to the bone. “See you soon.”
+
+Claire woke with a start, her body drenched in sweat. The diary sat untouched on her nightstand, as if it had never been opened.
+
+But the frost on her window spelled out two haunting words:
+
+À bientôt.
+
