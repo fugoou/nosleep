@@ -1,91 +1,12 @@
-# The frosted Diary 
-Snow fell in heavy silence as 15-year-old Claire stepped into her family’s new house. The Victorian home, perched on the edge of a quiet forest, was far from the city she’d known all her life. Her parents had called the move “a fresh start,” but Claire saw it for what it was—a desperate attempt to fix things that couldn’t be fixed.
+# Was I imagining things?
+I want to start this off by telling you that these stories were when I was three, eight and nine years old. The first story was my brother’s.
 
-The house creaked and groaned, its age evident in the warped wooden floors and frost-covered windows. As her parents unpacked downstairs, Claire wandered upstairs to claim a room. She chose the smallest one at the end of the hall, its walls adorned with faded wallpaper depicting snowflakes and sleds.
+This was when my brother was 4 and I was three, we lived in Keokuk, Iowa at the time. During the first few nights in the house that we had just bought my brother would wake up at 12am going batshit crazy, screaming “WHY IS SHE HERE, GET HER OUT!” Of course, my parents weren’t seeing anything, but it was the same corner every time. He described “her” as an old lady who wore a white dress. Eventually me and my brother switched rooms because we wanted to see if that would change anything, and it did. He stopped waking up in the middle of the night. Now this is going to sound crazy, but the owner of the house prior to us had a little boy who died when he was three years old and she lived in that house up until her death, but I think that was the owner of the house checking on my brother making sure he was okay. But either way being in this situation would freak anyone out.
 
-As she set her suitcase down, a cold draft swept through the room. Her eyes caught something odd: a small hatch in the ceiling, slightly ajar.
+During the years 2013 and 2014, my family was living in a small town in Iowa. We used to have a little farm that wasn’t on our house property, we would drive less than 10 minutes to get there. For context when you first got on to the property there was a small hill that led down into a small wood, there was a hidden river down there with an old bridge that I would go on, we also had goats, chickens and bees, this is also important later. But let’s get back on track.
 
-Curiosity sparked. Dragging a chair beneath the hatch, she climbed up and pushed it open. The attic was dark and musty, with the faint scent of mildew hanging in the air. Among the cobwebs and forgotten boxes, something caught her eye—a small leather-bound book, its cover cracked with age. A diary.
+The bridge that was in the woods was a bit old and my family decided to fix it. After it was fixed I was able to play in the river without thinking about how I was going to get out. One day when I was down there, I was picking some wild moleberries (They are like the Blackberries' smaller cousin but more sweet). Now even though this was a small wooded area this led to a larger area that was off the property so me and my brother weren’t allowed to go into that part of the forest. But that day after hearing a twig snap close by, I looked around to see if one of the goats had followed me but I didn’t see them. So I went back to picking the berries and then I heard what sounded like heavy breathing almost like someone had been running for their life, however when I noticed the breathing was coming from the deeper part of the woods. That made me very nervous, being eight years old and not very large was not necessarily ideal if I had to defend myself, that’s when I saw whatever it was started to stand. I recall that it was almost as tall as the small tree that separated the property from the larger area, there was also a foul odor accompanying the creature, then it did some weird knock on the tree it was next to with its hand. That was about the time I dropped my bucket of berries and ran uphill (this is important for later) back to the barn and got in the car. Later that night I was watching TV with my dad and what he was watching just happened to be about Bigfoot and how they will knock on trees as signs of communication. I’m not saying that it was a Bigfoot, but the thing that I saw was tall.
 
-Back in her room, Claire sat on the bed and opened the diary. The handwriting was spidery and rushed, as if written in a panic. She flipped to the first entry.
+By mid-summer of 2014 my family was planning to move away. So, a month prior to moving we were getting things ready to not only sell our house but also our farm. One night we came on to the property and nothing seemed off or weird until we passed where the beehives were. I told my dad that there were two lights on the other side of the river. Remember when I said that there was a hill by the woods? Well, there were two hills on both sides, one led to the barn the other led to the entrance. The hill that led to the entrance was very visible from where we were, so my dad pointed the headlights towards that hill. But nothing was there, he turned them all the way off and then there were the two lights again. He once again turned on the headlights on full blast but we didn’t see anything there. This concerned my parents because if they were people they would’ve been standing in the middle where we could see them if we turned the headlights on all the way, this wasn’t fireflies either because their lights are not white like the ones we were seeing, these weren’t animals either because there we would have seen them. We continued doing our night chores on the farm but we were very careful that night when we did, then by the next morning when we went to do our morning chores we found out that we were robbed, which was odd because we didn’t see anyone on the property the night before. We did get the police involved but they said they were unable to help due to us getting ready to move and only having the story, yes, we did have a no trespassing sign but when did anyone ever listen to those?
 
-December 12th, 1902
-"Il est venu hier soir. J'ai entendu les cloches d'abord, faibles, mais de plus en plus fortes. La neige était rouge... ce n'était pas seulement du sang, mais elle fumait comme si la terre elle-même avait froid."
-
-Claire’s breath hitched as she translated: “He came last night. I heard the bells first, faint but growing louder. The snow was red… it wasn’t just blood, but it steamed, as if the earth itself was freezing.”
-
-The words painted a grotesque image in her mind—snow soaked in crimson, the steam curling into the air like ghostly tendrils. She shivered, slamming the diary shut.
-
-That night, she couldn’t sleep. The diary sat on her nightstand, and her mind replayed the words. Snow. Bells. Red.
-
-Just as her eyes began to close, a faint sound reached her ears. She froze, straining to hear.
-
-Jingling.
-
-It was faint at first, like a distant wind chime, but it grew louder. Her chest tightened as the sound grew closer, weaving through the night air until it seemed to echo just outside her window.
-
-Throwing off the covers, she crept to the frosted pane and peered out.
-
-Nothing.
-
-Then she saw them—hoofprints in the snow, leading from the forest to the house.
-
-The next morning, Claire told her parents, but they brushed it off. “It’s probably just deer,” her father said with a dismissive wave.
-
-But the hoofprints remained, clear and sharp in the fresh snow.
-
-That evening, Claire returned to the diary, flipping to another entry.
-
-December 13th, 1902
-"Les cloches encore. Père a verrouillé les portes, mais cela n'a pas d'importance. Il était déjà à l'intérieur..."
-
-Claire’s pulse quickened. “The bells again. Father locked the doors, but it didn’t matter. He was already inside…”
-
-Her stomach churned as she read on. The entries grew darker, describing a creature with burning eyes and horns that scraped the ceiling.
-
-That night, the bells returned. Louder this time, their sound sharp and deliberate, as if summoning her.
-
-The air in her room grew cold, and frost crept along the windowpanes. Claire hugged her knees, her breath forming clouds in the frigid air.
-
-A loud creak broke the silence. Her bedroom door was opening.
-
-Claire’s heart pounded as she dove under the bed, clutching the diary to her chest. The room grew colder still, and the sound of heavy footsteps filled the space.
-
-Peering through the shadows, she saw them: clawed hooves stepping across the wooden floor, trailing snow and ice.
-
-A guttural growl filled the room, and the bells jingled again, now deafeningly loud.
-
-She clamped a hand over her mouth to stifle a scream as a long, bony hand with razor-sharp claws slid across the floor, searching.
-
-“As-tu été sage, petite fille?”
-
-The voice was low and gravelly, the French words dripping with malice. “Have you been good, little girl?”
-
-Tears streamed down Claire’s face as she tried to stay silent. The creature’s glowing red eyes burned in the darkness, scanning the room.
-
-The bed above her groaned as it leaned forward, impossibly heavy.
-
-Suddenly, the diary slipped from her trembling hands and hit the floor with a hollow thud.
-
-The creature froze.
-
-With a roar, the bed was flung across the room, slamming into the wall. Claire scrambled backward, but the creature loomed over her, its massive horns brushing the ceiling. Its grin revealed jagged teeth, and its blackened tongue flicked out like a serpent’s.
-
-The sack on its back writhed and squirmed, faint cries escaping from within.
-
-“Please…” Claire whispered, her voice barely audible.
-
-The creature tilted its head, studying her. Its eyes glinted as it leaned closer, its rancid breath filling the air.
-
-“You’ve been good, haven’t you?” it rasped.
-
-Claire nodded frantically, unable to speak. The creature’s grin widened, its jagged teeth gleaming in the pale moonlight.
-
-“À bientôt,” it hissed, the phrase chilling her to the bone. “See you soon.”
-
-Claire woke with a start, her body drenched in sweat. The diary sat untouched on her nightstand, as if it had never been opened.
-
-But the frost on her window spelled out two haunting words:
-
-À bientôt.
-
+I still think of these things even though I am older now, but I can't help but feel that I wasn't Imagining the things I saw because my parents also experienced these events with me.
