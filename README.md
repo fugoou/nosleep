@@ -1,12 +1,72 @@
-# Was I imagining things?
-I want to start this off by telling you that these stories were when I was three, eight and nine years old. The first story was my brother’s.
+# The truth about Christmas magic
+When I was a kid, Christmas Eve was pure magic. I’d lie awake, listening for reindeer hooves or the soft rustle of Santa squeezing down the chimney. My parents played along perfectly, leaving half-eaten cookies and handwritten notes from Santa. Even when I figured out the truth, I never lost my love for the holiday—it became my turn to create the magic for my own kids.
 
-This was when my brother was 4 and I was three, we lived in Keokuk, Iowa at the time. During the first few nights in the house that we had just bought my brother would wake up at 12am going batshit crazy, screaming “WHY IS SHE HERE, GET HER OUT!” Of course, my parents weren’t seeing anything, but it was the same corner every time. He described “her” as an old lady who wore a white dress. Eventually me and my brother switched rooms because we wanted to see if that would change anything, and it did. He stopped waking up in the middle of the night. Now this is going to sound crazy, but the owner of the house prior to us had a little boy who died when he was three years old and she lived in that house up until her death, but I think that was the owner of the house checking on my brother making sure he was okay. But either way being in this situation would freak anyone out.
+This year, though, Christmas wasn’t what I expected. Something happened that I can’t explain, something that changed the way I see Christmas forever. I don’t know if I’ll ever feel safe in my home again.
 
-During the years 2013 and 2014, my family was living in a small town in Iowa. We used to have a little farm that wasn’t on our house property, we would drive less than 10 minutes to get there. For context when you first got on to the property there was a small hill that led down into a small wood, there was a hidden river down there with an old bridge that I would go on, we also had goats, chickens and bees, this is also important later. But let’s get back on track.
+It started as a perfectly normal Christmas Eve. Jack, my six-year-old, and Emma, who’s four, were beside themselves with excitement. They helped me leave out milk and cookies for Santa before Eric, my husband, and I tucked them into bed. Jack begged to stay up late and catch Santa in the act, but eventually, they both fell asleep.
 
-The bridge that was in the woods was a bit old and my family decided to fix it. After it was fixed I was able to play in the river without thinking about how I was going to get out. One day when I was down there, I was picking some wild moleberries (They are like the Blackberries' smaller cousin but more sweet). Now even though this was a small wooded area this led to a larger area that was off the property so me and my brother weren’t allowed to go into that part of the forest. But that day after hearing a twig snap close by, I looked around to see if one of the goats had followed me but I didn’t see them. So I went back to picking the berries and then I heard what sounded like heavy breathing almost like someone had been running for their life, however when I noticed the breathing was coming from the deeper part of the woods. That made me very nervous, being eight years old and not very large was not necessarily ideal if I had to defend myself, that’s when I saw whatever it was started to stand. I recall that it was almost as tall as the small tree that separated the property from the larger area, there was also a foul odor accompanying the creature, then it did some weird knock on the tree it was next to with its hand. That was about the time I dropped my bucket of berries and ran uphill (this is important for later) back to the barn and got in the car. Later that night I was watching TV with my dad and what he was watching just happened to be about Bigfoot and how they will knock on trees as signs of communication. I’m not saying that it was a Bigfoot, but the thing that I saw was tall.
+By 11:00 p.m., Eric and I were in the living room, arranging gifts under the tree and filling stockings. We laughed as we drank hot cocoa, proud of the magic we’d made. It was the kind of night you see in Christmas commercials—warm, peaceful, full of love.
 
-By mid-summer of 2014 my family was planning to move away. So, a month prior to moving we were getting things ready to not only sell our house but also our farm. One night we came on to the property and nothing seemed off or weird until we passed where the beehives were. I told my dad that there were two lights on the other side of the river. Remember when I said that there was a hill by the woods? Well, there were two hills on both sides, one led to the barn the other led to the entrance. The hill that led to the entrance was very visible from where we were, so my dad pointed the headlights towards that hill. But nothing was there, he turned them all the way off and then there were the two lights again. He once again turned on the headlights on full blast but we didn’t see anything there. This concerned my parents because if they were people they would’ve been standing in the middle where we could see them if we turned the headlights on all the way, this wasn’t fireflies either because their lights are not white like the ones we were seeing, these weren’t animals either because there we would have seen them. We continued doing our night chores on the farm but we were very careful that night when we did, then by the next morning when we went to do our morning chores we found out that we were robbed, which was odd because we didn’t see anyone on the property the night before. We did get the police involved but they said they were unable to help due to us getting ready to move and only having the story, yes, we did have a no trespassing sign but when did anyone ever listen to those?
+At midnight, Eric yawned and headed upstairs. I decided to stay up a little longer, enjoying the glow of the Christmas tree. That’s when I heard it.
 
-I still think of these things even though I am older now, but I can't help but feel that I wasn't Imagining the things I saw because my parents also experienced these events with me.
+A deep, muffled thud came from above me. At first, I thought it was snow sliding off the roof. Then came the sound of heavy footsteps, deliberate and slow, creaking across the ceiling. My first thought was burglars, but the sound didn’t match. It was too slow, too deliberate.
+
+Then I heard the laugh.
+
+“Ho… ho… ho…”
+
+It wasn’t cheerful or jolly. It was deep, almost guttural, vibrating through the walls. My chest tightened, and I froze, staring at the fireplace. The fire had gone out hours ago, leaving the hearth cold and dark.
+
+The footsteps moved closer, stopping directly above the chimney. For a moment, everything was silent. Then, with a loud scrape and a heavy thud, something landed inside the fireplace.
+
+I couldn’t move. I couldn’t breathe. My mind raced through every possibility—a prank, a home invasion—but none of it made sense.
+
+And then he stepped out.
+
+The figure was enormous, hunched as he emerged from the fireplace. His red coat was stained with soot, and the fur trim was matted and yellowed. His beard hung in tangled strands, streaked with ash. His boots left wet, filthy prints on the rug as he moved toward the tree.
+
+I wanted to scream, but my voice was stuck in my throat. He didn’t seem to notice me. Or maybe he didn’t care. He knelt by the tree, his massive frame dwarfing the presents beneath it, and began pulling objects from the sack slung over his shoulder. The gifts didn’t look like the ones I’d wrapped. The paper was strange—dark and old, with patterns I didn’t recognize. The tags all read From Santa in a looping, elegant script.
+
+When he finished placing the presents, he stood, brushing soot from his coat. His head tilted slightly, as if listening for something. Then, slowly, he turned his head toward me.
+
+His eyes—coal-black and glinting—locked onto mine. For a moment, neither of us moved. Then he smiled, his lips stretching too wide, revealing rows of jagged, yellowed teeth.
+
+“Merry Christmas,” he rumbled, his voice deep and hollow.
+
+My legs finally obeyed me. I stumbled backward, my heart pounding, as he turned back to the fireplace. With a grunt, he hoisted himself up the chimney in one swift, unnatural motion. The room was silent again, except for my ragged breathing.
+
+I don’t know how long I sat there, staring at the fireplace, trying to make sense of what I’d just seen. Eventually, Eric came downstairs, worried about the noise.
+
+“What’s going on?” he asked, looking around. His eyes fell on the strange new gifts under the tree. “What are those?”
+
+“He… he left them,” I whispered.
+
+Eric frowned. “Who?”
+
+“Santa.”
+
+He laughed nervously. “Very funny. Did you… pick these up last-minute or something?”
+
+I shook my head. “No.”
+
+We both stared at the presents, neither of us wanting to touch them. Eventually, Eric bent down and picked one up. It was heavier than it should have been. The tag read, To Jack, From Santa.
+
+“I don’t like this,” he said, setting it back down. “We should throw them out.”
+
+But something stopped us. A feeling, almost like a warning, settled over the room. We left the gifts where they were and went upstairs, locking the bedroom door behind us.
+
+The next morning, the kids were ecstatic to find the new presents. Jack tore into one immediately, revealing the exact LEGO set he’d been begging for. The same set I hadn’t been able to find anywhere.
+
+“Santa brought it! I told you he was real!” Jack said, his eyes shining.
+
+Emma opened her gift next—a porcelain doll with a strange, old-fashioned dress. She hugged it tightly, smiling. “I love her.”
+
+I didn’t tell them what had happened. I didn’t tell Eric that when I looked closer at the doll, its glassy eyes seemed to follow me.
+
+The kids played all day, happy and oblivious. But Eric and I couldn’t shake the feeling that something was wrong. That night, I went back to the living room to clean up the wrapping paper. That’s when I noticed the fireplace.
+
+The soot that had spilled onto the hearth wasn’t just a mess. It was a perfect imprint of two boots, far larger than any human’s.
+
+And next to the boots, scrawled in ash, was a single word:
+
+GOOD.
