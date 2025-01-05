@@ -1,237 +1,272 @@
-# My friend's gift sent us to Hell
-Matt and Chloe were the last guests to arrive at my place. Noah, Lois, and Jared had arrived nearly an hour ago. We had already cracked open a few boxes of drinks, and I assumed that the last two were gonna be a no-show. That being said, our game night was in full swing.
+# I'm An Officer With The Winchester Police Department Supernatural's Division: Partners New And Old 
+[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1hloe9i/im_an_officer_with_the_winchester_police/?share_id=nFSRMFzA5X22BUI3DQvXg&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
 
-Chloe and Matt gestured for me to come to them in my kitchen after squeezing the humour out of Cards Against Humanity for three rounds.
+“Nope, no, *absolutely* not,” I said, stomping my foot in protest.
 
-"What's up?" I asked. "You guys doing alright?"
+Lieutenant Dawn tossed a file across his desk, sighing heavily. “That’s funny, you say that as if you have a choice.”
 
-They grinned, handing me a rectangle donned in Christmas wrapping. It was immaculately wrapped.
+If you're new, you can read what I've been covering in my therapy sessions: [here.](https://www.reddit.com/r/SpnsAthenaeum/comments/1gpe8cd/guide_to_im_a_rookie_with_the_winchester_police/)
 
-"Merry Christmas, Marshall!" they said in unison.
+I glared audaciously at Cameron, throwing my hands out in front of me. “*You can’t be serious!*”
 
-"For me?" I pondered. I never expected birthday gifts from my friends, so needless to say I was a little stunned.
+He looked up at me with an expression that read: ‘I’m over it.’
 
-"Obviously!" Matt spat. "We were gonna give this to you next weekend but-"
+“Deadly.”
 
-"We felt bad for being late, so I hope this makes up for it," Chloe interjected.
+I stomped my foot again. “Lieutenant, respectfully, have you lost your god damn mind?! Releasing Rudy is one thing, but recruiting him as an officer?”
 
-"Oooo presents?" Noah cooed, poking his head over my shoulder. "You gonna open it?"
+Dawn sat up in his chair and cleared his throat uncomfortably. “Now that we’re…*short handed*, you need a partner. And Rudy was a hunter before so it shouldn’t be too hard for him to assimilate.”
 
-"I mean I don't really have anything to give back bu-" I stammered.
+A scoff escaped me.
 
-"Don't be a pussy! Open the damn present!" Noah encouraged me, aggressively.  It was all a little overwhelming, but I was grateful and a bit drunk. I gestured for them to follow me to the living room, where Lois and Jared were chatting. Their attention quickly snapped to the gift in my hands.
+Lieutenant Dawn leaned forward, his desk chair creaking as he did so. “This way we can closely monitor him and, can you think of a better way for him to serve his time usefully?” He challenged.
 
-"Oh shit, you didn't say there was a gift exchange," Jared gasped. I shook my head.
+“Yes,” I stated bluntly. Keeping him downstairs being at the top of my list.
 
-"Nah, there isn't. Matt jumped the gun, which is great, and I wanna open it with everyone here!" I announced.
+“Too bad!” He replied snarkily.
 
-Lois locked eyes with the couple, "Is it *that* thing?"
+“But *me,* train *him?*” I pinched the bridge of my nose. “I’m nowhere near qualified for that! You *just* cleared me from rookiedom!”
 
-Chloe nodded. Lois began bouncing in her seat like an excited child. I knew Lois and Chloe were nigh-inseparable best friends, so I figured she'd be in the know about what I was about to receive.
+“Lucky, you’ve been a cop for almost two years at this point. You have plenty of experience.”
 
-"You've had the gift in your hands for like two minutes aren't you gonna open it?" Noah laughed. All eyes were on me. Despite the surprise, I felt honoured. I felt loved.
+“Killing revenants,” I added, “I have plenty experience killing them, not training them!”
 
-I tore the wrapping paper off, and inside was something I was very familiar with. A book. A large book at that.
+“Lucky-“ Lieutenant Dawn warned, testingly. Apparently I’d worn his patience thin.
 
-"Merry Christmas!" Matt cheered. I was entranced by what I was holding, studying the cover.
+“Is there really nobody else that can take him?”
 
-The book was a dark red, hard cover that looked quite old. It had ridges on the cover that almost resembled the pattern of a skull. I noticed it had no title on the front, nor on the spine. What's more, the book almost felt as if it was generating a small amount of heat. The more I inspected the outside, the more unsettled I got.
+Cameron pressed his lips into a hard line. “No.”
 
-"Can't say I've ever had anything like this before," I said. "Thanks, guys!"
+With an exasperated sigh, I plopped down on the chair in front of him.
 
-I gave Matt and Chloe a hug, still holding onto the book.
+“I know, I know. You’re worried,” he said gently, offering a supportive hand. I took it. “But everything will be fine. He’s different than the others. He’s not *him.*”
 
-"You like to read, and you're really into that spooky shit so I figured this would be perfect for you," Chloe explained.
+My gaze met his. “There really no way out of this?”
 
-"The guy at the shop said it'd freak out anybody," Lois chimed in.
+Dawn chuckled softly, “Not a chance.”
 
-"Well, I'll have to check it out on my down time. I don't wanna interrupt the party we got going." I said, beginning to pace towards my room. "I'll just stick it on the ol' reliable shelf here."
+“Okay.” The ghost of a smile appeared on my lips. “Whatever.”
 
-"Whoa whoa, now, you gotta read some of it," Jared insisted. "Can't just put a gift away without using it!" Everyone seemed to rally behind his words. They all began chanting "read it" over and over. I love reading, it's my jam. It's also something I usually do alone.
+A knock came from the other side of Lieutenant Dawn’s door before it opened, revealing a tall, older man. His long hair was sandy brown with some salty specks here and there. He wore a black leather jacket, some jeans, and a white undershirt that had motor grease stains on it. The helmet that rested on the man’s hip indicated he was a biker.
 
-"Screw it," I said. "Let's get it."
+His face was hardened with years of life experience, but his eyes looked kind.
 
-I sat in the centre of the couch, with everyone crowding around me. I was a teacher reading to the class. I opened the book and felt a waft of warm air hit my face. I checked to see if anyone noticed, but maybe they were too buzzed to care. The text was...almost complete gibberish. I tried my best to read along with it for the first page. We definitely had a few laughs, and nothing felt scary whatsoever.
+“Go on, get,” Dawn said playfully, shooing me out of his office. “I have a meeting.”
 
-Eventually, something unsettling came at the next page.
+I stood and excused myself, giving the man a brief smile and nod of acknowledgement on my way out. He looked familiar to me but I couldn’t quite place why.
 
-"Ji..nu...jo...ack..tos...hold up," I said, observing the next phrase. It was actual English.
+Shrugging it off, I made my way down to the holding area where my new trainee was waiting for me.
 
-"Upon thy next waking the gates will open."
+“Can you believe it?!” Rudy said excitedly, his eyes lighting up as he spotted me. He adjusted the sleeves on his new shirt, having just changed out of the grey jumpsuit he’d gotten used to wearing. Since his intake clothes had been discarded, he was given a set of jeans, white long sleeve shirt, light grey jacket, and a pair of beige work boots. “They’re giving me an apartment! Sure it’ll be heavily patrolled, but-”
 
-Something felt off, but hey, this was an ominous spooky book; and it was succeeding in making me nervous. I paused, looking at everybody.
+“Yeah, that’s nice, Rudy,” I interrupted suddenly, catching a glimpse of a neatly pressed pantsuit coming down the hall. Attached to that pantsuit were a determined pair of eyes, looking right at me.
 
-"You alright?" Noah asked me.
+Fight or flight kicked in and I chose flight (rare for me, I know).
 
-"That was creepy..." I could only answer. "Like actually creepy."
+“But- but my stuff!” Rudy cried out as I drug him along with me.
 
-"Then it's a good gift, right?" Matt asked.
+“We can come back and get it later!” I said, navigating us into a busier area where police, perps, and personnel were hustling and bustling about.
 
-"Keep going if you want to, man," Jared offered, though I could tell he was somewhat nervous. "No pressure, we might be getting to the actual good part."
+Stealing a glance behind me, I thought I spotted a familiar brown bob, bobbing up and down in the crowd still hot on our tail.
 
-I gave it some thought, and eventually chalked up my nervousness to my alcohol consumption. I mean it was just a damn book. I huffed and together we kept attempting to speak through the gibberish that followed. Eventually we came upon more legible words:
+“What is going on?!?” Rudy tried dragging his feet to get me to stop. He succeeded for a brief moment.
 
-"In where I'm found, thy key is given."
+I snapped, turning to face him as waves of others walked around us in annoyance. “Will you just shut up! I need to think!” Turning back around, we weaved in and out of other people’s way, creating a complicated path to follow.
 
-I felt my nerves go away, seeing everyone else so calm. The novelty of reading through gibberish was wearing off so I opted for one more page.
+Rudy said nothing more, blindly following me with an offended and confused expression on his face as we continued to aimlessly flee through the precinct.
 
-"And to return, thou must visit a shattered soul."
+“She’s still behind us!”I mumbled. Though she wasn’t in sight, she was there. The feeling of curious green eyes burning holes into the back of my head alerted me to it.
 
-I closed the book, deciding that was enough reading for now. We wrapped up the night not long after some party games. Everyone excluding myself was getting their shoes on and I was ready to lock the door as soon as the last guest left.
+Up ahead, I spotted a corridor that would lead out to the courtyard. Slowly an escape route formed in my mind. Once outside it would open up and be easier to get lost.
 
-"So you're still down for the theatre tomorrow?" Noah asked me. "We're all gonna be there for 6:00pm"
+Abruptly, I pulled Rudy into a different corridor that would wind back around and lead us through a side door out to the parking lot. This fake-out would, hopefully, misleading our pursuer.
 
-"Hell yeah I'll be there," I assured him. I tightly hugged each guest tightly before they departed from my apartment. I got texts from all except Chloe (who was with Matt anyway) saying that they got home safe. I cleaned up a little, fit my new, creepy book on my bookshelf, and flopped onto my bed. The thoughts of gratitude for friendship entered my mind and lulled me to sleep.
+“Who?!” Rudy questioned as we ran, approaching the bright white light at the end of the tunnel, or in this case, the doorlight at the end of the hall. A bubble of hope welled within me as Rudy and I neared freedom.
 
-The next morning I was awoken by my apartment shaking. I jolted up, expecting everything in my room to fall down on me. The shaking subsided, and that's when I noticed something even stranger. There looked to be soot and dust particles in the air. I inhaled, it did smell like there was a fire nearby. I thought perhaps I left my window open and a nearby fire blew all it's residue into my room.
+“Hello!” Jane bubbly greeted, popping out of  a door in front of us to our right.
 
-When I went to check my window to see if my window was open I realized it was pitch black outside. Did I wake up in the early hours of the morning? I shuffled around my nightstand in the dark until I found my phone. I saw the time before my phone abruptly shut down: 4:14pm! Why on earth was it pitch black out!?
+My shoulders slumped as I face palmed, bubble popped. “*Her.*”
 
-I got dressed and went to turn on my lights. No power. Explains why my phone may have died, too. I presumed that something electrical caught fire and forced my apartment into a blackout. I went to the bathroom to turn on the tap. I was greeted with a black sludge spewing from the tap. I quickly shut it off. I must've been dreaming the whole thing, surely. Did that weird book give me nightmares or something? When do I wake up? That question sprung an idea into my head.
+“Remember me?” She asked Rudy, politely sticking out her hand. He gladly shook it, still mildly confused. “I’m Jane Doe, the division’s criminal profiler!”
 
-I navigated around in the dark until I found a lighter, igniting the only candle in my household. The coconut and vanilla scented candle feebly attempted to combat the smoky stench in the apartment, but I was more grateful for the light. Something caught my eye while I was pacing around the room:
+I should’ve slapped that smile off her face then and there. It was fake, a mere ruse. Hidden beneath her warm and inviting exterior lay a mischievous serpentine. Jane could be one hell of a bitch when she wanted to be.
 
-The book was missing from the shelf.
+Jane then turned to me, causing my stomach to drop, as if she could read my thoughts.
 
-"Oh, crap," I muttered to myself.
+“Lucky, where’ve you been loca? I went by your cabin but you weren’t there.”
 
-I decided I needed to get the hell out of my apartment and see where all the inconveniences were coming from. If this was a dream, maybe leaving my place was the remedy I needed to wake back up. Who knows what I'd see out there, though.
+I rolled my eyes, “Jane, you do *not* get to quote *Twilight* to me right now. And you didn’t find me because I haven’t been staying up there. Currently, I’m laid up in a hotel.”
 
-To no surprise, there was no light in the apartment building. The once quaint, warm hallway leading to the stairwell was dark and smoggy. I managed to traverse the stairwell in the dark. Once I reached the bottom of the stairs there was a glaring issue with the door to the outside. There was no real way of saying it normally.
+“Oh, well,” she said beginning to twirl a stand of hair nervously, clearly not wanting to broach *that* topic around me just yet. “I’ve been looking for you.”
 
-The cover of the book had taken over the doorway to the outside. I recognized the color and ridges even in the darkness. It creaked like nails on a chalkboard. It began opening on its own, beckoning me to come outside.
+I crossed my arms into my chest and laughed. “Yeah, I know. I’ve been avoiding you.”
 
-"Just a dream, just a dream," I whispered to myself, hoping I was right. I jogged outside, thinking I'd  wake up breathing fresh air, and seeing the sun shine in my room.
+Jane frowned at that information.
 
-I was wrong.
+“How did you figure out how to find us, anyway?” I asked, patting myself on the back, “That fake-out was pretty clever if I do say so myself.”
 
-It looked like I'd stepped outside at four in the morning. The trees outside the apartment that had already lost their leaves, looked shrivelled and choked. The outside of the apartment had paint peeling from the outer siding. There didn't appear to be any fire nearby, only a thick darkness that felt like something forced nighttime to be even more absent of light.
+“It was,” Jane admitted with a shrug of her shoulders. She then winked at me and giggled, “But I’ve worked here way longer than you, Lucky Hale. I know the ins and outs of this building like the back of my hand. And, that shortcut I took was pretty clever too, if I do say so myself.”
 
-Stars didn't shine, clouds weren't present, and the humming of vehicles humming on the highway not far from me were gone. There was only one source of "light;" red streaks that tore into the sky like an open wound. It was dim, though as my eyes adjusted I could see the hue form on my body.
+An annoyed scoff left my mouth as I tried to turn and walk away. Jane maneuvered herself so that it wasn’t an option unless I directly crossed her path.
 
-I was beginning to panic, my mind would've snapped me out of this state by now. I scrambled for my car keys. I wasn't going to stick around if I could find a better place to be. Jared lived closest to me, a two minute car ride or a fifteen minute walk. I figured he'd be up.
+Another groan left my mouth as I stomped and pivoted to face away from her.
 
-When I looked up after snagging my keys I noticed that all the cars, including mine, were melting husks of metal. I dropped my keys and stared at the molten blob that used to be my Lexus. I'd saved for almost two years to buy it, too!
+“Does someone want to fill me in?” Rudy asked, tapping his foot impatiently.
 
-As I yelled in frustration, I heard slow footsteps from my left. I snapped my head in that direction and came across a familiar sight. My elderly neighbour, Doris, who lived a few suites down from me. She stared sheepishly at me.
+“‘Course I can!” Jane squeaked excitedly, running over to Rudy and wrapping an arm around his shoulders like they were best buddies. They both then faced me. “Lucky over there is a wi-“
 
-"Doris! Do you see this shit? What's going on!?" I demanded. Her expression didn't change much.
+“Nope. Not listening to it. You’re crazy.” I said, interrupting the profiler before the words could even finish leaving her mouth. With a huff, I started marching down the hallway, away from Jane. “I already told you I’m not talking about this.”
 
-"The times are always changing for the worst, aren't they?" she nonchalantly replied. It was a bit out of character but then again I also was screaming damn near at the top of my lungs.  She turned around to go back inside, and I let out a small shout at what I saw.
+“You’re going to have to face the music eventually!” She shouted back.
 
-The whole back of her body had been cut out. I could see what was left of her brain. I could see her exposed lungs expanding and contracting in short, hurried breaths. She was moving as if nothing was the matter. I couldn't find the words, I was far too choked. Then I sprinted.
+Not bothering to turn, my hand flew up and flipped her the bird.
 
-I could feel the tears of fright run down my face as I sprinted to Jared's. I was praying he was home. There was a thickness in the air that was causing me to run out of energy fast. I stopped a few times to take breathers. I noticed almost every building was decaying just like my apartment. I was fortunate that I didn't see anybody else out at this time. Considering how my neighbour was, I was grateful.
+“Real mature there, Lucky.” Jane had to cuff her hands around her mouth to amplify her sound. “Why don’t you come find me when you’re ready to act like an adult and face the truth!”
 
-I rounded the bend towards Jared's street. I wasn't far, only one last sprint to go. Something made me halt my stride, however.
+A disingenuous two finger salute was all I could muster as a response. Jane “tsk’ed” at me before returning to her office.
 
-I saw two people, if I could call them that. They looked like a mid-twenties couple. Nothing freakishly off about them. The man had a buzzcut that was thoroughly blended into his beard. The woman had bright, blonde hair. They both wore dark clothing. They were on a rotting porch attached to an equally rotting house. They were ahead to my left, the next house up. 
+Meanwhile, I had made my way outside and was enjoying the cold winters air.
 
-I resisted the urge to call out to them. My intentions were simply to slink on by as if nothing happened. I quietly speed walked by, seeing them in my peripherals as I made my way closer to Jared's. 
+“What was that all about?” Rudy asked, out of breath, after running to catch up to me.
 
-"What is this?" I heard the man ask aloud. 
+Right after asking that question, my tummy rumbled angrily, demanding I put food into it. As if our stomachs were in agreement, his growled too.
 
-"Did you want to come inside? We just finished preparing the place," the woman chimed in.
+With a sigh, I replied, “I don’t have the energy to explain on an empty stomach. Since I’m stuck with you, might as well grab some lunch.”
 
-I froze for a second, doing a quick take at them to see if they were looking at me. Indeed they were. Their eyes were uncanny, placed far too apart on their faces. Their smiles were inviting, but unsettlingly wide. 
+“Not going to say no to food,” Rudy shrugged.
 
-Before I could even answer them, the man gouged out his partner's eye with his thumb. I could hear the squishing and popping from where I was. She chuckled, doing the same to him. I was paralyzed with dread as the couple literally began to tear each other's faces apart. 
+Together, the two of us started to stroll towards the food truck’s that were usually stationed at the park entrance down the street.
 
-Adrenaline urged me to run, and I was reaching Jared's fast. If this was a dream, I think I'd have woken up by now. 
+After receiving our food from the slightly off-put vendor, Rudy had asked for his birria tacos to be extra *extra* bloody while flashing a fangy smile, we retreated to a secluded picnic table.
 
-I finally got to Jared's place. The large property was looking rough, but still graceful despite the hellish conditions. I noticed something different about his place in comparison to the others: the windows had been boarded up. That filled me with hope, perhaps he was in there. If he was fortifying the place, then that means he probably wasn't as crazy and demonic as the people I'd encountered. 
+After wiping a light dusting of snow off the metal benches and table, the two of us sat down and enjoyed our street tacos.
 
-I tried the doorbell, but it had been disabled. I began frantically pounding on the door.
+The park around us could truly be described as a winter wonderland. Michigan had finally gotten a decent snow, about three to four inches, compared to the past couple of flurries that swept through the area leaving behind virtually nothing. Christmas trees, lights, a nativity scene, and other decorations had been set up all over the park and walking trails for the upcoming holiday. The festive music playing at the outdoor skating rink really tied everything in.
 
-"Jared! Jared, are you home!?" I pleaded, hoping for a response. 
+The temperatures had started to plummet as well. Apparently a couple people have already been hospitalized for hypothermia or so says the local news. They recently did a segment about staying vigilant while outside to avoid suffering from such a fate after a woman died from freezing to death.
 
-I heard something move inside the house. 
+After finishing my first taco, I looked over at Rudy, who was happily slurping away at his consomé, tacos untouched. While I reveled in the food’s warmth, the revenant barely seemed bothered by the cold and more interested in filling the pit in his stomach.
 
-The mail slot on the door swung open and I saw the barrel of a gun poking out, striking me in the side of the head. 
+Internally I shrugged, figuring the undead don’t felt much anyway.
 
-"Jared! What're you doing!? It's me, Marshall!" 
+If you’re confused on how he hasn’t burst into flames yet, let me tell you. I’ve said it once, and I’ll say it again: the media does not portray supernatural lore correctly.
 
-"You're the fourth 'Marshall' I've seen this week! You're not fooling me!" I heard Jared's voice boom from behind the door.
+Vampires -and thus revenants- can day walk. Most choose not to because of the aversion to sunlight and sun poisoning sensitivity. Another reason being that their abilities are dampened in the daylight, and nobody likes to feel weak.
 
-This week? I'd just woken up in this nightmare and he'd been here for over a goddamn week?
+That’s why Dustin could shift even though it wasn’t a full moon. Werewolves, yes, are forced to shift during the full moon- but they can force a manual shift whenever they want or even stressful environmental factors can start to trigger it.
 
-"Jared, I'm unbelievably terrified, and if what you're saying is true then I'm so sorry you're in this situation!," I cried. "I've known you for almost ten years, you gotta trust me!"
+Speaking of, I was tired of people dancing around the topic for my sake. I needed someone to talk to about it. Since Beth was on vacation for the holidays, Rudy would have to be the next best thing.
 
-There was a pause, as if Jared was thinking hard about what to say next. I slumped myself away from the door, so my close friend wouldn't blindly kill me. 
+A second taco disappeared into my stomach as I divulged everything that went down.
 
-"The other ones claimed to know me too! Just leave me alone!"
+“I’d heard something had happened,” he said, bitting his thumbnail. “No wonder he reeked of wet dog.”
 
-Why wasn't he coming out to confront me? If I was some sort of imposter creature, wouldn't he just kill me here and now? He had a gun to my head a second ago. I thought about it, maybe he was scared. Maybe the things didn't quite know everything about him...
+“Guess you’ve never smelled a werewolf before,” I said, realizing just how new he was to being supernatural. Sure, even though he doesn’t fully remember that he’d hunted them, he’s never experienced being one either.
 
-"Breaking up with Lizzy did a number on you! You always get extra pearls and less sugar in your bubble tea! Your favourite show is-" 
+Rudy slurped up the rest of his birria sauce, his breath becoming a visible fog as he let out a satisfied sigh. “So what does that whole thing have to do with Jane?”
 
-The door swung open, revealing my dear friend Jared standing with a hunting rifle. He took a few inspecting glances at me before ushering me inside. I gave him a big hug of relief, and he reciprocated. He inspected me after he closed the door.
+“She thinks I’m a witch,” I explained.
 
-"You said there was multiple of...me?" I asked.
+“A witch?” His eyebrows furrowed curiously. “So, Jane’s a witch too. What’s the big deal?”
 
-  
-"Almost looked like you, too," Jared sighed. "Except the faces were wrong, and one of them had missing parts of their bodies..." 
+“No, you don’t understand,” I sighed, rubbing my temple. “There’s two kinds of witches.”
 
-Jared shuddered at the thoughts of them. Jared had candles lit
+“Really?”
 
-The inside of his place stunk, a stark contrast to the pristine conditions he'd kept them in before. The candles didn't help at all. 
+“Yes, really. You know how during the Salem Witch Trials, the accused were said to fraternize with the devil and dance around bonfires in the woods at night?”
 
-"Are your parents here, too?" I asked. Jared frowned. 
+“Sureeee,” Rudy replied, lying through his teeth.
 
-"In the basement, under the sheets. They're difficult to miss" 
+I rolled my eyes. “Well, “the devil” was actually an Elder. Fae. One way humans are able to wield magic is going through a binding ritual with an Elder in order to serve them. Part of that ritual is dancing around a large bonfire under the moonlight.”
 
-"I'm...I'm so sorry."
+Rudy leaned in closer, intrigued. “And the other?”
 
-"Your family, you hear from them lately?"
+I gulped. “The other way a human can wield magic is if they are a natural born witch. Meaning one of their ancestors had undergone the binding ritual I mentioned earlier, but with an immensely powerful Elder. So powerful that somewhere down the bloodline a descendant has that connection to the magic but not to the fae. Which, Is *extremely* rare.”
 
-"Can't say I have..." I muttered. "Haven't been bothered to check in years. Moved across the country to get away from them, and in this shit-fest we're in I wanted to find you guys first."
+“Ohhhhh, I still don’t get it,” Rudy muttered, dumbly.
 
-Jared nodded in approval. 
+I groaned, pinching the bridge of my nose. “Jane thinks I’m a natural born witch.”
 
-"I think we should find the others," I declared. 
+His eyes lit up as it finally clicked in his brain. “And you were avoiding her because you don’t think so?”
 
-"You realize they're all on the other side of the city, right? You and I are safe here," Jared challenged. 
+“No,” nervously I twiddled my thumb, ignoring the sinking feeling in my heart, “because I’m afraid she’s right.”
 
-"But the theatre isn't," I snapped back. "Maybe they're there, they could be in trouble."
+“Oh-“
 
-Jared pondered a little, before a lightbulb idea dawned onto him. "You remember anything from that book you read?" 
+“I-it explains so much,” I confessed, a stinging feeling erupting in my eyes as tears started to form. Before I could stop myself, the words fell from my mouth as I went into my backstory.
 
-"You think it's got something to do with this situation too, hey?" I asked, partially reassured. 
+Before I joined the division, back in Chicago, I had a partner. Henry Olson.
 
-"I saw it earlier...the markings and text were written all over my home and then...I was here," he explained. Similar experience to myself. 
+He was my rock. Helped put me back together after my first six months on patrol. Being a new cadet was one thing, on top of being a woman… it was pure hell.
 
-"Upon thy next waking the gates will open," I recited. The house began shaking for a brief moment. It was as if the universe was listening to me. 
+Like I’ve mentioned before, rookie was used derogatorily at my old precinct. I was bullied and constantly harassed by men higher in rank than me. Powerless to do anything and they knew it.
 
-"What was the next part?" Jared asked, almost excitedly.
+To be honest, I was thinking about quitting the force. Then I met Henry. He’d been an officer with CPD for almost five years at that point. Since it was protocol to pair more experienced officers with the newer ones, we were randomly put together due to luck of the draw.
 
-"In where I'm found, thy key is given..?" I kept recalling the phrases I understood. The house shook again.
+Lucky, I was. Henry stood up to my bullies when he found out about them, and not only that, but he encouraged me to start standing up for myself as well. My confidence sky rocketed and I started performing better on all my tasks.
 
-"I'm gonna bring your place down if I keep talking about it," I said, nervously. "In where I'm found...hmmm."
+It sounds stupid to say, but Henry made me a better person. And together, we worked like a well oiled machine, keeping the streets of Chicago clean and safe.
 
-An idea dawned on me. "You got any idea where Matt and Chloe got that book?" 
+And on top of his charming personality, his good character drew me in hook, line, and sinker. It was a bit taboo, but the two of us started dating two months in. Henry and I had become partners in both the literal and romantic sense. I don’t think I was ever alone during those months. We were always together, two peas in a pod.
 
-Jared nodded, "The bookstore in Lowground Mall..."
+Alas, what they say about good things never lasting is true. Everything went wrong six months into our partnership.
 
-"...Which is attached to the theatre!"
+We’d been promoted and were working VICE then. Staking out a secluded barn on the outskirts of the city. It was rumored to be a storage facility belonging to a drug lord we were tracking down. Supposedly materials to make illicit substances were housed inside.
 
-With any luck, we'd be able to venture to Lowground Mall in roughly an hour and a half on foot. I fitted myself with a couple of makeshift clubs that Jared had built. Nothing had outright attacked me, yet, but I wasn't counting on everything in this plane of existence to be neutral at best. I was banking on our friend's loyalty to be unwavering, and that they'd do anything to meet us there. 
+What we didn’t know was there was also a vampire nest that resided in there too. And they didn’t take kindly to unwelcome visitors.
 
-"That key had better be going through this hell to get through," I hissed, stepping outside. 
+Before we knew it, Henry and I had been pulled out of his car and severely beaten. Of course we tried to defend ourselves with our service weapons, but seeing as the attackers were supernatural, that did little more than piss them off.
 
-Our destination was set, the theatre attached to Lowground Mall. Plans were still on for today, it seemed.  
+Confused and scared why our bullets didn’t seem to work, the two of us were lined up execution style. Before I knew it, one of the male vampires revealed his true self and bared his fangs at Henry, allowing the true terror of the situation set in. With a sickening squelch, the vamp had unhinged his jaw and taken a giant bite out of Henry’s neck and shoulder.
 
-Jared had pocketed as much ammunition as he possibly could. He must've seen some terrible things if his first reaction was to shoot. 
+The other two held me down while I struggled to free myself, forcing me to watch every agonizing second of my partners death. At one point it got too unbearable to watch. Involuntarily, my eyes had shut themselves, blocking the horrid sight in front of me.
 
-"Ready?" I asked. 
+All I remember after that point was a gut wrenching feeling surge through me. Then, suddenly, everything stopped. When my eyes opened again, the vampires were gone. Vanished into thin air. To this day nobody knows what happened to them.
 
-"Ready," Jared answered.
+Lying lifeless on the ground was Henry. Stumbling, I had pressed my hands into the gaping neck wound, hopelessly applying pressure to his vital arteries. Deep down though, I knew, he was gone.
 
-We managed to get through our community without seeing any creature. It was much of the repeated destruction carried through the city. Something new was coming, however.
+Quietly, I sobbed over Henry’s body. I didn’t want him to end like that, *us* to end like that. It wasn’t fair, it couldn’t be.
 
-Wind. A squall of wind blew at Jared and I, knocking us off balance. The force nearly toppled us, as it bent away at the rotting housing and trees. It was hot, and smelled of death. I looked back at Jared to make sure he was good. After getting back upright, he confirmed he was ok. 
+The grief tore me into shreds, feeling like my insides were being torn apart. I didn’t know how to exist without Henry. I couldn’t go back to my life before. Alone, anxious, and antagonized. I couldn’t *allow* him to leave me. Not in that state.
 
-There was a pause, then the wind blasted us again. Something was different about this squall, however. 
+It sounds stupid, but it’s like I willed him back. After a minute, Henry dramatically gasped to life, grabbing at his neck and throat.
 
-Carried in the wind was a distressing yet familiar cacophony of screams:
+Relieved, panicking, and fueled by adrenaline, I managed to pick him up and drag him to the car, high-tailing it out of there to the nearest hospital. After a week, the two of us barely pulled through.
 
-Matt's and Chloe's. 
+I thought everything would be fine. Henry and I were both alive and that’s all that mattered. But shortly after we got home, Henry started to change. Or maybe, he hadn’t came back the same in the first place. Either way something about him was different.
+
+He was pale and gaunt. The spark in his eyes had disappeared, replaced by something darker. Something I couldn’t possible begin to understand. Worst of all, was the hunger. After a couple days of trial and error, I discovered the thing that satisfied him most was raw, bloody meat.
+
+I chalked it up to trauma at first, figuring his new found appetite was some sort of coping mechanism. We’d be okay, I reassured myself. Everything would go back to normal soon. He’d get over it and we could go back to our happy lives.
+
+But things quickly got out of hand. Henry got hungrier, craved more and more. It got so bad that he physically attacked one night after dinner, almost killing me. He escaped and drained the first random person he saw. A single mother of four on her way home from her second job.
+
+It was then that I knew that Henry wasn’t Henry anymore. How could I have possibly known that when he came back he’d come back as a monster? Came back as a revenant?
+
+Feeling responsible for that woman’s death, I knew I had to track down and subdue him. By the time we crossed paths again, Henry was barely a shell of his former self. He’d morphed into something grotesque and unrecognizable, an insatiable and inhuman blood thirsty machine.
+
+I almost died in that fight. Henry was ten times stronger than a normal vampire, fueled by all the blood he’d consumed. Somehow, I pulled through, managing to stake him right through the heart. Figuring if it looked like a vampire and acted like a vampire, why not kill it like a vampire?
+
+It worked and for a brief, bittersweet moment, Henry returned back to me. He kissed me and said goodbye. Then he faded away and crumpled to ground. Left in his stead was a pile of ash.
+
+After that, Dawn found me. Explained to me how the real world works and helped me clean up the mess. After that, he enlisted my help to take down the same nest that had attacked my Henry and I. Obviously, there were no qualms on my part and we got the job done.
+
+That’s when I got my nickname, Lucky. Because that’s what I was. Lucky to have been partnered up with Henry Olsen. Lucky that I made it out of that storage facility attack alive. Lucky I wasn’t there to see what became of Henry after he had a mental breakdown and disappeared.
+
+Lieutenant Dawn recruited me to the division. Seeing as there wasn’t much left for me in Chicago anyway, I left. Came here.
+
+“Now, I’m here with you,” I said to Rudy, sniffling. At some point he’d reached his hand across the picnic table to comfort me. I’d never admit it, but it was helping.
+
+I’d never told anybody that before. Not even Beth, but that’s because she doesn’t know what I really do for work. Lieutenant Dawn only knows because he was there with me, but that was at the end. In the beginning I was alone and had nobody to turn to.
+
+“I understand,” he said, rubbing his thumb across the back of my palm. “I’m just as scared as you were. Terrified of myself, of hurting someone else.” Rudy ruefully chuckled, “You tell me how I was this monster hunter before, but I don’t know that man. He’s not me and I don’t want to be him. In the beginning, like you, I was alone in a new world where everything was unknown and different to me. But then, I turned myself in. Now, I’m here with you.”
+
+I smiled a small smile. My new partner did the same.
+
+After our conversation it felt… I dunno, *freeing?* Like a weight had been lifted off my chest. I wasn’t alone anymore, and Rudy… he was turning out to be alright.
+
+The two of us jumped as my work phone started ringing. Instantly I answered it, recognizing the number. “What’d ya got?”
+
+“Oh, you’re going to love this one,” dispatch said over the phone.
+
+I rubbed my hands together while standing up from the picnic table. After getting all the details, it was time for Rudy and I to work the first case of the day. “Alright rookie, lesson one: cursed objects!”
