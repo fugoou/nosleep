@@ -1,39 +1,36 @@
-# deer of the Old Dominion
+# A werewolf attacked me in my cardboard fort when I was 6. 
+I can still see it. A huge refrigerator box on my kitchen floor. A square cut hole on the side as a window. What more could a couple of kids ask for? My cousin and I were beyond excited and started playing right away. It was huge inside, dark, the tile floor was a cold retreat from the Florida heat.  
 
-as i stepped out onto my porch, sipping my morning coffee, i noticed a lone deer grazing in my front yard. it’s large brown eyes seemed to lock onto mine, and for a moment, we just stared at each other. i felt a shiver run down my spine, but i brushed it off as mere curiosity. after all, deer were common in our rural area.
+Sam and I played all day, I think my mom was in her room smoking. She always stayed in there and her room would smell like tobacco and something else..kind of spicy? Stinky? I don’t know, it didn’t matter, she left us alone and we would play all day until Sam’s dad came home. See they both lived with us. Me, Sam, mom, and Uncle Devin. It was great. 
 
-but as the days went by, i started to notice a pattern. every night, around dusk, the same deer would appear in my yard. it would stand there, motionless, watching my house with an unnerving intensity. i tried to shoo it away, but it wouldn't budge. instead, they would back away slowly, their eyes fixed on me with a malevolent glare. it was as if they were warning me to stay away, to not interfere with whatever it was they were waiting for.
+  Me and Sam were playing in our box that night, we played maze and the imagined tunnels went winding on like a gator in a death roll. Left and right, dead ends and go backs. We jumped over booby traps and dodged poison arrows. 
 
-at first, i thought it was just a curious animal, but as the nights passed, i started to feel a growing sense of unease. the deer's presence seemed to be... deliberate. as if it was waiting for something, or someone.
+My mom finally came out and sent us to bed just before we found the treasure. She’d sent me to bed but I don’t remember if she hugged me. 
 
-and then, on the fourth night, i saw another deer join the first. they stood side by side, their eyes fixed on my house. i felt a chill run down my spine as i realized that i was being watched by not one, but two pairs of unblinking eyes.
+I went to my white walled bedroom, I remember bunk beds and no window cover, toys strewn on the floor and an old two story doll house with iron furniture. 
+I was changing in front of my window to my bed clothes and just before I fully pulled my shirt over my tummy, something wrapped on the window and scared me. I quickly pulled my head all the way through and stared hard out the window. 
 
-over the next few days, the number of deer grew. five, ten, twenty... they just kept coming. they would gather in my yard every night, their eyes glowing in the dark. i tried to stay inside, but i could feel their presence, even through the walls.
+The dark rectangle showing me nothing but my own shocked reflection against the black background of the night sky and woods that surrounded our house. I stared for a long time, my little heart beating out of my little chest, but saw nothing but my white blonde hair, pale skin, and buttery green blue eyes. I decided it had to be an acorn and I went to sleep. 
 
-it was as if they were waiting for something to happen. something that would signal... what? i had no idea, but the anticipation was suffocating.
+I don’t remember Sam coming to bed though, we shared a room and the top bunk was hers. Oh well, I was too young to care and took myself to sleep. 
 
-one night, i woke up to the sound of rustling leaves and snapping twigs. i looked out the window, and my heart nearly stopped. there were hundreds of deer in my yard, their eyes shining like a sea of lanterns. they were packed tightly together, their bodies swaying gently in the breeze.
+That was the first night I ever dreamt of the scary tunnels, of falling and landing in different mazes. Of flying and landing back to my own cozy maze and woke up in the morning still tired… and sore? 
 
-i was paralyzed with fear, unable to move or speak. the deer seemed to be... pulsing, as if they were connected by some unseen force. and then, in perfect synchrony, they turned their heads towards my house.
+My throat hurt and it felt sticky inside. I swallowed but gagged as if I had toothpaste stuck in the back. 
+I went to the bathroom and drank water from the sink and then went to find my mom, I didn’t see her but I smelled the funny smoke and decided to play a trick, I knocked on her door and then skedaddled to my box and hid underneath it, I giggled ridiculously and shook with excitement, I was gonna scare her! 
 
-i felt a cold sweat break out all over my body as i realized that i was the focus of their attention. whatever they were waiting for, it was me.
+She’d look for me and I’d jump out like a ghostie and give her laugh! I heard my mom’s door open, dragging on the carpet in one long opening swoop, 
+“Dez?” She called, I stifled another giggle and went to peer out of the small square window. 
 
-i was left shaken, wondering what had just happened. was it some kind of bizarre animal behavior? or was it something more... sinister?
+I saw her legs, long and tanned from the Florida sun, I saw her shorts, zebra print and short, rolled up a couple times at the waists band, she walked closer to the kitchen and the box where I squatted and waited. 
+I was trembling with anticipation and a surge of adrenaline, 
 
-as i stood there, trying to make sense of it all, i felt a creeping sense of dread. the deer may have disappeared, but i knew that they would be back. and next time, i had a feeling that they wouldn't be alone.
+I was gonna do it! 
 
-as the nights went by, the deer continued to gather in my yard. but it wasn't just their numbers that unsettled me - it was their behavior. they seemed to be watching me with an unnerving intensity, their eyes gleaming with a mixture of fear and suspicion.
+“Dez! Stop fucking playing and come ..”
 
-at first, i thought it was just my imagination. but as i observed the deer more closely, i realized that they were indeed acting strangely. they would sniff the air nervously, their ears twitching at the slightest sound. they seemed to be waiting for something to happen, their bodies tense and alert.
+“BOOOOO!” 
 
-as the days passed, the deer's behavior became increasingly erratic. they would appear in my yard at all hours of the night, their eyes glowing like embers in the dark. they seemed to be patrolling the perimeter of my property, as if they were guarding something.
+I jumped up, pushing the box above my head! 
 
-i started to feel like i was under siege, with the deer gathering in my yard like an army of sentinels. i couldn't sleep at night, my ears straining to catch the sound of their hooves on the grass.
-
-and then, one night, i saw something that made my blood run cold. As i looked out the window, i saw one of the deer approaching my front door. it sniffed at the threshold, its ears twitching nervously.
-
-suddenly, it let out a high-pitched bleat, and the other deer gathered in the yard turned to face my house. they seemed to be waiting for something to happen, their eyes fixed on my front door with an unnerving intensity.
-
-i knew then that i had to get out of there. i grabbed my keys and made a run for my car, not stopping until i was miles away from my house.
-
-as i looked back in the rearview mirror, i saw the deer gathered in my yard, their eyes glowing devilishly. i knew then that i would never be able to go back to that house again.
+A zap of lighting hit my head and everything went black. 
