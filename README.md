@@ -1,36 +1,61 @@
-# A werewolf attacked me in my cardboard fort when I was 6. 
-I can still see it. A huge refrigerator box on my kitchen floor. A square cut hole on the side as a window. What more could a couple of kids ask for? My cousin and I were beyond excited and started playing right away. It was huge inside, dark, the tile floor was a cold retreat from the Florida heat.  
+# Our neighbors wear our clothes 
+I've been a horror fan since I can remember. My brother and I used to binged watch 90's and 2000's horrors and slashers film everynight. But this didn't prepare me from the shit that's been happening lately. 
 
-Sam and I played all day, I think my mom was in her room smoking. She always stayed in there and her room would smell like tobacco and something else..kind of spicy? Stinky? I don’t know, it didn’t matter, she left us alone and we would play all day until Sam’s dad came home. See they both lived with us. Me, Sam, mom, and Uncle Devin. It was great. 
+This first started when we moved here 2 weeks ago—in a secluded town near the Appalachian. Far north than I can remember. My father got promoted to supervise a nearby mine, so we had no choice but to relocate to this town. At first it was ok, the locals are not that far from your average citizen. They were quite friendly, almost too friendly to my brother's liking. Who's usually judged and criticize for his choice of dark clothings
 
-  Me and Sam were playing in our box that night, we played maze and the imagined tunnels went winding on like a gator in a death roll. Left and right, dead ends and go backs. We jumped over booby traps and dodged poison arrows. 
+So when his clothes started going missing from the clothing rack in our backyard. We initially thought it was the wind, until we saw his black Metallica printed socks being worn by our classmate who's also living next to us. 
 
-My mom finally came out and sent us to bed just before we found the treasure. She’d sent me to bed but I don’t remember if she hugged me. 
+Being the confrontational twin, my brother demanded that he give it back. Fortunately, the two didn't broke into a fight and the other just gave his socks willingly. 
 
-I went to my white walled bedroom, I remember bunk beds and no window cover, toys strewn on the floor and an old two story doll house with iron furniture. 
-I was changing in front of my window to my bed clothes and just before I fully pulled my shirt over my tummy, something wrapped on the window and scared me. I quickly pulled my head all the way through and stared hard out the window. 
+I thought that, that was the end of it. 
 
-The dark rectangle showing me nothing but my own shocked reflection against the black background of the night sky and woods that surrounded our house. I stared for a long time, my little heart beating out of my little chest, but saw nothing but my white blonde hair, pale skin, and buttery green blue eyes. I decided it had to be an acorn and I went to sleep. 
+Until last week, my mother's blazer went missing. 
+I'm not usually quick to assume things. But from the fiasco that happened last week. I know that I have to tell her what happened. But she disregard it, telling me that she might have misplaced it like she usually did to some of her belongings. 
 
-I don’t remember Sam coming to bed though, we shared a room and the top bunk was hers. Oh well, I was too young to care and took myself to sleep. 
+My brother and I stop pushing her to it. She always wanted to make a good impression to the people around her, and the last thing she wanted is to point a finger to someone she barely know. 
 
-That was the first night I ever dreamt of the scary tunnels, of falling and landing in different mazes. Of flying and landing back to my own cozy maze and woke up in the morning still tired… and sore? 
+So we let it happened. The next thing we knew, her dress was gone, her jacket missing, and even her shoes that she safely tuck in our shoe cabinet inside our house was gone missing as well. 
 
-My throat hurt and it felt sticky inside. I swallowed but gagged as if I had toothpaste stuck in the back. 
-I went to the bathroom and drank water from the sink and then went to find my mom, I didn’t see her but I smelled the funny smoke and decided to play a trick, I knocked on her door and then skedaddled to my box and hid underneath it, I giggled ridiculously and shook with excitement, I was gonna scare her! 
+My mother's concern finally went to our father. And we report it to the police the next day, they made a search to their house and didn't find anything.
 
-She’d look for me and I’d jump out like a ghostie and give her laugh! I heard my mom’s door open, dragging on the carpet in one long opening swoop, 
-“Dez?” She called, I stifled another giggle and went to peer out of the small square window. 
+My brother and I were grounded after that. Especially my twin, who was adamant to help with the search. 
 
-I saw her legs, long and tanned from the Florida sun, I saw her shorts, zebra print and short, rolled up a couple times at the waists band, she walked closer to the kitchen and the box where I squatted and waited. 
-I was trembling with anticipation and a surge of adrenaline, 
 
-I was gonna do it! 
+Now that our neighbors knew what happened. We kept a low profile for a while. Disregarding the stares we've been getting since that day. It's just so weird that we are being scrutinized when we were the ones with the stolen items. 
 
-“Dez! Stop fucking playing and come ..”
+And just three days ago. When our parents went out and my brother went somewhere with his friends. I was left alone to guard whatever we have in the house. And I made sure that our clothes, shoes, anything that can be stolen is kept safe inside. I dead bolted all the doors and lock the windows to make sure that no one gets in. 
 
-“BOOOOO!” 
+And as the day slowly goes dark, the eerie feeling of being watch keeps getting stronger. I was restless. The TV that has been my only company the whole night was drown out by my thoughts. And I felt completely alone yet can't shake off the feeling that I wasn't. That there's someone with me at the moment. 
 
-I jumped up, pushing the box above my head! 
+My anxiety led me to call my brother, but his phone was out of reach. My parents took the call but disregarded whatever I told them. By the time I ended the call, I was already in my room. Locked from the eerie quiet of what's outside. 
 
-A zap of lighting hit my head and everything went black. 
+lt didn't take long when I heard something. Like someone was walking with their tippy toe. The soft creek of our wooden floors gave it away but the sound of my heart beating on my chest almost made me missed it. 
+
+This confirms my suspicion 
+
+I peeped through the gap between the floor and my bedroom's door. The light outside the living room remained on, and I can see the vacant room clearly. It remained quiet like there's no one outside but the minty smell coming from somewhere gave it out. 
+
+I know there's someone out there. Like someone is purposely trying to scare me. Whatever this is, this didn't look like a typical break in. They wouldn't have left a trace nor a smell. But the strong coolness of mint left my brain foggy. 
+
+I stood up to barricade the door with a chair when suddenly a voice, came out from the other side. It sounds like my mother. She was asking me to come out. Like she knew that I'm in my room the whole time. I didn't respond. I'm already scared shitless to utter a word. But for some goddamn reason I crouch back to see what's outside. 
+
+And I shouldn't have done it. 
+
+Because from out of the normal; the sofas, the turned off TV and the lamp table besides the television, the only thing that stands out like sore thumb is a foot standing irregularly stiff, a few feet from my door. Wearing the same shoe—my mother was convinced she misplaced. 
+
+She didn't knock nor tried to break in. She just stand there waiting for me to say anything or do anything. And when it already feels like an hour. She took a step forward, but with the tip of her sandals, her heels up. Walking on tippy toes towards my room. 
+
+She called again. Her voice was soft and not threatening. 
+
+This time I used my body along with the chair to barricade what's out there. 
+
+She keeps calling my name as if she knows me. Using the voice, I thought it was my mother. But her's was a bit deeper. Almost an imitation. She didn't bang the door nor force herself in. She just stands there. Waiting for me to do something. 
+
+I remember how sweaty I was despite the cold. And I almost forgot how that night ended. All I knew is my brother found me sleeping next to the chair I used to barricade with. 
+
+He said my room was open before he got back. And I was lying limp with my head on the chair, sleeping soundly. 
+
+If that was a dream. That was the most fuck up shit I've ever experienced. And I won't take it any other than that. 
+
+Still, I can't help but ask myself. Who open the door before my brother or even let himself in. 
+
