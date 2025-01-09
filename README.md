@@ -1,61 +1,36 @@
-# Our neighbors wear our clothes 
-I've been a horror fan since I can remember. My brother and I used to binged watch 90's and 2000's horrors and slashers film everynight. But this didn't prepare me from the shit that's been happening lately. 
+# Should I take the offer?
+College. Some called it a waste of money, a way to open new doors; some even called it the best way to date! It was just a means to an end, a way to get a fancy piece of paper that enabled me to enter the business world. But, maybe, just maybe, I should have paid some more attention in my classes and less attention to the clock on the wall that counted down when I'd be free to run to the meal hall. But here I am, 4 years later, a bachelor's in psychology and no want, or way, to continue into a master's program, barely paying the monthly bills in my dead-end job as a grocer. Or at least that was the case until a few days ago.
 
-This first started when we moved here 2 weeks ago—in a secluded town near the Appalachian. Far north than I can remember. My father got promoted to supervise a nearby mine, so we had no choice but to relocate to this town. At first it was ok, the locals are not that far from your average citizen. They were quite friendly, almost too friendly to my brother's liking. Who's usually judged and criticize for his choice of dark clothings
+Let me give you a quick breakdown of how I ended up in my current predicament. It was a typical Tuesday. I was checking customers out and having friendly, small conversations! "Hello, how are you?"
 
-So when his clothes started going missing from the clothing rack in our backyard. We initially thought it was the wind, until we saw his black Metallica printed socks being worn by our classmate who's also living next to us. 
+They would respond, "Oh, that's fine. I'm just buying some groceries for the week! You know how it goes."
 
-Being the confrontational twin, my brother demanded that he give it back. Fortunately, the two didn't broke into a fight and the other just gave his socks willingly. 
+The conversation would end as I handed them their receipt, only to see them throw it in the garbage. (So that you know, you're always welcome to decline it; most don't mind.)
 
-I thought that, that was the end of it. 
+But anyway, I'm wandering. Probably cause of how strange the whole damn thing was. The weirdest part was the temperature. Our store is typically kept at a pleasant 75℉, but as the customer walked up, I just felt the temperature drop; it wasn't noticeable at first, maybe a degree or two, then 3, 4, 5, it just kept slipping as he approached, this tall man, about 6'6", giant of a dude, in a long black trenchcoat, and a black fedora, completely covering him.
 
-Until last week, my mother's blazer went missing. 
-I'm not usually quick to assume things. But from the fiasco that happened last week. I know that I have to tell her what happened. But she disregard it, telling me that she might have misplaced it like she usually did to some of her belongings. 
+The temp had to be in the low 50s by the time he walked up! I was shivering to high hell, wrapping my arms around me. Hell, the dude in front of me (if I can even call him that; it was kinda tricky to make out his gender, was breathing out a visible cloud of hot air. The strange thing is no one noticed. Not even my coworker at the next stand; they didn't even look cold. No, it was just me, shivering away like a fucking maniac, teeth chattering. I'm sure most people would call that weird, but it gets stranger, I swear.
 
-My brother and I stop pushing her to it. She always wanted to make a good impression to the people around her, and the last thing she wanted is to point a finger to someone she barely know. 
+I decided against commenting on the noticeable temperature drop (I'm just praying to God it was a weird malfunction of the A.C.!) and instead asked, "Uhh, sir? Do you have any goods that you're buying today?"
 
-So we let it happened. The next thing we knew, her dress was gone, her jacket missing, and even her shoes that she safely tuck in our shoe cabinet inside our house was gone missing as well. 
+And in the graveliest voice I've heard, like a Batman impression done shittily, I listen to him respond, "Yes… Just… This… Piece… Of… Fruit….", and in that same bizarrely delayed tone, he sets down a rotten, moldly, apple, that looks to have expired last year. Hell, I couldn't see a sticker on it anywhere!
 
-My mother's concern finally went to our father. And we report it to the police the next day, they made a search to their house and didn't find anything.
+I respond, "Uhhh, sir? That apple seems to have gone bad; would you prefer another?" I shoot him a polite smile, chock-full of all the nervousness of a kid about to be beaten!
 
-My brother and I were grounded after that. Especially my twin, who was adamant to help with the search. 
+"No… Thank… You… And… What… Do… You… Mean… Expired…?" God, you could feel the air drop another 10 degrees in that instance, hell it felt like time was slowing down with it, and I could feel my heart being gripped in my chest as he looked down at me… and Oh god, I shouldn't have made eye contact with him, god, fuck, it was like looking into the sky on a pitch black night, knowing damn well that if you died, you wouldn't be found… God, I regretted everything I'd done up to that point… I felt like death was just around the corner.
 
+"Sorry, sir! I must be seeing things. This apple is excellent! That'll be $4.50!" I chipped out, desperate to have him forget my comment. But I saw that he didn't believe me. I needed a different solution now, so I tried something else.
 
-Now that our neighbors knew what happened. We kept a low profile for a while. Disregarding the stares we've been getting since that day. It's just so weird that we are being scrutinized when we were the ones with the stolen items. 
+"Uhhh, sorry, sir! I'm just tired from searching for work. It must be causing me to hallucinate." I felt him look confused for a second, and I could feel my heart unclench. At that moment, I knew I wouldn't be dying today, at least not from that giant of a human. Thankfully, I wouldn't be dying from that giant of a human.
 
-And just three days ago. When our parents went out and my brother went somewhere with his friends. I was left alone to guard whatever we have in the house. And I made sure that our clothes, shoes, anything that can be stolen is kept safe inside. I dead bolted all the doors and lock the windows to make sure that no one gets in. 
+"Work… You… Say…? What… Kind… Of… Work…?” I watched, in great relief, as his hand scratched his chin.
 
-And as the day slowly goes dark, the eerie feeling of being watch keeps getting stronger. I was restless. The TV that has been my only company the whole night was drown out by my thoughts. And I felt completely alone yet can't shake off the feeling that I wasn't. That there's someone with me at the moment. 
+"Just work as a therapist, sir! I've been looking, but no one seems to be looking for an untested bachelor's degree holder." I watched then as he slowly reached into his pocket, that same damn slowness. Also, I should note that the store was dead quiet at this point. I didn't dare to look away from him, but I could see, just barely, out of the corner of my eye, my coworker, doing the most perfect impression of a statue.
 
-My anxiety led me to call my brother, but his phone was out of reach. My parents took the call but disregarded whatever I told them. By the time I ended the call, I was already in my room. Locked from the eerie quiet of what's outside. 
+"I… Have… Work…, I… Run… A… Clinic…. I… Need… Labor… Would… You… Like… To… Be… Our… In… House… Therapist…?” As he set down a piece of paper in front of me, I watched as his glove brushed against the table, and I saw, cold… just… cold… as his glove stroked across the plastic belt of the table, this ice, spread, like an effect from an anime, just this circular sprout of ice!
 
-lt didn't take long when I heard something. Like someone was walking with their tippy toe. The soft creek of our wooden floors gave it away but the sound of my heart beating on my chest almost made me missed it. 
+"I…. I'll need to consider it! Thank you for the offer, though, sir!" I'd had the feeling that if I turned him down there, he'd turn me into a fucking ice sculpture!
 
-This confirms my suspicion 
+"Your… Ability… To… See… Me… Impresses… Me… I… Hope… You'll… Consider… Correctly…” And with those words, without even purchasing his apple. He left…, and as he left, I watched as time began to speed back up, and things went back to normal… from sound… to my coworkers… to my own body… hell… even the table looked normal again. As soon as I felt safe, I had a weird compulsion to analyze this… flyer? Ticket? Pamphlet? It's a little hard to tell because it was almost crumbling in my hands as I read it… “\*\*\*\*\*\*\*\* Sanatorium” it read. Contact at the bottom, and nothing else really out of the ordinary with it? God, I'm pretty sure I must be crazy or just dead tired. There is no way in hell that time could freeze like that. Right?
 
-I peeped through the gap between the floor and my bedroom's door. The light outside the living room remained on, and I can see the vacant room clearly. It remained quiet like there's no one outside but the minty smell coming from somewhere gave it out. 
-
-I know there's someone out there. Like someone is purposely trying to scare me. Whatever this is, this didn't look like a typical break in. They wouldn't have left a trace nor a smell. But the strong coolness of mint left my brain foggy. 
-
-I stood up to barricade the door with a chair when suddenly a voice, came out from the other side. It sounds like my mother. She was asking me to come out. Like she knew that I'm in my room the whole time. I didn't respond. I'm already scared shitless to utter a word. But for some goddamn reason I crouch back to see what's outside. 
-
-And I shouldn't have done it. 
-
-Because from out of the normal; the sofas, the turned off TV and the lamp table besides the television, the only thing that stands out like sore thumb is a foot standing irregularly stiff, a few feet from my door. Wearing the same shoe—my mother was convinced she misplaced. 
-
-She didn't knock nor tried to break in. She just stand there waiting for me to say anything or do anything. And when it already feels like an hour. She took a step forward, but with the tip of her sandals, her heels up. Walking on tippy toes towards my room. 
-
-She called again. Her voice was soft and not threatening. 
-
-This time I used my body along with the chair to barricade what's out there. 
-
-She keeps calling my name as if she knows me. Using the voice, I thought it was my mother. But her's was a bit deeper. Almost an imitation. She didn't bang the door nor force herself in. She just stands there. Waiting for me to do something. 
-
-I remember how sweaty I was despite the cold. And I almost forgot how that night ended. All I knew is my brother found me sleeping next to the chair I used to barricade with. 
-
-He said my room was open before he got back. And I was lying limp with my head on the chair, sleeping soundly. 
-
-If that was a dream. That was the most fuck up shit I've ever experienced. And I won't take it any other than that. 
-
-Still, I can't help but ask myself. Who open the door before my brother or even let himself in. 
-
+Anyway, I got off work a few hours later, and nothing of note happened after; if anything, people seemed to avoid my aisle with a grimace after he left. And that leads me to send this off to you, weird internet folks! I'm genuinely considering this job; I feel it'll be exciting, right? [Anyways, what do you all think?](https://www.reddit.com/r/nosleep/comments/1hi9c77/heres_what_happened_with_the_interview/)
