@@ -1,76 +1,256 @@
-# The Longest Night
-It was an hour past midnight when Alan started to reconsider his life choices. Sure, he'd thought. Go be a police officer, bust some drug-cartels, do some high-speed chases. The kind of stuff he'd always imagined cops did. Instead, here he was, sitting off the shoulder of some god-forsaken highway in the middle of some god-forsaken desert. Reality had a way of stamping out one's expectations, and it had thoroughly done that for him. He spent more time filing paperwork and writing tickets than actually driving his car, and even when something interesting did happen, he was always late to the party. He hadn't even fired his gun yet.
+# My dog came back from the dead. At least, i think he did
+Max was always so cute- the sight of him could brighten your day as a whole.
 
-What kind of cop was he that he'd never even shot his gun? He took another sip of coffee. Dull, black and unpleasant. He'd never been much of a coffee guy before, but night shift made it a necessity. Other guys used energy drinks or exercise, but Alan knew that he was too lazy for all of that. The bitter drink worked well enough, but even with the slap in the senses it provided, he still could feel the pang of drowsiness taking hold. Wait in this spot with a speed camera and watch for speeders. All night long, every night. Every single long, uneventful night.
+I adopted him from a shelter 7 years back- fond memories- and we’ve been besties ever since.
 
-He might catch a few drunk college kids here and there, and that might lighten up the evening, but beyond that, his only company was the darkness of the lonely countryside. The light of a million long dead stars twinkled above the man, while the ever-present crescent moon lorded over the landscape, painting strange shadows across the desert. Cacti and the odd tree seemed to be the only living things for hundreds of miles, save for the pudgy policeman in his cruiser. Every so often, some subterranean inhabitant of the desert underworld might rise from the sand. Usually a lizard or a large spider. Beyond that, Alan felt totally alone.
+When my daughter and wife separated from me, he was the only one that stood by me through and through.
 
-There was a certain solace in that kind of loneliness. Feelings of insignificance, of ponderings and musings of the nature of things echoed in his mind as he reached a hand forwards to the radio. The knob turned on with a quiet click and soon after the tiny LED screen illuminated with dull orange hues. The smooth tones of guitar and the rattling of drums flooded forth into the small cruiser. A man with a low southern drawl spouted some lyrics about a lost lover or some such. Alan didn't quite pay attention. He really only wanted some sound. Some noise to cut through the overwhelming silence.
+ 
 
-It was the kind of silence that seemed to drown out everything. There were no crickets, no cawing nocturnal beasts, only this lonely man in his cruiser, on the side of a desert road. A lonely man with just the recorded sounds of some other, likely equally lonely man to provide him company. Another sip of coffee and Alan felt, in a way, content. Sure it wasn't the worst job in the world. He'd done far worse in his day. It paid the bills, the kids stayed fed, Maureen stayed off his back about the student loans. It wasn't a perfect life, but really, what was?
+I was laying on my bed one Sunday afternoon. Couldn’t sleep. The crickets woke me up that day. I had just finished scrolling on reddit, reading some of the messed up things that happened that day. Frankly I hated everything about my life by then. My wife, may and I had a good run together.  In a way I always thought that she would be loyal. I never expected that she would cheat on me and my entire world would be turned upside down in a flash.
 
-Sometimes, though, on desolate nights like these, he wondered if he really was happy.
+ 
 
-Happiness.
+I remembered the day we brought him home- we had just brought him 2 days after our marriage- we were so happy back then. She loved dogs so much. Hers passed away days before the marriage, she was so sad. She even started to rethink and expressed her wish to postpone the wedding. I supported her decision, whatever it was but in the end she agreed that it was stupid and she would not let this ruin our big day.
 
-That was a word that meant so little, yet to so many, it meant the world. One had to be happy, had to be satisfied in this life, in order to really live. Did they, though? Alan sat, cranking his chair back as he pondered. Did one really need to be happy in life? Wasn't it enough just to get along? To survive? He sighed. Of course not.
+ 
 
-You had to be fulfilled in life, you had to find friends and lovers, you had to pursue your dreams. Then again, did it really all matter in the end? A depressing thought, but he ran with it. In the end, everyone would have to punch the ticket, everyone would wither away and die. Just like everything else. One day, all these cars and road-signs and cacti would be nothing but dust. What then? Why even get out of bed in the morning? As the pudgy policeman continued his internal arguments, trading mental blows in his mind, he barely had time to react when a long convoy of cars came screeching past his cruiser.
+She was so happy when I showed her the puppy- a cute Labrador- that she almost cried tears of happiness. When we hugged, all three of us, I wished that particular moment would never end. I wished we would all be together. That everything would be fine.
 
-Alan practically flopped out of his seat as the convoy passed. A half dozen, then a full dozen, then two dozen military vehicles of all types. Humvees with mounted guns, Stryker APCs, huge trucks with canvased backs filled with men armed to the teeth, eyes glowing under night vision goggles. They watched him as they passed, and even a few gave Alan a passing nod. Above him, a pair of jet-black helicopters armed with twin rocket pods pounded the air with a monotonous drone, vibrating the glass on Alan's cruiser.
+ 
 
-Only a few minutes after they passed, Alan saw a blinding light erupt in the distance, like someone had just turned the sun back on in the dead of night. Alan covered his eyes, shouting a string of obscenities as the light faded, replaced with a long, low rumbling. He could feel the car shaking, he could feel his body vibrate like a tuning fork as the ground quivered and quaked. His head pounded. His eyes felt like jelly. For the briefest moment, Alan thought that he would die here, on this lonesome highway, the victim of some terrorist attack or what have you.
+But it wasn’t.
 
-Yet, just like that, it was over. The policeman held his head in pain. He could feel bile rising from his stomach. In a flash, he shoved open the cruiser door and doubled over onto the cold pavement. Another moment and he blew chunks, all across the ground and his uniform. That didn't matter as much to him, what mattered was the low, red glow that began to manifest in the distance, further down the highway. With his sleeve, he wiped the vomit from his face. The glow was minimal, but bright enough that he could see it all across the distant horizon. A few mountains blocked most of it from view, but it didn't take him long to realize what exactly it was. It was a fire. A massive, enormous fire.
+ 
 
-His instincts kicked in instantly, and the officer dove into his car, shoved it into drive and sped off down the highway. In his mind, he ran through the possibilities. There weren't many towns in that direction. There weren't even that many people living out here. Just the odd rancher or quiet redneck. It didn't make sense. What in god's name had happened?
+Max was a lasting representation of our love that we- or at least I had for her, and which I thought she had for me.
 
-Just as his mind was beginning to adjust to the sudden change, he slammed the breaks. He couldn't believe what he was seeing. Up ahead, just off the side of the road, were a pair of transport trucks. One was overturned, while the other looked like it had simply pulled off the side of the road. Alan slid the car into park and, clutching his handgun closely, stepped out of the cruiser and back into the cold desert air.
+ 
 
-With the fearful steps of some hunted animal, the policeman approached the two cars. He kept the handgun gripped tightly, like some kind of talisman, against his chest. The first truck, pulled over to the side, seemed untouched. He peeked up into the cabin, through the driver-side window, and found that only the passenger door had been left open. Curious, he popped the door open and peeked inside. Nothing, save for a few maps and a pair of sunglasses on the visor. Alan sighed and hopped down.
+i awoke from the bed rather quickly, making up my mind. Max was startled all the same, but he groggily woke up. I took him by my arms and went over to my truck parked in the driveway, taking some lone star beer out of the fridge and placing max in the back seat. When I went over to the truck clutching some four or five beer bottles in my hands, I glanced and saw that max had moved from the back seat to the seat near to the driver’s seat.
 
-Just as he did, a cool breeze picked up, and he caught a strange scent on it. The smell of electricity. Like dust burning on a light-bulb. Alan perked up a bit, and slowly made his way around the side of the truck, only to stop dead in his tracks. There, off to the side of the road, was a soldier. What was left of him, at least.
+Starting the truck, I set off.
 
-Alan froze. Hands quivering, he slowly stepped forwards, muttering a few swears to himself as he did. He didn't understand, he didn't get it. As he stood over the body, he realized that the smell was coming directly from it. It looked like the man had been microwaved, or baked. His clothes were melted onto his skin, his eyes and hair had disintegrated completely. The corpse sat there, contorted into a position of absolute agony as the policeman ran his hands through his greasy hair, feeling the panic beginning to take hold.
+ 
 
-The corpse seemed to hum with some residual energy, and Alan could even feel a bit of heat coming from its blackened exterior. That was enough to turn him back to the car. He'd seen enough, he was done. He was going back to the station to find out what in god's name he'd stumbled into. His eyes had just drifted from the corpse to the car when he stopped, dead in his tracks. Off in the distance beyond the highway, just barely a hundred feet from him, was a man. He stood in a patch of barren desert, just past the second, overturned truck. Alan eyed him closely then, with handgun close once more, he stepped forwards.
+I didn’t know where the hell I was going, or even if I knew where I was at the moment- but little did I know I would soon regret this decision of a last minute drive.
 
-The man merely watched him as Alan slowly, methodically made his way to the car. There was something so off, so wrong about the darkened figure that he couldn't quite place. Even still, he had a job to do, and while trying to hide his panicked tone, he called out to the figure. "Uh, hello? Lincoln County police. Wh-Who's there?" The figure just stood there, totally still as Alan felt a chill pang up and down his spine as the moonlight reflected off it's jet black eyes.
+Max was always understanding. Hell, maybe he was even more understanding than my wife. He had sensed something was wrong ever since she took our 7 year old daughter and son and stormed out. He never barked. Never made any noise. He just came close to me and proceeded to climb onto my lap. He set his little head on my resting arm, and closed his eyes. I will never forget that.
 
-It wasn't a man.
+ 
 
-He threw the car door open, and the figure burst into a full sprint. Alan practically dove inside, and threw the car into reverse. The figure slammed into the driver-side window as it moved, and Alan screamed as he started directly into the creatures face. A massive mouth dominated it, with hundreds, maybe thousands of spiny teeth within, dripping with the blood of it's last victim. The rest of the creature's body was mostly obscured, but Alan made the color of it's eyes and it's body; jet black. As the car continued to reverse, Alan watched as the teeth began to scrape at the window. He shifted, and slammed his foot against the accelerator and the car jolted back down the highway in the opposite direction, flinging the creature back into the abyss of the desert night.
+I thought I would stop the car somewhere in a lone corner of the road or something- and drink the rest of the beers there and kinda crash in the truck itself.
 
-Alan could feel beads of sweat rolling down his forehead, he could feel his heart about to burst out of his chest. Questions filled his mind as he careened down that once-quiet desert highway. That thing wasn't a man. It looked like a man but it wasn't. It was something else. He looked to the clock and his pulsating heart nearly stopped dead.
+And I found a lone spot near a forest.
 
-It was eight in the morning. He'd lost eight hours? How? He'd only been at the convoy for a few minutes!
+I parked the truck on the side of the road, and started to empty the beers while thinking about the hell I was living in. I really needed some peace.
 
-He checked his watch; eight AM. His phone; eight AM. Everything that could feasibly tell time, he checked, and they all said the same thing.
+I opened the truck doors to go out and have some peace and walk max through the side of the road.
 
-Eight in the morning. The policeman slammed his hands on the wheel. Horror, revulsion, fear, all flooded through his mind as he pulled over to the side of the road. He nearly ripped the radio out of it's socket and screamed into it.
+ 
 
-"This is Officer Alan MacDaniels, Lincoln County police, can anyone hear me?"
+I leashed him and let him out. Walking beside him through the forest, I felt a sense of- dread? Elude me. Weird.
 
-Silence was all the response he needed.
+ 
 
-He slid back in his seat, flabbergasted and terrified. He barely thought of anything for twenty minutes until, finally, a thought crossed his mind. He could use the sun-
+Near me I thought I heard a small rustling of leaves of twigs- but I really did not mind the least. All I cared was for me to relive everything that-
 
-Why wasn't the sun up yet?
+Crunch.
 
-Breath caught in his throat as he examined the sky. He was right, as much as he prayed he wasn't. The sun hadn't come up. The moon still sat, glued in the sky like a mocking specter. Alan shook his head. No, this was wrong. This was all wrong. Everything. He shrieked and howled and wept in utter, indescribable panic as he tried every radio frequency he could find. No one responded. Not a single person. He was alone, truly now.
+I turned back, clearly max was noticing something as well.
 
-As the tears flowed down his face, he laid it against the dashboard. His children, his wife. Were they trapped too? Was he dead? Alan raised his head once more, and his whole body seemed to stop functioning. Time stopped dead as he looked ahead to see the same two trucks he had sped so quickly away from.
+He stared at a dark clearing at the same spot for many a time now. He started barking. I’ve never heard him bark for a long time, so I was kind of caught off guard.
 
-Two trucks that had to have been ten miles behind him by the time he stopped. One overturned. One still intact. A charred body. A man, that was not a man. It was as if he was caught in some kind of nightmarish groundhog day.
+ 
 
-The creatures gaze caught Alan's, and it started to approach his cruiser once more. Alan could only cry as it skulked ever closer, seemingly taking its time to torture the poor man. As it did, even more of these things emerged with it from the brush on either side of the road. Their eyes all locking with Alan's gaze.
+He had his limbs scrunched up and he looked like he was ready to pounce.
 
-In unison, they arrived at his car, and pressed their spindly fingers against the windows, tapping as if to taunt their prey before consuming it.
+I held his leash rather tightly because I did not want him to-
 
-Tap. Tap. Tap.
+But no. He was tugging harder at the leash. Harder and harder until my hands hurt.
 
-Their thousands of white fangs scraped against the window like nails down a chalkboard.
+‘Fuck!-’
 
-Alan closed his eyes, and began to scream into the hopeless nothingness.
+And max was off.
 
-And the sun never rose.
+I ran after him , and fuck me, I forgot to take a flashlight or even my cellphone with me. I was surrounded by dark.
+
+I couldn’t see anything, let alone look for him, and it didn’t matter because I blacked out for some reason seconds later.
+
+ 
+
+When I  awoke the clearing was empty. The trees making way swayed ominously. Thank god I was not too deep into the forest but fuck that- I was gonna go search for max.
+
+But where would I start?
+
+I got into my truck and gathered people from the neighborhood. Many were asking me why I would drag him into a forest late at night and frankly, I had nothing to tell them.
+
+I was fucking helpless.
+
+ 
+
+So a small amount of my neighbors who I called to search for max began their work from the clearing- surely we couldn’t search the whole forest anyway.
+
+After 2 days of searching, going back and forth from the clearing to going deeper, many gradually gave up and stopped searching for max. Many stayed to show their sympathy for what happened with my wife. I made it clear I wanted none of that.
+
+After 3 days almost all of my neighborhood gave up. I was searching lifelessly through the forest.
+
+I got into my truck and left that clearing.
+
+ 
+
+I cried through the whole ride home.
+
+First my wife and kids- now my dog.
+
+Why god?
+
+Why?
+
+ 
+
+I got back from work tomorrow morning, closed the door and slumped onto the couch with a beer bottle. I turned the television on.
+
+I frankly did not care whatever the television was showing- I just wanted to take my mind off things.
+
+After what seemed like hours of constant staring at the large big box that was the television, my eyes drooping to the size of almost a miniscule ant-
+
+I heard it.
+
+A bark.
+
+ 
+
+I lept from my couch, almost twisting my ankle- I ventured out into the open in my slippers. Looking farther into the backyard, I could see the outline of a dog.
+
+My heart almost leapt with joy.
+
+I ran to the dog- and thank god I thought to take a torch with me, shined the light onto the dog.
+
+It was max.
+
+Running up to him and holding him tighter than ever before, I clutched him close to me. I brought him home, called everyone I knew and told them the good news. I locked all the doors and windows just in case he wanted to jump out again- I was calling my best friend and telling him the good news when I noticed something.
+
+He was cold.
+
+Pale cold.
+
+I mean, I thought he was that cold because he was exposed to the harsh winter in alaska-  but even after bathing him in lukewarm water and washing him off with a blowdryer and towel, he was cold.
+
+Like that of a metal.
+
+You know how, when you walk into a bathroom in the morning and turn on a tap, you suddenly yank your hand because it is that cold?
+
+His whole body felt that way.
+
+But ever since I got him, there’s been this dread within me.
+
+I don’t know why.
+
+I know I should be happy, I got him back after a long three days and I should pamper him as much as I can- but, I don’t know how to explain it-
+
+He just didn’t feel like my dog.
+
+that’s when I started noticing the small things.
+
+ 
+
+His blue leash- which said max in a blue-frame encased locket, looked like it was teared off.
+
+There were bite marks on the edges.
+
+And on some sides, I even noticed some pale red substance- and christ I do not want to know whatever the fuck that is..
+
+ 
+
+Maybe he got in a fight with some wild animal, right? Yeah, yeah that must be it.
+
+ 
+
+But that isn’t the thing.
+
+Me and max would binge watch movies and all kinds of television shows, and we would hug each other all through it.
+
+So I put on a season of friends and I went to get him.
+
+And while I approached him- he retreated.
+
+Like he didn’t know who I was.
+
+It was intentional- he yanked his limb right from me. And he looked into my eyes with an intentional stare.
+
+He wanted me to know something.
+
+I was caught off guard by this- this feeling of dread and fear increased in me, I don’t know who the fuck I should explain it. I just can’t.
+
+ 
+
+I walked very slowly to the couch, and ‘max’- was still maintaining eye contact with me. It looked at me, tracked my body as I sat and looked away from him, turning on the first episode.
+
+The motherfucker was staring at me through the whole thing.
+
+It did not move a limb.
+
+It kept staring.
+
+By this point I knew something was wrong and whatever the fuck this dog was, it was not max.
+
+ 
+
+Going into my room and making my bed, I turned back to ‘max’ staring at me again.
+
+His movement were calculated; controlled. Almost as a predator that did not want to lose sight of it’s prey; or a predator that wanted to remain hidden of sorts.
+
+From then on I hated every second I was with him.
+
+The next morning I woke to find him asleep, or at least that’s what he appeared to be doing- and I put the tray on the counter. I shaked his container for a few seconds.
+
+He didn’t come.
+
+Usually max would sprint across the room if he heard any sign of a container shaking- but, nothing now.
+
+I emptied some of the food onto the tray and placed it onto the floor.
+
+ 
+
+‘Max! Come on boy!’ I yelled.
+
+Still nothing.
+
+I went to the room in which  he was asleep only to find the motherfucker staring back at me.
+
+Staring into my fucking soul.
+
+I put the tray beneath him and left for work 2 hours earlier than I was supposed to.
+
+After work, sunset was nearing. I drove slowly. I didn’t want to be closer to that thing, whatever it was.
+
+Returning home, I decided to take the route I took that night.
+
+ 
+
+Passing through the forest, I stopped the truck at the same clearing and began to search.
+
+I didn’t know if I was going to find him. Maybe the real max was back home… but no.
+
+There was something.. ominous about it.
+
+Suddenly, my nose was attacked by a rude stench.
+
+It crawled through my nostrils and I coughed all throughout the ordeal.
+
+Making my way through the stench, I focused onto the thing laying on the ground.
+
+ 
+
+Holy shit. Holy shit holy shit,
+
+Max.
+
+His leash was ripped off, maggots were crawling all throughout his body, encasing his once loved abode.
+
+I’m scared to go back home now as I’m writing this. I buried him in that same clearing.
+
+I just have one question.
+
+What the fuck is in my house if max is dead?
