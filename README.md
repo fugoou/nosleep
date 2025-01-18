@@ -1,124 +1,454 @@
-# The Monument
-It happened not too long ago.
+# Tour for the Dead
+Only in the spiraling depths of the infinite shades of black behind my eyelids do I ever feel at peace.  The near constant pressure behind my eyes fades, and the constant weight that bears down on my shoulders eases.  And it is here, in the garage of the old asylum, that I feel a sense of calm.
 
-I remember the hysteria that was developing when we first got word of what it would be. One of the largest hurricanes of all time. It wasn’t developing in the southern end near Florida. In the reports leading up to it, everyone remembers recording all of the storms coming towards the northern point of the eastern coast. Some even said that New York would be many feet in water. Droves and droves of people started to move out of the Big Apple, fearing that everything they had would be lost forever. For once in my life, I was very scared for such a large amount of people who were going to feel the wrath of Mother Nature. The news called it “The Ending Hurricane” but the World Meteorological Organization named it “Hurricane John”. A lousy name for such a movement.
 
-I like so many people reached out to family and relatives on that coast. I was ushering them to get out as soon as possible to outrun the impending doom. Many listened, but friends doing the same couldn’t get their families to move or budge. I kept pushing and prodding wondering why they would stay but they couldn’t even get an answer out of their own family.
 
-Everyone remembers watching the footage from the news of the traffic leaving the city, and anywhere near it. The footage that I saw of the churning storm several hundred miles off of the coast moving forward, inching to the demise of such a historic city. Its darkness was shrouded by the speed of the winds and the water covering that hurricane, which kept it like a cloud of death.
+“Stan?”
 
-Then one day, it all stopped. Not the storm that kept spinning and spinning, but stopped 800 miles off the coast. A bird watching its prey not far away but watching nonetheless, knowing it can swallow it in a second, but not quite hungry enough yet. The storms inside of the hurricane got bigger, the thunder got louder and the lightning strikes got hotter.
+The quivering voice is barely a whisper.   
 
-Meteorologists suggested that the inside of the storm was heating up to over 400 degrees due to the sheer pressure that was cooking inside and not having a chance to escape. The winds were so brutal that every opportunity these companies would try to penetrate through them was thwarted without even touching the outer rim of the hurricane.  I started to think about what it would be like to find myself inside of that. How would your skin start to peel and then rip off due to the wind and heat? Maybe it would take a few seconds, maybe a minute. Either way, it wouldn’t be too long. Even though the storm halted and wasn’t moving toward the city again, no one was going back. People from Florida were now speaking of reports of being able to see it from the southern state, that it darkened the sky even for them. 
+“I’m here.” The words spring up from somewhere deep in my chest.  I let out a sigh and allow myself to rise back to consciousness like a bubble of air surfacing in a murky pond.  My eyelids flutter, then open.  The room around me is still dark, but my eyes adjust quickly and I pick out Reggie’s hunched form at the far edge of the room.
 
-Life went on, and so did the storm. It went on and on for nearly a month, lurking in the heart of the Atlantic Ocean, between Europe and America, waiting to pounce. My family in North Carolina was even starting to get worried about it. It was talked about like the first time it had ever happened, a hurricane that doesn’t seem to end and doesn’t seem to move.
+“Your boot is untied.”  His voice is still a whisper, though the quiver is mostly gone.
 
-One morning, the storm was gone.
 
-Newscasts went out in Helicopters to get more film of it, and it was gone. But, something was in its place. I remember seeing the articles, the questions, and the theories all start to pop up.
 
-Where the storm once was, now stands a pale mountain. It was not any type of mountain but an extremely slim one, with its width growing as it got closer to the sea, then slimming back again at the very bottom. The Mountain also stood at the time, which the news thought was nearly 33,000 feet tall, casting a shadow over the world. It bolstered through the clouds, standing against the heavy waves that lapped up against its side.
+I check my watch.  It is a few minutes past one in the morning.  I find my feet and strike a match.  The small flame burns like a mini sun to my dilated eyes.  I give them a moment to adjust before I light the old gas fueled lantern and lift it high.  The light chases shadows to every corner of the room and the reflections of the flames dance in Reggie’s eyes.
 
-Seeing those videos now, just send shivers down my spine. Looking at this thing that made no sense, defied everything that happened in this life. How did it get here, how was it formed in a storm? Was it the heat mixing with moisture, maybe it created a sort of tectonic plate shift that happened overnight? How were there now major tsunamis or waves that rippled from beneath the sea? All of my buddies started contemplating this anomaly, and we then began to send eachother links one after another after another. 
 
-From ancient civilizations that left our planet coming back, it could be a peace offering from another galactic force that now knows about us or a warning message from one. Some even started to think that the hell below the ocean opened up and started pushing this through. 
 
-It didn’t take long for the United States military to start harboring near the mountain, and several of our aircraft carriers started to sail toward it. Russia, China, and other world powers started to do the same. It was as if it were the human front to stand guard against this thing. The newscasts showed these massive ships cut through the waves making their way towards the thing, all looking like ants compared to this thing.
+I take a moment to study the boy.  He is still young.  Young, but reliable.  I can hear the fear in his voice.  I can see it in his posture.  His fear makes him wise.  Only a fool would not fear this place.
 
-Life started to move forward. People started to accept that this thing was here, and it was not moving, stationary as the hurricane was before it. Even though it was on the back of everyone’s minds, it was best not to bring it up. It was the world’s open secret, something that we couldn’t run from, something that towered over us. No one knew its origin, and it could be a million years before we found out what it was. 
 
-I had called my brother, we grew estranged way back, just to hear his words on the issue. He lived a much more conservative lifestyle than I, he was a religious man. His ideas on it were not clarified, nor did they bring my more rational thinking approach to a calm. He told me “That that’s life. It’s here and we have to deal with it.” I asked about his thoughts of a higher power now, but he had no response that made me feel better, “It hasn’t changed.”
 
-I told him “Thanks.” Hanging up on him before he could say anything. No one had an answer and that was completely why I couldn’t sleep. I couldn’t think of anything else, this massive eye sore was stuck in my mind like it was stuck in the Atlantic, and no one wanted to talk about it. I couldn’t sleep, I barely could eat, and I was losing myself and watching the news 24/7 trying to get answers. But, the news stopped talking about it. Eyes must have left the station once they brought it up but how? How could anyone turn off the television when that thing was staring at them from the screen? I needed an update on this thing, and I needed it at that moment.
+Four short raps at the garage bay door pull my attention back to the task at hand.  Reggie jumps at the sound, then glances foolishly in my direction.  I only watch him, unjudging.
 
-My persistent looking and digging brought me to a live stream that was watching it. Day and night a camera was watching this thing from afar. But, it was better than nothing. I needed to have power over it like it had power over me. I needed to know when it would do anything if it would shift, if it would change, if it would start walking. I needed to be the first one to know. 
 
-I would watch day and night for three days straight not a once of will left in my body other than to watch this thing. Watch what its next move was and how it was going to execute it. Then it happened. My red-stained eyes saw it but barely. At this point, I must have seen double. But, something was dropping off of this thing. Large rocks that were starting to fall from the top of it, and would knock down more and more. They came crashing into the ocean with splashes that jumped up into the sky. 
 
-I launched out of my bed and called everyone that I knew I told them to turn into the channel. I started to freak out. The pieces just wouldn’t stop falling. The carriers even started to float away out of the fallen debris. Small chunks, big chunks all falling over and over. As if the sky was chipping away at this anomaly.
+‘Let’s get this show on the road.”
 
-Everyone started to think about what was going to be underneath this shroud, what was inside of the rock that was starting to come out. What monstrous entity is going to crawl out of this mountain, coming out of its depths to come to an end all of humanity?
+  
 
-My glasses hung off the bridge of my nose as I was staring at these chunks landing into the abyss. I then got a text from my friend. It said, “Do you see it?” I pushed my glasses up to my face and waited for my eyes to adjust. I blinked and blinked the fogginess starting to start making out details, until I did see it.
 
-The pieces falling from the head of the mountain were by design. Because what it started to look like was a face. A nose, cheekbones, and some slits for eyes and a mouth were appearing. 
+Pat is the groundsman.  He came on a few years back to help with the tours but just couldn’t cut it.  Now, his job is to collect the fees and sneak the guests past the night guards.  In truth, the guards know what takes place within these old walls, but they don't care.  Sneaking past them does add a level of excitement for our customers though.
 
-I texted back “Am I crazy or is that a face?”
 
-“You are not crazy. That thing has a carved face.” He replied.
 
-The chunks kept falling from the height and more and more was being seen. It started trending, the news picked it up. The open secret of the world that everyone tried to forget about for so long, was declaring all of its residents eyes again. The show was not yet over.
+Pat’s signal from the outside is to let us know how many groups will be joining the tour.  Four knocks means four parties, each left at a different entrance.  Each waiting to be collected.
 
-More and more fell, and more and more was detailed. The face became more feminine, the top and downward were looking more and more like a veil on her head, draping down onto her arms. Then without anymore, the pieces stopped. Her gaze fell upon the world and ours went up to her. For a moment it felt like the whole world stopped and just had to breathe a collected breath. One that we wouldn’t forget. From that day forward everything changed.
 
-I still wish that she had never come here. Whatever she was and whatever sent her to be a message of gentleness or a gift, or a harbinger of evils beyond our comprehension. Many saw it as something else. Because I have talked to so many people and so many of those friends and strangers have their own thoughts on this thing. What’s the point, what’s our purpose? Everyone had a different story or rabbit hole we went down. But, one thing stayed consistent no matter what, when you looked at this entity - it always looked like it was staring right at you.
 
-Paranoia started routing and moving through the media and minor simpletons like myself. It seemed as if everyone was lost in the clutch of this being’s palm, not strong enough to break through her grasp just all of our souls trapped inside with no one to help. I started to get concerned I started reading more and more to try to understand anything, history often repeats itself, and for once in my life I was on my own trying to connect the dots of our past to now. But, through my scrounging, I hit more dead ends than I wanted to. I got obsessed with this presence so much that I lost my job. So, many people lost their jobs, but it's not a big deal. I then moved over to New York, working part-time here and there. The mass exodus caused a plummet of rent so it wasn’t hard to find a place. The streets were empty, for a town that I had never been to all I had heard was that it was a “Bustling City” and “The City That Never Sleeps” but I found that the city was quiet, soulless, and a skeleton of an old king that now lays in its final resting place.
+“Which entrances are active?”  I ask Reggie in a hushed tone as we walk through the double doors and into the first of a labyrinth of corridors that snake through the old complex.  The halls are wide and barren.  Voices carry effortlessly down the worn, tiled hallways.
 
-I got a spot not far off the Atlantic coast, a small apartment with one bedroom, one bathroom, and one closet, small enough for only a few jackets to fit in. It was undersized, maybe some would consider it tiny, but it was adequate. There was really one window that gazed out towards her and through my small window I saw it well off the coast, not particulars, but her silhouette. Today I could only see it up to her chest, then the rest were lost in the clouds. Rising up and up. 
 
-That week I started to take notes on the woman, I was trying to see what it would do. Will it move one day, or will it shift just slightly trying to figure out if we even noticed? Can she see us, what was causing it to mold into a woman? Day after day note after note I kept writing and writing. I had the news on behind me, while I used a newly acquired old telescope. Trying to see when the next chip would happen.
 
-The news coverage started to talk about what was happening in Europe, off the western coast of England. There was a video that night of a group, of maybe two hundred or more people. They were all in darkened cloaks, with a veil over their faces. They stood on the shore all in a line shoulder to shoulder with one another. They all stared at the woman. The woman probably stared back. I got lost in the video, I took my eyes off her, staring at the screen, my eyes were probably reddened at this point. I watched these people all standing with the small waves washing at their feet. The man filming them is just as confused as everyone at home. They all took a step, and then another and another. They stepped in unison all into the ocean, their wall proving stronger than the waves coming at them. They kept walking past knee-deep, then chest, then to their neck. None of them lost a step, in a complete straight line until all of them converged with the water. The only thing left was the lapping waves of the ocean, and beyond that her horrifying darkened silhouette in the distance.
+“It’s the first week of the month,” Reggie says, “So Pat should be using the west side foyer, Room 112 with the missing window, The Rec room entrance, and….”
 
-I could only stare, unlike the person filming whose audio was bleeped out every other word by the coverage. I waited and waited for them to rise back up. But, nothing broke the surface, not even their veils. I slowly turned back towards the woman. Aghast at what I had just witnessed, and noticed that more chippings were falling off of her. 
+Reggie trails off.  I give him a minute before opening my mouth to speak, but he comes up with it at the last moment, “Hall 2B, at the fire door exit.”
 
-It took no more than two hours as I watched large pieces fall from the waist area, all plummeting down into the sea, followed by smaller ones as they started to show, her slightly outstretched arms. Her long sleeves draped as far below as her knees. Her hands started to get defined, her fingers split in between, and her fingernails accented. She was starting to look remarkable her face to me now totting not a smile but, a slightly unexpressed face. One that sullen all witnesses. One that immediately made me step away from my scope and turn off the news when it hit HD on my small screen.
+“Good,” I say.  “You have the keys?”
 
-Why was this thing here, were ancient beings watching when America received the statue from France and found it to be endearing? Was this an olive branch and they wanted one in return? What was the point? That night I hadn’t slept a wink. I lost my part-time job due to not showing up. I realized what my calling was, it was to be the ultimate witness for her. To write a book about this whole endeavor, for people a thousand years from now to understand this situation, how it played out, and what the result was for. I understand it all now. This was my calling.
+“I have the keys.”
 
-That night I went for a walk to clear my head and to debrief before I went headfirst into this path. I was weighing my options and needed to get some fresh air. Madison Avenue used to be a busy street from what I’ve been told but tonight it was completely different, empty and weightless. I could scream and only hear my voice bounce off of the buildings rising higher and higher to escape. I passed some graffiti, which must have been new, and must have been quick. It was large taking up a sizeable chunk of the wall, all it read in solid red letters was “WHY DID SHE STOP LOOKING AT ME?” I turned up my collar and continued walking, all I could think about was what this person meant, and how they felt. Did they feel relief or grief? I wouldn’t know she still saw me.
+“And why do we use lanterns?”
 
-That night I had my first episode. I fell asleep staring at her through my window. In the ease of my sleep, I found myself lost in the ocean, under the waves kicking up yet never reaching that break. I wasn’t drowning yet, but I wasn’t able to move up in fact it felt like I was getting slightly dragged down. Then all of a sudden, the waves crashing above me stopped, and everything started to calm the waters all leveled out and I could see the night sky above. A calmness overtook me as I stopped kicking for a moment. But, then the night sky was overtaken by a large grayness, as she stood over me, the moon crescenting around her head as she looked down at me. A pure horror and dread entered my soul, and for the first time, I tried swimming down. But, now I couldn’t move at all. I turned back to her - I screamed. Her face was resting right above the water break. Staring at me, her nose an inch above the sea. Her hand entered, splashing mountainous waves through and through as it swung to come to get me.
+“Flashlights fail.  Batteries die.  Oil always burns.”
 
-I woke up in a pool of sweat, clutching my shirt which became another layer of skin in the night.
+“What are the rules?”
 
-Soon after, I believe that it was a Tuesday when the first reports came in from Pakistan. A man walked into a run-down mall in the center of Islamabad in a jacket. He walked into a store, I do not recall which one, and took his jacket off. Underneath it was a vest, in his hand a remote. Thirteen people lost their lives that afternoon. People that knew him said he was completely enveloped by the woman, and thought it was a mockery sent from Hell itself, that if no one tried to shake the grasp that she had on the world then sooner or later she would pull every last one of us back down to her resting hole. I guess his idea was to kill himself and others in a showing to maybe take eyes off of her. It didn’t. Copycats and other people who were mentally unhinged started to do mass executions, people burning themselves alive, all of it caught on video and spread throughout the world on social media. One video that I saw was a man in the middle of a city I believe Dallas, he wore a white shirt and in horrible calligraphy said “She isn’t real. None of it is!” He screamed to gain more viewers, watchers, and fellow beings before he pulled a pistol out and shot himself under the jaw and through his brain. Screams followed as people ran, but he lay there and the person filming stayed holding it on his body, his still shaking body on the concrete, he was still alive.
+“Everyone stays together.  No exceptions.  Stick to the main hallways and common rooms.  Some rooms can be opened on special requests, but none of the rooms on the 2nd floor, west wing.  And no rooms that have red ‘X’s on their doors.”
 
-At this time the countries surrounding the woman with their platoons and fleets started to back away. China accused America of propaganda and conspiracized that we came up with this as a means to create a global scare. We started to say the same thing about China. The ships stopped aiming their guns at the Woman and started aiming them at eachother. The doomsday clock was at 11:59:59, the world was knocking on the nuclear response’s door waiting for them to answer. Germany, Poland, and Israel all started choosing sides and started demanding vocal support from other nations. Tensions were rising and global policies were wearing thin, it was a sense of desperation that people were feeling, and you could sense it by having everyday interactions. People were starting to stock up on food, buy firearms, and even reinforce valuables. My brother started to reach out to me, I realized that I didn’t think he knew that I moved. I was going to call him but then my phone opened up to a random video. It was at this time that Mary Delcosta came onto everyone's page.
+The kid is a quick learner.  He will be running tours by himself soon enough.
 
-If it was through different means of social media, or whatever avenue you saw her. Her first video was a hit, it was a 20-second video and it was titled “I am her”. She was draped in a long light blue robe, her face with a slight smirk, she stood just how the woman stood. She stood like that for the whole video, a light illuminating from behind her until the video cut out. It wasn’t even a few days when she posted again, what was once a video of her all alone, now she was standing in front of a congregation of 20 or more people. Same premise, and the same result, but it was a little longer. The people were all on their knees in front of her, and you could see some of them were crying, not out of a sense of fear or hurt. But, a way of love and hope. 
+“You seem to have it well in hand,” I say, “I’ll let you run the whole thing tonight.  I’ll just observe.”
 
-I saw right through it. This horrible woman was using this life-altering event to cash in and to start a weird faux religious experience. She was all that was wrong with the world right now. I had to dedicate a whole chapter of my book to her and her alone because of what she was doing and how it was evil and lured people looking desperately for answers, into her fictitious and malevolous web. All while everything was becoming crazier outside, you couldn’t travel a channel or webpage without seeing the warning headlines, or a person speaking in their native tongue about the horrors that people were doing to one another. Bombings, shootings, lootings, arson, and overall anarchy became the new tenets. Neighbors became new people with the same faces. The smell of burned rubber, gas, and other aromas often crept underneath my closed windows reminding me of the rest of the city, I didn’t care for this mnemonic the city often sent me. All I know is if I was smelling it all, then I think she was too. 
+Reggie makes a face filled with two parts pride and one part doubt, but says nothing.
 
-The paper the next day read of a new disease that was spreading through many countries. It was greatly affecting only young children and the elderly. It was so early on that doctors didn’t know how to describe it, how it spread, or its origins. The only thing that they could gather was that it didn’t strike anywhere except brain function and the respiratory area. After visiting with some of the first couple thousand victims it was determined that their lungs were not exchanging the proper amount of oxygen intake and carbon dioxide release, that they were holding onto their carbon dioxide. This caused them to have slight symptoms according to people near them of light dizziness and drowsiness. They all died in their sleep. The World Health Organization called this disease “Omega-1”
 
-A meeting was to be held in Washington, the President called on many nations to attend in an attempt to try to find something to ease tensions with our rivals. Several of our allies came and many of our biggest enemies were now in our backyard. For a little bit, many cameras turned from her and onto the gods of government as they pulled up in our United Nations building. No press was allowed into said event, and many online started to worry that this was all a scheme, a ploy, this woman planted here by all that were in charge, a way to convince people to accept a new world order, that safety was only found through strength in numbers. The meeting lasted hours. When everyone departed, all who were herded inside had faces of the lost.
 
-Reports came out of Rome, and videos too. A mass movement as many Catholics gathered in and around the Vatican, all holding candles as they walked towards their holy land. Priests, men, women, and children. A large crowd, yet all of them standing and in complete and utter silence. I wanted to call my brother to see what he thought about the whole event but, it didn’t matter. I sent him a text instead only asking “What do you think of it all?”
+The hallway leads us to the first of many intersections and wordlessly, we both drop to one knee, cross ourselves, then stand and pass through the intersection.  Neither of us look left or right as we pass through the intersecting hallway.  I catch movement in the corner of my eye as we pass but keep my eyes locked ahead.  We always do this at intersections.  We never look.  Pat looked once.  He never set foot inside the asylum again.  He had been lucky.
 
-Very quickly he sent me back a text telling me to pray. I never was like him, I was a scientific man, reason over faith. But, to each is their own. I just stared at her body through my window, through that window I began noticing all of the backed-off military ships were slowly moving closer to her. 
 
-While they moved closer to her, the clouds around her head started to swirl too. A storm was encroaching around her again. From my telescope it was a beautiful sight watching the man-made machines and the weather made spectacle all move in on her. The world was hers once again. The storm started to pick up speed, swirling and swirling. I wasn’t able to see her anymore as the day started to die. The storm was perfectly encapsulating her, a cup of horror contained by her proximity. The ships all placed their bright spotlights onto the storm, helicopters and jets flying near it tracking it for some reason. What was the point of that meeting? What was discussed? That was when the lightning started to strike in the storm. Bright lights blue, white, and green struck followed quickly by the strike of thunder. Barely heard by my apartment window, but must have blown the ears off of the personnel below it on those carriers. The light show went on for what seemed like hours but could have been minutes, I never thought to check a clock or watch in case I missed something, my hand on my pencil etching words that probably made no sense while my eyes grew encrusted on the lens of my scope. 
 
-The strikes became brighter, the horns became louder. That was when we saw it, through the storm we could see her large silhouette, she seemed bigger in the shadows. More and more came. Then suddenly they stopped for a moment. Then the brightest of them came, and I could hear the screams from across the waters. The lightning sparked the hurricane's walls with the brightest blue, yet she changed. Her arms were now completely outstretched and her head hung to the right. I jumped back from my telescope, disoriented as my eyes tried to adjust to the change in depth. The thunder eclipsed the screams, as it went dark, I could see no more. The storm raged on, but no more lightning and no more thunder. I stared in awe. I was not able to see her anymore, but the visual was everlasting in my eyes, a pick placed into my brain hidden in the wrinkles, only for me to know where it was seated. I climbed into bed looking out to the sea and didn’t sleep a wink, waiting for the storm to pass, so I could see her new structure.
+We walk on in silence, listening to our footsteps and the hint of echoing footsteps following behind us as we go.  Soon enough, we arrive at the asylum’s western entrance.  Reggie pulls a key from his belt, knocks three times on the door, unlocks it, and lets the door creak slowly open.  The doors to the outside remained unlocked, but the inner foyer doors are always kept secured.  It is just one of many ‘waiting rooms’ that we use as meeting points for our guests.  The smaller the size of each group sneaking onto the grounds, the less likely they are to be caught by the night guards.  Or by anything else that stalks these grounds.
 
-The storm passed in the early morning when the sun crossed the horizon and was cut in half by her. Yet her stance stayed the same as before, her arms hovering off of her sides near her waist. She didn’t move an inch, was it a trick of my own eyes? What the hell had happened last night, I didn’t drink more than normal. The ships were still near her, as the day brightened I noticed the departures of several aircraft taking off of the carriers. Every single one of them sent birds up to the skies, so fast that all you could catch was the exhaust trails in the air. Lost and confused I turned on the channel, readying myself for the all-call, the horns lifted up in the air as to sound off for the fallout.
 
-But, what I saw had me lost. There on a podium outside of the White House was the President, well many Presidents. Standing shoulder to shoulder behind ours. He was talking about the Woman and how since she has come here no good has happened. 
 
-“Fear ran amuck, people didn’t see people, and now the omega virus has crept into over 74 countries with countless amount of victims. We must see this anomaly, this unprecedented and horrifying monument as a harbinger of suffering. I stand here today aligned with many other great leaders and using our combined military strength to dispose of it quickly and efficiently. So, that we can return to life again.”
+As the door opens, four beams of light shine in our faces.  Reggie and I are used to it.  The guests are nervous and have been waiting for us.
 
-That was when I heard the first missile hit. I spun from my television launching myself towards my window and seeing the explosion off of her left side. Then more came. A storming of missiles and attacks from all points - earth, sea, and sky. All collectively attacking her. She stood tall. She stood strong. As more and more came at her, she didn’t have any defense no shield, they landed hit after hit after hit. She didn’t bend or break underneath the fierce hand of man. I turned back to the news where they were covering her sabotage. I remember that the assault lasted an hour. Punch after punch landed on her. She never showed any sign of wear or tear. When the last missile landed it was a direct hit on her face. The tiniest crack fell down, from the base of her eye it trickled just below her cheek. The militaries were most likely stunned but needing to save some of their artillery, they decided that was enough for today. The attack ended at 9:54 am.
 
-She stood there afterwards, as the air went silent throughout the world. News stations didn’t know what to say, the fleet of missiles and attacks barely fazed her. Nearly everything that we had, it was then noticed by all eastern cities and western cities in Europe that they would be sending nuclear attacks on her in the morning. We should all leave the city at once and expect not to return until all of the fallout is cleaned up. I was never going to leave, this was my story and I would see it through until the end, that was when she eventually would fall.
 
-I messaged my brother my thoughts and explanations as to why I came to this conclusion. He tried getting me out, he tried calling. I answered, but he offered me to stay with him so that I could get back to a normal life. He passed over how his voice sounded. His voice full of sniffles. I asked him about it, he tried turning the conversation back onto me. That is usually how we end the calls. It was not a shouting match, but a game that was at a standstill, neither of us was going to give ground. I was staying here, he would stay there.
+“Lights down please,” Reggie says in a low voice.  “You can leave your flashlights on the table and collect the lanterns.”
 
-I remember drowning all the traffic sounds throughout the day. It would be a long night, one that might even cause my death, but this project was bigger than that. I remember tuning into a live stream of Mary Delcosta, she was praying over hundreds of people now, stating that she would be leaving soon from all of them “that they should repent.” I almost threw up at the psyop she was pulling, Delcosta even means off the coast, can these people not think for themselves? They were witnessing a miracle, and instead turned towards a failed actress, it enraged me to the bone. I drank and drank. Had my alarm set up to 6:00 am when they collectively decided to send a flurry of nukes at her. I went to bed holding back tears, thinking of what might happen to her, to me, to the world itself all answers will be revealed in just a few hours. Time was moving ahead as it always does. Everyone, held their breath to try to stop it, but to no avail, it marched.
+“And please hold all questions until we have picked up the remaining guests,” I add.  Reggie grimaces. 
 
-I awoke to my alarm chanting in my ear, I arose, drowsy and half-blind. My eyes recalibrated as my vision aligned to the coast. My face would have melted if I had known emotion, but at that moment I forgot everything. The horizon was connected, the sun rose with nothing to cast a shadow. The clouds floated as one, nothing to cut it in half. She was gone.
+"Please hold all questions until we pick up the rest of the guests," he echoes.  I smile, more to myself than to him.  He will not forget the line again.
 
-No storm to announce her departure, as she so grandly did to encapsulate her arrival. Nothing. Militaries who were watching her day and night had an answer to it, she was gone and no one knew how, why, or when. Not another missile was launched.
 
-The next few days I gathered all my thoughts, notes, photos, and everything that I had. I started to build my book. It took me a couple of months while still being cooped up in my small apartment nestled over my laptop. 
 
-After I was done, it was all written up I sent it to many publishers. Many sent it right back to me. Others took a while to get a message back. Over 30 publishers and none of them took it. None of them wanted it. They kept telling me that it was insensitive to everyone who was lost due to the Omega Virus, nobody wanted to read about something that we all witnessed and that we all wanted to forget. That people just wanted to move on with their lives and never think of it again. I sat there reading these messages over and over again, with a printed 400-page manuscript and nowhere to send it.
+Our party moves down the building’s central corridor and quickly picks up the next group from room 112; who had come in through the missing window. Then on to the stairwell and the second floor.  At the end of Hall B, we open the door that lets out onto the fire escape to pick up our third party of guests before heading back to the ground floor.
 
-I was astounded, all my work, all my hibernation, all my purpose was to be forgotten in the wind with no one to care or want to read it. I became lost, I didn’t know what to do. I started to take to the bottle more and more. Days blended into weeks, and weeks trickled and flowed to months. My brother became a victim of the virus soon after and softly departed us. His funeral didn’t have many visitors.
 
-The world like I had become a shell of itself. I saw it through the screen and could hear it through my window. Something felt off like it had become darker, and sadder, even some days felt worthless. Lawlessness started growing and taking over nations. Riots ran the streets. I started to drink a lot more. I couldn’t even look out the window that I grew to only know, the one where I saw her, because there was no one to look back at me.
 
-The Time’s Person of the Year ended up being her. With the tagline “Why did she come? Where did she go?” There was a dedicated slot for all that was lost to the sickness, millions upon millions. Seeing her on the cover told me one thing though, that people did care, that people wanted to read up on her. Just that they didn’t want to read it through me, all I could think of through this is how her leaving made me feel left behind, I always wondered who else felt the same way but was always too afraid to ask anyone that I passed.
+The Rec room is in the South-East corner of the building.  Normally it is a quick couple of turns, however, with guests in tow, we opt for the safer route of going around the outside perimeter hallways.  Until the whole group is together and we can go over the rules, it is best to avoid any of the intersections, or worse, the central cathedral.
 
-I write this half-drunk to whoever will read it, as a summary of what I thought my life’s work was, as I sit on the floor in my closet. Just a throwaway on a message board to be lost as soon as others write on top of it. I sit here in silence, the door closed, for the chance she does come back, there would be no way for her to see me and what I have become.
+
+
+Halfway down the Western corridor, Reggie stops short and tips his head.  I stop as well and close my eyes.  If he hears something, it would not be wise to speak over it.  Our guests seem to pick up on this as well, or perhaps they are all just too nervous to talk.  Either way, they stand silent, listening.
+
+
+
+There it is.  A dull rapping sound.  Like someone tapping on a glass door with their knuckles.  In all the years I had been doing this tour, I had not heard that sound before, and believe me, I have heard plenty of others.  Could it be...
+
+
+
+“It’s a warm night,” Reggie says to nobody in particular.   It is the first non-whisper that anyone in the building has spoken that night and the tour group recoils back as though he had shouted the words.   I give the kid an approving nod.  He had remembered, make noise, but do not address the sound directly.  It is one of the cardinal rules.  Never engage with anything that might be listening.
+
+
+
+Some spirits could be harmless.  Helpful even.  But others.  Others could be vengeful.  Violent.
+
+
+
+The tapping does not stop.
+
+“Sounds like glass,” Reggie says, catching up to my earlier thought, “The Atrium...”
+
+Once more I let out a sigh, “Pat mixed up the rooms again.”
+
+Reggie huffs in aggravation, but I can see the tension drain from his face.  There is nothing for it.  We turn the group around and guide them back the way we came.  It is a few short moments to the Atrium.  Two figures can be seen through the heavy glass doors.  They must have seen our shapes pass by in the hallway moments earlier.  They must have been nervous, perhaps unsure if we were the tour group or some form of wandering spirits.  But they had knocked as instructed when we missed their pickup schedule.  Not all groups did.
+
+
+
+Reggie unlocks the glass doors and a few relieved and awkward grins are exchanged all around.  Lanterns are distributed to the new group and Reggie begins running through the orientation speech.  He covers the hallway intersections, noises in rooms, eye contact and the other various rules that we have established over the years.  I take my time and inspect the people who have joined us for tonight’s tour.
+
+
+
+Most people who came, would come in groups, and those groups generally stuck pretty close together.  Further, the groups we picked up from each different waiting room seemed to stick together as well, likely due to the fact that they had time to talk and mingle before descending upon the silent corridors of the old asylum.
+
+
+
+The groups are all pretty run of the mill tonight.  The Foyer group has two couples and a fifth wheel.  Loners are most apt to wander off, so I make a mental note to keep an eye on their spare.  Room 112’s group appears to be made up of college students.  The Atrium had the smallest party.  Its group consists of two asian men in cheap suits.  Traveling businessmen, likely looking for some thrills to spice up a boring conference trip.  The second floor group is the most diverse, consisting of a family that includes the parents along with two teens as well as a geriatric gentleman.
+
+
+
+Everyone who had signed on for the tour has signed disclaimers - assuming Pat had gotten that part of his job correct - but I make a mental note to keep an eye on the older man as well.
+
+
+
+As Reggie finishes his spiel, I raise my lantern and start off into the labyrinth of hallways.  Reggie follows and our guests fall into step behind him.
+
+
+
+“Sternvyrm Asylum was founded in 1869,” Reggie begins. His voice is barely above a whisper but it carries to the entire group with ease.  “The original building was commissioned by a minister who wanted to build a cathedral, but he died before the work was completed.”  
+
+
+
+We led the troup away from the outer perimeter hallways and deeper into the long abandoned and neglected hallways.
+
+
+
+Reggie continues.
+
+
+
+“His family would eventually donate the land to a doctor who had radical ideas regarding the mental toll of the Civil War on the soldiers that fought in it as well as the civilians caught up in its wake.”
+
+
+
+I stop at a hallway, drop, cross myself, then watch to be sure everyone in the group does the same before moving through the intersection.
+
+
+
+“Doctor Sternvyrm, would expand the original chapel and outbuildings extensively over the years, connecting them.  As he expanded the grounds, he expanded his patients.  He took on additional mental patients to attain federal grants and funding to continue his research on what we now refer to as PTSD.”
+
+
+
+As I walk, kneel and cross my way through the Asylum, I fall into autopilot and withdraw as much as possible into myself.  Reggie is keeping a good eye on the guests, and the first leg of our tour is generally rather uneventful.  I let my mind wander.
+
+
+
+—
+
+
+
+"They keep grinning at me,” Reggie mutters under his breath.  I pull back out of autopilot and look at him.  His gaze is locked on the two Asian businessmen.  We are near the end of the preliminary tour and are standing in an observation room on the second floor.  It looks down on the North-Eastern Day room.  The Day room has always been a surefire spot to observe paranormal activity and today is no exception.  A lone wheelchair is rolling in a never ending circle near the far wall.  The more skeptical in the group will convince themselves it is staged.  Reggie and I know better.
+
+
+
+Reggie absently reaches out and grabs the arm of one of the college students who was about to wave at the chair.  The boy gives Reggie an irritated but resigned look.  Waving is a form of engaging the entity.  He should know better.
+
+
+
+I wait a moment further to be sure the kid won't try again, then cast a glance at the Asian men.  As I watch, the pair turn from the observation window and look at myself and Reggie before looking back through the glass.  Both men have small smiles on their faces.
+
+
+
+“They’re nervous,” I whisper to Reggie, "The grinning is just a cultural thing.  It's fine.  Just keep an eye on them.  If they seem to start sweating too much or if you don’t think they can handle it… let me know."
+
+
+
+Reggie relaxes visibly.
+
+
+
+I study the men again before adding, “Yeah, they’re just nervous.”  
+
+
+
+But something is nagging me.  Something feels off.  While I had been zoned out the first stretch of the tour, I had noted an unusual lack of activity.  The beginning is generally quiet, but never this quiet..  There is always a door slamming or glass breaking or even the sound of mild sobbing while traversing the hallways.  Tonight it had been silent up until the observation room.  Too silent.
+
+
+
+I shake my head.  There is no such thing as too silent in these halls. 
+
+
+
+‘Tunnel vision kills’ I remind myself.   I rub the back of my stiff neck, trying to work a knot out, then lift my lantern to take in the whole group.  If I focus on one guest too much, I may miss another guest making a mistake.  We had lost guests before.  In fact, we had lost both guests and tour guides from tunnel vision.  It was a mistake I was not planning on making tonight.
+
+
+
+ I give the Asian businessmen another once over.  They still seem to be studying Reggie and me and copying all our movements and gestures as closely as they can.  They are nervous, but attentive.  The old man is looking through the observation window with incredulity, but he looks fine as well.  I see no reason to cut the tour short.  After one last glance at the college students, I make eye contact with Reggie and give him a short nod.  He nods, almost more to himself than to me.  The tour will continue.
+
+
+
+Underground.  That is where the real activity is.  There are a few rooms above ground with red marks banning entry.  On the several sub-ground levels though, nearly every door is marked.  The underground is where the experimental treatments were administered.  It is where men suffered.  Died.  It is where some of the more dangerous spirits in this cursed building linger.
+
+
+
+There are seven entrances to the underground, but only one that we use.  Its entrance is at the center of the Asylum, just beside the doors to the original Cathedral.  Reggie starts the group moving again and I fall into step at the rear to keep an eye on our guests.
+
+
+
+Reggie continues his spiel:
+
+“As Dr. Sternvyrm built his expansions, he kept the Cathedral at the heart of the structure.  Some think he was a religious man and valued his patients having a place to pray and reflect.  Others believe that he wanted a place closeby in order to petition God for forgiveness for the atrocities he was committing just below its holy foundation.”
+
+
+
+I watch as the group drops in unison to cross themselves before passing through the next hallway.  One of the teens - the boy - glances to his right as he crosses the hallway.  He turns his head back quickly, whether from startlement or indifference, I cannot tell.
+
+
+
+“Eyes front,” I whisper.  The boy’s ears turn red and his shoulders bunch up.  He is embarrassed and scared.  That is good. He won’t risk looking again.
+
+
+
+As I cross the hallway’s intersection I feel the temperature drop.  My pulse quickens and I do everything I can to prevent my pace from increasing to match it.
+
+
+
+‘Do not engage!’  The words bounce around my empty skull as I stave off the natural impulses of fight or flight.
+
+
+
+“It buuuunrnnnnssss.” a voice breathes in my ear.  I can feel its breath on my earlobe as the small hairs on my neck stand up straight. The weight of an inhuman presence pushes on the light from my lantern, stretching it out across the hallway unnaturally.  I keep my pace and pass through the intersection.  The heavy, crushing presence seems to fade behind me to a low hiss.  
+
+
+
+No one else of the tour group had reacted.  I doubt if any had heard the voice.  But the hairs on the back of my neck are still standing on end.  Is it following us?
+
+
+
+‘Do not engage!’
+
+
+
+Did the spirit latch onto me?  Or perhaps onto the boy?  It is not the type of souvenir one wants to bring home from a place like this.  I make a mental note to make sure to keep an eye on the boy.  Reggie continues his speech, unaware.
+
+
+
+“Styrnvyrn believed in very aggressive treatments and he pioneered methods that today would be considered little more than torture.  He also believed in putting patients out of their comfort zones and often hired Doctors who would only further traumatize their patients. For Union soldiers he would hire Doctors from the deep south with thick southern drawls.  The idea was to make the patients face their fears.  This practice was continued by his successors by hiring German and Italian doctors after the Great War, adding Japanese doctors after World War Two, and finally Russian and Chinese doctors during the Cold War.”
+
+
+
+We cross another hallway.  I cannot tell if the presence behind me is still there, or if this growing sense of unease is due to getting closer to the Cathedral.
+
+
+
+Reggie, still unaware of my growing concerns, continues on.
+
+
+
+“Between doctor and patient tensions and the implementation of methods such as ice baths, steam rooms, electroshock therapy, lobotomies, and other heinous treatments, many patients suffered mental breakdowns and ultimately, over the years, several doctors and staff were killed by their patients.  Many more of the patients commited suicide.  In fact, it was rumored that several orderlies ran a quite profitable business of selling the patients everything from medications to overdose on to rope to hang themselves with.”
+
+
+
+Ahead of me, Reggie rounds the final corner that leads to the basement.  The troup disappears around the corner one by one.  With them out of view, and against my better judgement, I cast a short glance over my shoulder.  
+
+
+
+A lone man stands in the middle of the last intersection.  The telltale burns on his temples and blood seeping from his eyes tell me he had suffered electrotherapy and a lobotomy.
+
+
+
+I give no sign that I see him, mustering all my will on focusing my eyes through him as though he is not there. I count to three in my head then turn back and round the corner.
+
+
+
+Alarms go off in my head.  Something is wrong.  Something is very wrong!
+
+
+
+First, Reggie and the tour group are already halfway to the stairwell.  I had stopped only a few seconds before turning the corner, and now Reggie and the tour group are better than 100 yards down the corridor.
+
+
+
+Second, and more concerning than the time loss, the great doors to the cathedral stand wide open.  These doors are kept shut.  Always.  We check them before every tour.  We double lock and triple check them.  I did this just before meeting Reggie in the garage.  There was no way they could be open now.  No way, unless….
+
+
+
+Finally, Reggie is continuing down the hallway as though nothing is wrong.  His path to the Underground will take him straight past the doors of the Cathedral and he is showing no sign of stopping.
+
+
+
+‘Do not engage.’  The words pound through my head like a mantra.
+
+
+
+I cannot shout out.  I cannot risk the noise. Cannot risk awakening what lingers in the cathedral.  
+
+
+
+I sprint forward.  It is risky, but I see no alternative.  The tour group and Reggie are my responsibility.  I have to stop them.
+
+
+
+The shadows on the walls stretch and churn, upset by my sudden movement.  The light from my lantern arcs around the walls in psychedelic and seizure inducing patterns as it jolts up and down with my unsteady gait.
+
+
+
+But even as I run, I know I will not make it in time.  I watch in horror as Reggie reaches the entrance… and passes by without so much as a glance.  The tour group follows behind him.  First the college kids, then the old man.  One of the older couples passes by and they seem to shiver as they do so.  
+
+
+
+Do they not see?  How could they miss it?  Did Reggie see and tell them all to keep their eyes ahead like in the intersecting hallways?
+
+
+
+The Teens and their parents pass next, the boy seems to miss-step but keeps his head locked in the forward position.
+
+
+
+The group is nearly in the clear.  Just a few more.
+
+
+
+The Asian businessmen in their suits are passing now.  No.  Not passing.  Stopping.  Stopping and turning.  Turning not just their heads but their whole bodies.
+
+
+
+I am screaming now as I run.  Screaming at the top of my lungs but no sound is coming out.  I am running flat out but the shadows that were first stretching across the walls are now stretching the walls themselves.  Stretching out the hallway, making it longer and slowing my progress through it.
+
+
+
+One of the men reaches a hand into his jacket.  When he pulls his hand free from his jacket, he is holding a syringe.  He waves, as if signaling to someone inside the room.  The second man moves forwards slowly, momentarily blocking the first from my view.  He then bursts into the room in a single violent action.
+
+
+
+I skid to a halt and peripherally, I see the shadows rush past me on the walls.  The man with the syringe is in view again, but he no longer looks like a businessman.  His suit is gone, replaced with a green surgical apron.  He walks purposely through the doors of the Cathedral.  Then the screaming begins.
+
+
+
+I coax my legs to move again and find myself stepping up to the doorway of the Cathedral.  It is a massacre.  Three figures in white scrubs lie motionless on the floor, their white uniforms splattered with dark red sprays of blood.  The two Asian doctors are there as well, one of them kicking and screaming in Japanese as the patient on top of him is throttling him with his bare hands.  The other lies dead with the syringe he had carried stuck through his own temple.
+
+
+
+“Stan?” Reggie snaps, then sucks in a short breath.
+
+
+
+I jump as Reggie’s voice cuts into my thoughts.  I rip my attention from the cathedral massacre to see him looking at me with concern on his face.  The tour group stands behind him.
+
+
+
+“How…” I start without knowing what to ask.
+
+
+
+Reggie holds up a hand to still the tour group as he looks up and down the hallway.  “Where-” He starts, then trails off.
+
+
+
+As if in answer, the voice of the Japanese doctor screaming in his native tongue echoes through the hallways around us.  Reggie and every member of the tour group flinch instinctively and several people clap their hands over their ears.
+
+
+
+My head jolts back to the Cathedral doors.  They are closed.  Closed and locked.  Double locked.  I reach out a hand and yank at the chain.  It does not move.
+
+
+
+Reggie looks the doors up and down, clearly concerned.
+
+
+
+The Businessmen.  I look past Reggie and scan the faces of the tour group.  The businessmen are not there.  We are two short.  Or rather, we were always two short.  The Japanese businessmen were not tourists at all.  They were doctors.  Dead doctors.  Spirits; continuing on with their work in death as they had in life.  Studying, observing, and when necessary, administering treatments.  Tourist, patient, spirit, they knew no difference.  We were lucky.  Very lucky.  From Reggie’s pale white face, I could see he knew that as well.
+
+
+
+“Tour’s over,” Reggie manages with a gulp.  There are a few groans of protest, but Reggie silences them quickly.   The garage is a short walk from where we are and we get there without incident.  Pat is waiting for us.
+
+
+
+“Short tour,” Pat says.  It is an observation, not a question.  He can see the strain on Reggie’s face.  He knows something happened.  He does not ask.  He does not want to know.
+
+
+
+“The Atrium-” I start, but Reggie cuts me off.
+
+“The Atrium is compromised.” he tells Pat.
+
+Pat’s face turns sour.
+
+“And you’ll have to collect the group from the Rec Room and give them refunds,” Reggie adds, “We never picked them up.”  Pat looks confused but does not argue.  He does a quick headcount, then ushers our guests out of the asylum and into the night.
+
+
+
+“Pat didn’t mix up the drop-off points.”  Reggie’s voice is low but even.  It is the voice of someone whose parachute failed and had to resort to the reserve chute.
+
+
+
+I don’t answer.  I just stare past him.
+
+
+
+“The businessmen…” he trails off.
+
+
+
+I shake my head and start swaying gently from side to side.  “I’ll understand if you-”
+
+
+
+Reggie cuts me off, his voice seemingly far away, “We're good.  We're all good.”
+
+“Good,” I repeat the word, still staring past him.  Staring at the boots that sway back and forth, dangling over his shoulder.  They look so familiar.  The left boot lace is double-knotted.  The right lace hangs un-tied.  They look like my boots.
+
+
+
+Reggie gives me a hard look then glances over his shoulder to see what I’m looking at.  He inhales sharply, and turns back to me.
+
+
+
+“See ya at the next tour, Stan,” he says quickly as he turns and heads for the door.
+
+
+
+I open my mouth to respond but my bloated tongue no longer allows words to pass.  My neck itches where the bruises and rope burns still sting.  I reach out a hand towards the swaying boots below me, desperately wanting to re-tie the right lace.  Eternally unable to do so.
+
+
+
+The door closes behind Reggie.  I am left in darkness.  Left to hang.  To sway.  To wait.
+
+  
+  
+
+
+“Stan?”
+
+Reggie’s voice is barely a whisper.   
+
+The words spring up from somewhere deep in my chest.
+
+“I’m here…"
+
