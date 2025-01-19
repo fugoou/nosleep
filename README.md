@@ -1,454 +1,150 @@
-# Tour for the Dead
-Only in the spiraling depths of the infinite shades of black behind my eyelids do I ever feel at peace.  The near constant pressure behind my eyes fades, and the constant weight that bears down on my shoulders eases.  And it is here, in the garage of the old asylum, that I feel a sense of calm.
+# Vitya's Effigy [Part 1]
+Someone once said that beauty is pain, and I have to think that they too were once visitors to the Inferno Gallery.  That, or they happened to be acquainted with the brilliant sculptor Victor Levchenko.
 
+Back in the early aughts, I was fresh out of college and in debt, taking on odd jobs to supplement the meager income my roommate brought in.  This story happened around the time I’d started a job putting up flyers for whoever commissioned the business.  It was pretty standard stuff:  missing dog posters, impromptu poetry slam nights, grand openings or closeout sales of sundry grocery stores, you name it.
 
+But there was one particular stack of flyers that caught my attention, one foggy day in mid-May.  The design was simple, yet effective.  In an elegant white font on a black background, it read “Madame Blanc’s Inferno Gallery”, and had an address and a phone number at the bottom.  Normally I’m not a stuffy art person, but one small line at the bottom of the flyer caught my attention:  “Admission free to the public”. 
 
-“Stan?”
+I was already intrigued.  My roommate was going to be out with her girlfriend that weekend and I was planning to pig out on crappy pizza and a romance movie, so having something constructive to look forward to that night would be great.  As if I didn’t need more convincing,  I checked out the back of the flyer.  Most people don’t put things on the backs of flyers that are supposed to be posted on bulletin boards and other places, but the client had asked for these flyers to be handed to people directly, so it made sense.
 
-The quivering voice is barely a whisper.   
+The back of the flyer wasn’t as put-together as the front.  Rather than featuring any fancy fonts and text sizes, it simply bore a list of names:  
 
-“I’m here.” The words spring up from somewhere deep in my chest.  I let out a sigh and allow myself to rise back to consciousness like a bubble of air surfacing in a murky pond.  My eyelids flutter, then open.  The room around me is still dark, but my eyes adjust quickly and I pick out Reggie’s hunched form at the far edge of the room.
+Sandra Gulley-Ransom
 
-“Your boot is untied.”  His voice is still a whisper, though the quiver is mostly gone.
+Daisy Fay
 
+Curly Canton
 
+Neville Pilgrim
 
-I check my watch.  It is a few minutes past one in the morning.  I find my feet and strike a match.  The small flame burns like a mini sun to my dilated eyes.  I give them a moment to adjust before I light the old gas fueled lantern and lift it high.  The light chases shadows to every corner of the room and the reflections of the flames dance in Reggie’s eyes.
+Alice-Rose Beckett
 
+Victor Levchenko
 
+As much as I was a little put-off by the pretentiousness of the names, I had to do a double-take at the last name on the list.  I knew that name very well.
 
-I take a moment to study the boy.  He is still young.  Young, but reliable.  I can hear the fear in his voice.  I can see it in his posture.  His fear makes him wise.  Only a fool would not fear this place.
+Back during my college days, before I found out just how hard it was for a person to get a job with an English degree, I was a bright-eyed nineteen-year-old trying to glean any inspiration I could from all the unconventional art students, the counter-culture junkies, the 21st-century beatniks.  They were pieces of sea-glass in the middle of grains of sand, and I wanted to know everything about them.  And one of those beautiful nonconformists was Victor Levchenko.
 
+Out of all the weirdo art punks on campus, Victor was definitely the least approachable.  He was tall and imposing, with whiskey-colored eyes, messy dark brown hair, and a vaguely Slavic accent that nobody knew the origin of.  Victor barely spoke to anyone on campus except this one freckle-faced photography major with bright green eyes, so it was a shock to me when he agreed to an interview for a blog I was running as part of a class project. 
 
+The two of us became somewhat close until he graduated, after which I lost track of him…at least until now.  I couldn’t deny the way my heart did a somersault when I read his name on the list.  I had to see him.  There was no way he’d remember me, of course, but I at least wanted to know how he was doing.
 
-Four short raps at the garage bay door pull my attention back to the task at hand.  Reggie jumps at the sound, then glances foolishly in my direction.  I only watch him, unjudging.
+Saturday couldn’t come fast enough.  I wasn’t sure what people wore to fancy art exhibitions, but I was on a budget, so I had to make do with a mostly unwrinkled button-down, a skirt I'd bought at a thrift store and never had any occasion to wear, and the fanciest shoes I owned.  Which were a pair of beat-up Converse I’d saved up my money for because I thought they were cool.  
 
+It took me a while to find the address on the flyer.  I’d only lived in this town for six months, but it was a small enough town that I thought I knew where everything was.  The Inferno Gallery was held in a small stone church that I’d never seen before.  The grey bricks were cracking, the wooden door faded and starting to splinter in some places.  I wasn’t expecting much, maybe a few easels set up with some LED gamer lights plastered on the walls, but when I pushed open the door, I was met with a drastically different environment.
 
+Instead of a dark, slightly damp chapel, with mouldering pews and a dilapidated crucifix above the altar, I stepped into a sleek, modern-looking room.  The walls were some shiny material I couldn’t place, between metal and plastic, and were lit from below with blue neon strips.  The space seemed impossibly big for how small the church looked from the outside, but more confusing than the room itself was its contents.  
 
-‘Let’s get this show on the road.”
+Trying to describe all of the pieces contained in that room is…a daunting task.  There was everything from stop-motion animation playing on a screen, to a slideshow of the most heartbreaking photos you could imagine, to paintings portraying people in various states of unimaginable grief.  Every type of physical and/or digital art one could imagine, there was at least one example of it in the gallery.  At one corner of the room, a young woman sat under a flickering spotlight that cast a halo on her auburn hair, playing a mournful melody on a cello.  There were a dozen or so people meandering around, but whether they were curious visitors like me or the people who made these pieces wasn’t clear.
 
-  
+In the center of the room, on prominent display, stood a limestone statue on a black pedestal.  It was around three feet tall, not life-size, and depicted a frail old man doubled over, an expression of pure agony on his face as he turned his head to look towards his back.  The old man’s back was split open, and a younger man could be seen clawing his way out, a manic smile on his handsome face as his twisted body struggled to emerge.  A small placard on the pedestal read “Evolution–Victor Levchenko”.  I couldn’t help a small smile.  I would have recognized that gut-wrenching realism anywhere.
 
+“Beautiful, isn’t it?” said a soft voice from behind me.  I turned around to find a woman around several years older than me standing a couple feet away.  She was round and doe-eyed, with mousy brown hair and soft pink lips curled into a demure smile.  I shrugged.
 
-Pat is the groundsman.  He came on a few years back to help with the tours but just couldn’t cut it.  Now, his job is to collect the fees and sneak the guests past the night guards.  In truth, the guards know what takes place within these old walls, but they don't care.  Sneaking past them does add a level of excitement for our customers though.
+“That isn’t the first word I would use, but, yeah, I guess.”  The woman moved a bit closer, circling the pedestal.
 
+“Victor’s work is always so inspiring,” she said, clasping her hands together.  “Sometimes I think he’s Madame Blanc’s favorite.”  All of a sudden, she sidled back over to me and stuck out a hand.  “I’m Sandra, by the way.”  I shook her hand with a small smile.
 
+“Olivia Song.  Livy.”  I glanced around, trying to see if I could catch a glimpse of the sculpture’s reclusive creator.  Not seeing anyone resembling him, I decided hanging out with Sandra for a bit wouldn’t be so bad.  She seemed friendly, and maybe I could ask her a few questions about this gallery.  “So, which one is yours?” I asked, gesturing to the rest of the works in the gallery.  Her cheeks turned a bright pink.  
 
-Pat’s signal from the outside is to let us know how many groups will be joining the tour.  Four knocks means four parties, each left at a different entrance.  Each waiting to be collected.
+“Oh, um, I did the stop-motion animations over there,” she said, pointing.  I walked over to two of the smaller screens, little more than glorified iPads, that were set up on pedestals next to a glass case. The case contained three handmade figurines, two of which looked like they were made out of clay.  The third looked like it was made out of paper, and oddly looked a lot like Sandra herself.  I bent down to peer at the figurines.  
 
+“Is this one you?” I asked, pointing to it.  Sandra brushed her hair back from her face.  
 
+“Y-yes and no,” she said.  “She wasn’t supposed to be, but when I was making her, she just kind of ended up looking like me.”  I glanced up at the iPads, noticing the “Sandra” figurine featuring in a couple of the animations playing, and realized with barely suppressed alarm that one of the short sequences featured the puppet being set on fire.  “I-I made several of her for that one,” Sandra remarked, noticing what I was looking at.  “Ended up keeping this version for the exhibition, it’s the most detailed.  I think I messed up the joints a little, but…”  She trailed off.
 
-“Which entrances are active?”  I ask Reggie in a hushed tone as we walk through the double doors and into the first of a labyrinth of corridors that snake through the old complex.  The halls are wide and barren.  Voices carry effortlessly down the worn, tiled hallways.
+“Even if you did fuck up the joints, who’s going to be able to tell?”  I jumped at the voice coming from behind me, recognizing the thick accent instantly.  Sandra also jumped, clearly startled.
 
+“J-jeez, Victor, I didn’t see you there,” she said, hunching in on herself.  I didn’t blame her.  Anyone with a spine that wasn’t made out of titanium would be intimidated by him.  He honestly hadn’t changed much from the last time I’d seen him.  His hair was a bit longer, and he’d had to start using a cane within the last couple years, but he was still the same old Victor.  Sandra was still meekly apologizing nearby, but Victor had eyes only for me.  
 
+“Well, well, if it isn’t my favorite writer,” he said, the faintest hint of a smile crossing his face.  “It’s good to see you, Livy.” At some point, a man wearing a black cowboy hat had joined the woman with the cello in the corner, accompanying her cello playing with languid picking on a banjo.  Very romantic, I thought.  
 
-“It’s the first week of the month,” Reggie says, “So Pat should be using the west side foyer, Room 112 with the missing window, The Rec room entrance, and….”
+“Hi, Vic,” I said, resisting the urge to tuck a strand of hair behind my ear.  Neither of us were very good at small talk, so he ended up just showing me around the gallery and pointing out things by the various artists.  Once, we passed a man in a tuxedo standing in front of a baroque-style painting of a man chasing after a fleeing woman.
 
-Reggie trails off.  I give him a minute before opening my mouth to speak, but he comes up with it at the last moment, “Hall 2B, at the fire door exit.”
+“That’s Neville,” Victor said next to my ear.  “Don’t talk to Neville, his head is so far up his own ass he could do his own colonoscopies for free.”  I tried my best to stifle a laugh, both from the hilarity of that mental image and out of sheer giddiness.  I couldn’t remember when, but Victor had placed a hand on the small of my back when I hadn’t been paying attention.  God, I’d missed him.  
 
-“Good,” I say.  “You have the keys?”
+It seemed like I spent hours in that gallery, admiring the works displayed there, as disturbing as they were.  Victor told tell me little bits of trivia about each one, as he’d gotten to know the artists rather well through this gallery (except Neville), and eventually I felt like I’d gotten to know them too, if only through their work.  
 
-“I have the keys.”
+“*Your attention please,”* a French-sounding female voice came over a loudspeaker, startling me.  “*The gallery will be closing in fifteen minutes.  Please make your way to the exits and enjoy your evening.”*  
 
-“And why do we use lanterns?”
+“Who was that?” I asked.  Victor smirked.
 
-“Flashlights fail.  Batteries die.  Oil always burns.”
+“Our mysterious benefactress, Madame Blanc,” he said.  “She has a flair for the dramatic.”  As the patrons made their way towards the front of the gallery, Victor held me back.  “Stay for a bit?” he asked.  “I’ve been meaning to catch up with you, but you aren’t exactly easy to find.”  I was about to make some excuse of not wanting to intrude before Sandra came over, accompanied by the cellist and the banjo player.  
 
-“What are the rules?”
+“The five of us usually go out to dinner after gallery night,” she said.  “We were wondering if maybe you’d want to join?”  
 
-“Everyone stays together.  No exceptions.  Stick to the main hallways and common rooms.  Some rooms can be opened on special requests, but none of the rooms on the 2nd floor, west wing.  And no rooms that have red ‘X’s on their doors.”
+“Five…but there’s only four of you,” I said.  Just then, a woman with short blond hair and what looked like a flapper dress came jogging out of a separate wing of the gallery, her heels clicking on the floor.
 
-The kid is a quick learner.  He will be running tours by himself soon enough.
+“Sorry, everybody, had to use the ladies’ room,” she called out, smiling.  Seeing me, she shook my hand energetically and introduced herself as Daisy Fay.  I highly doubted any of the names listed on the flyer were these people’s real names, with the obvious exception of Victor.  My friend chose that particular moment to introduce me as “an old friend from college”, to which the others gathered around in fascination.  Apparently they, like many of my old classmates, had been under the impression that Victor didn’t have friends.  
 
-“You seem to have it well in hand,” I say, “I’ll let you run the whole thing tonight.  I’ll just observe.”
+“If everybody’s ready to head out, I say we move along and rustle up some food,” said the cowboy, who introduced himself as James “Curly” Canton.  Curly had a charming Texas twang and could easily win a Heath Ledger lookalike contest.  I learned he’d grown up on a cattle ranch near Fort Worth before coming up north to seek his fortune, against the wishes of his ailing grandfather, who had hoped he’d take over the ranch.  As we made our way out of the building to Sandra’s SUV, I was introduced to the rest of the Inferno Gallery’s star artists.
 
-Reggie makes a face filled with two parts pride and one part doubt, but says nothing.
+Alice-Rose Beckett, Alice for short, was from a middle-class family in Vermont, but her parents had perished when she was twelve and she’d spent the rest of her childhood under the care of a wealthy aunt who had fostered her love for music.  It was also clear to me that she harbored a subtle crush on Curly, as she kept staring at him even when he wasn't speaking and made a concerted effort to be near him.  
 
+I’d been wondering why Sandra had a hyphenated last name, as I’d had the notion that only rich people did that when they didn’t want to lose the prestige of one name just to take on another of equal merit.  However, I soon found out that she had recently been divorced, and had chosen to keep her husband’s last name of Ransom appended to her own as a stage name of sorts.  It sounded like he wasn’t exactly the Prince Charming she’d thought he was. 
 
+Daisy was by far the most colorful of the group, and also the most mysterious.  Even after talking to her for well over an hour, I still knew only a few things about her.  She loved black and white photography, she loved the 1920s, and above all, she held a deep, abiding affection for any film starring Jimmy Stewart.  
 
-The hallway leads us to the first of many intersections and wordlessly, we both drop to one knee, cross ourselves, then stand and pass through the intersection.  Neither of us look left or right as we pass through the intersecting hallway.  I catch movement in the corner of my eye as we pass but keep my eyes locked ahead.  We always do this at intersections.  We never look.  Pat looked once.  He never set foot inside the asylum again.  He had been lucky.
+“He’s just so emotive, you know?” she explained over slices of the greasiest pizza I’d ever had.  Anyone else might have gotten a stomachache from the grease, but I grew up eating my mom’s kimchi and have the intestinal fortitude of a primordial god.  Eventually, however, the conversation inevitably turned to me and what I did for a living.  
 
+“Oh, um…Well, right now I put up flyers for whoever's paying, but if I could do whatever I wanted…I dunno, I’d probably write for a magazine or something.”
 
+“Pulitzer material, this one,” Victor interjected, patting my shoulder.  I looked up at him, confused.  Victor didn’t *do* compliments; in fact, you’d be lucky to get anything more than a “not bad” out of him.  It almost seemed like he was proud to know me, which was nice…even if totally out of character.  It also made me realize I was super out of practice with my writing.  Maybe I ought to start up that journal again, I thought.
 
-We walk on in silence, listening to our footsteps and the hint of echoing footsteps following behind us as we go.  Soon enough, we arrive at the asylum’s western entrance.  Reggie pulls a key from his belt, knocks three times on the door, unlocks it, and lets the door creak slowly open.  The doors to the outside remained unlocked, but the inner foyer doors are always kept secured.  It is just one of many ‘waiting rooms’ that we use as meeting points for our guests.  The smaller the size of each group sneaking onto the grounds, the less likely they are to be caught by the night guards.  Or by anything else that stalks these grounds.
+When I got home that night, my roommate wasn’t home.  She must have spent the night with her girlfriend.  Not wanting to go to bed just yet, I decided to flop on the couch and channel-surf for a while, snagging some leftover Traverse City Fudge from the freezer on the way. 
 
+There wasn’t much on TV, just some cop show reruns, *Dateline* and one of those skeezy reality shows involving scantily-clad women, so I ended up settling for a few episodes of *Columbo.*  I didn’t always like the show’s format of showing the killer right away, but I could definitely respect a man who was so completely in love with his wife that he mentioned her every episode.  I was a romantic back then.  Maybe some part of me still is.
 
+In the middle of a riveting interrogation scene, my phone buzzed.  I picked it up to see I had a text message from a number I didn’t recognize.  It simply read *Hey.*  My mom always taught me to not answer texts from strangers, but this one made me curious.  I didn’t remember giving my phone number to anyone at the pizza place earlier.
 
-As the door opens, four beams of light shine in our faces.  Reggie and I are used to it.  The guests are nervous and have been waiting for us.
+\-*Hi?  Who is this?*  I typed, sitting up on the couch, spoon hanging out of my mouth.  The message was read almost immediately, but it was a while before the person on the other end started typing.
 
+*-Oh, sorry.  It’s Victor.*  There was a pause before he added, -*I figured you hadn’t changed your number.*  Now I remembered.  When I interviewed Victor for the university paper, I had given him my phone number so he could text me when he was available to meet up.  I was debating what to say next when he started typing again.  *-I meant what I said earlier.  It was good to see you.  I was wondering…*
 
+*-Wondering what?* I asked.  
 
-“Lights down please,” Reggie says in a low voice.  “You can leave your flashlights on the table and collect the lanterns.”
+*-Would you maybe want to get dinner with me sometime?*  I nearly dropped the phone.  *-I get you’re probably busy, but I really do want to talk with you more.*  I set the phone down on the couch next to me before I *did* drop it.  
 
-“And please hold all questions until we have picked up the remaining guests,” I add.  Reggie grimaces. 
+“What?” I said aloud, before looking at the text again.  “No, no, I definitely read it right.  What?”  Honestly, I had already been planning on visiting the gallery again next week on the insistence of Victor’s artist friends, so it couldn’t hurt.  What did I have to lose?
 
-"Please hold all questions until we pick up the rest of the guests," he echoes.  I smile, more to myself than to him.  He will not forget the line again.
+\-*Sure.  Did you have anywhere in mind?*
 
+*-I was thinking the Red Dragon Buffet over on Great Portland Street,* he typed.  I raised an eyebrow.  The Red Dragon Buffet was my absolute favorite restaurant in town, mostly because of their delicious yet somehow affordable lo mein noodles.  Was it a coincidence, or was Victor somehow clairvoyant?  I suspected the latter.  
 
+*-OMG, I LOVE Red Dragon!*  
 
-Our party moves down the building’s central corridor and quickly picks up the next group from room 112; who had come in through the missing window. Then on to the stairwell and the second floor.  At the end of Hall B, we open the door that lets out onto the fire escape to pick up our third party of guests before heading back to the ground floor.
+*-Excellent.  When are you free next week?*
 
+*-All weekend, basically.  Friday night?*
 
+*-Perfect.*  I couldn't help a giddy little squeal as we agreed to meet up at Red Dragon at 6pm the following Friday.
 
-The Rec room is in the South-East corner of the building.  Normally it is a quick couple of turns, however, with guests in tow, we opt for the safer route of going around the outside perimeter hallways.  Until the whole group is together and we can go over the rules, it is best to avoid any of the intersections, or worse, the central cathedral.
+The following week was a blur.  I went to work, went grocery shopping, ate, slept, but all I could think about practically the entire time was seeing Victor again.  I hated to admit it to myself, but I was lonely.  Kristen, my roommate, had been with her girlfriend for over two years by that point, and I was jealous.  I wasn't ugly by any stretch of the word, but I had one of those faces that guys just didn't pay attention to except to assume I was Japanese and proceed to quote Naruto at me.  It didn't help that I was usually pretty quiet and kept to myself unless I had a group project in school.
 
+Friday night came with pouring rain and fog that rolled off the asphalt in thick waves.  I was lucky I lived only a few blocks from Red Dragon, but by the time I arrived, my brand-new wrap dress was soaking wet and my bangs were plastered to my forehead..  I found Victor sitting at a booth near the back, the decorative paper lanterns hanging from the ceiling casting a rosy glow across his pale face.  He'd pulled back his hair, presumably to make himself more presentable, but was wearing the same old, beat-up bomber jacket he always did.  Frankly, I wouldn't have had it any other way.  He smiled when he saw me, waving me over, before his smile fell as he noticed the state of my clothes and hair.  
 
+“You're soaking wet, what happened?” he asked.
 
-Halfway down the Western corridor, Reggie stops short and tips his head.  I stop as well and close my eyes.  If he hears something, it would not be wise to speak over it.  Our guests seem to pick up on this as well, or perhaps they are all just too nervous to talk.  Either way, they stand silent, listening.
+“I don't have a car.”  He clucked his tongue, shaking his head.
 
+“Next time I'm picking you up.  You're going to end up sick.”  Over my protests, he took off his jacket and placed it around my shoulders.  
 
+“There's going to be a next time?” I asked, nudging his arm.  A smirk twitched across his face.
 
-There it is.  A dull rapping sound.  Like someone tapping on a glass door with their knuckles.  In all the years I had been doing this tour, I had not heard that sound before, and believe me, I have heard plenty of others.  Could it be...
+“Do you want there to be?” he asked, handing me a fortune cookie.  I didn't answer.  I didn't need to.
 
+There would indeed be a next time.  And a third time.  And a fourth time.  The fifth time I had dinner with Victor, we went back to his place together, and I learned exactly what those sculptor's hands of his were capable of.  The next morning, he made me breakfast and I spent the day in his studio, watching him work on some new pieces before he drove me home late in the evening.  Life was good, and for the most part it still is, but after our fifth date, things started happening that I will never be able to forget.
 
+\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~
 
-“It’s a warm night,” Reggie says to nobody in particular.   It is the first non-whisper that anyone in the building has spoken that night and the tour group recoils back as though he had shouted the words.   I give the kid an approving nod.  He had remembered, make noise, but do not address the sound directly.  It is one of the cardinal rules.  Never engage with anything that might be listening.
+Series Masterlist
 
+Part 1
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hviusg/vityas_effigy_part_2/)
 
-Some spirits could be harmless.  Helpful even.  But others.  Others could be vengeful.  Violent.
+Part 3
 
+Part 4
 
-
-The tapping does not stop.
-
-“Sounds like glass,” Reggie says, catching up to my earlier thought, “The Atrium...”
-
-Once more I let out a sigh, “Pat mixed up the rooms again.”
-
-Reggie huffs in aggravation, but I can see the tension drain from his face.  There is nothing for it.  We turn the group around and guide them back the way we came.  It is a few short moments to the Atrium.  Two figures can be seen through the heavy glass doors.  They must have seen our shapes pass by in the hallway moments earlier.  They must have been nervous, perhaps unsure if we were the tour group or some form of wandering spirits.  But they had knocked as instructed when we missed their pickup schedule.  Not all groups did.
-
-
-
-Reggie unlocks the glass doors and a few relieved and awkward grins are exchanged all around.  Lanterns are distributed to the new group and Reggie begins running through the orientation speech.  He covers the hallway intersections, noises in rooms, eye contact and the other various rules that we have established over the years.  I take my time and inspect the people who have joined us for tonight’s tour.
-
-
-
-Most people who came, would come in groups, and those groups generally stuck pretty close together.  Further, the groups we picked up from each different waiting room seemed to stick together as well, likely due to the fact that they had time to talk and mingle before descending upon the silent corridors of the old asylum.
-
-
-
-The groups are all pretty run of the mill tonight.  The Foyer group has two couples and a fifth wheel.  Loners are most apt to wander off, so I make a mental note to keep an eye on their spare.  Room 112’s group appears to be made up of college students.  The Atrium had the smallest party.  Its group consists of two asian men in cheap suits.  Traveling businessmen, likely looking for some thrills to spice up a boring conference trip.  The second floor group is the most diverse, consisting of a family that includes the parents along with two teens as well as a geriatric gentleman.
-
-
-
-Everyone who had signed on for the tour has signed disclaimers - assuming Pat had gotten that part of his job correct - but I make a mental note to keep an eye on the older man as well.
-
-
-
-As Reggie finishes his spiel, I raise my lantern and start off into the labyrinth of hallways.  Reggie follows and our guests fall into step behind him.
-
-
-
-“Sternvyrm Asylum was founded in 1869,” Reggie begins. His voice is barely above a whisper but it carries to the entire group with ease.  “The original building was commissioned by a minister who wanted to build a cathedral, but he died before the work was completed.”  
-
-
-
-We led the troup away from the outer perimeter hallways and deeper into the long abandoned and neglected hallways.
-
-
-
-Reggie continues.
-
-
-
-“His family would eventually donate the land to a doctor who had radical ideas regarding the mental toll of the Civil War on the soldiers that fought in it as well as the civilians caught up in its wake.”
-
-
-
-I stop at a hallway, drop, cross myself, then watch to be sure everyone in the group does the same before moving through the intersection.
-
-
-
-“Doctor Sternvyrm, would expand the original chapel and outbuildings extensively over the years, connecting them.  As he expanded the grounds, he expanded his patients.  He took on additional mental patients to attain federal grants and funding to continue his research on what we now refer to as PTSD.”
-
-
-
-As I walk, kneel and cross my way through the Asylum, I fall into autopilot and withdraw as much as possible into myself.  Reggie is keeping a good eye on the guests, and the first leg of our tour is generally rather uneventful.  I let my mind wander.
-
-
-
-—
-
-
-
-"They keep grinning at me,” Reggie mutters under his breath.  I pull back out of autopilot and look at him.  His gaze is locked on the two Asian businessmen.  We are near the end of the preliminary tour and are standing in an observation room on the second floor.  It looks down on the North-Eastern Day room.  The Day room has always been a surefire spot to observe paranormal activity and today is no exception.  A lone wheelchair is rolling in a never ending circle near the far wall.  The more skeptical in the group will convince themselves it is staged.  Reggie and I know better.
-
-
-
-Reggie absently reaches out and grabs the arm of one of the college students who was about to wave at the chair.  The boy gives Reggie an irritated but resigned look.  Waving is a form of engaging the entity.  He should know better.
-
-
-
-I wait a moment further to be sure the kid won't try again, then cast a glance at the Asian men.  As I watch, the pair turn from the observation window and look at myself and Reggie before looking back through the glass.  Both men have small smiles on their faces.
-
-
-
-“They’re nervous,” I whisper to Reggie, "The grinning is just a cultural thing.  It's fine.  Just keep an eye on them.  If they seem to start sweating too much or if you don’t think they can handle it… let me know."
-
-
-
-Reggie relaxes visibly.
-
-
-
-I study the men again before adding, “Yeah, they’re just nervous.”  
-
-
-
-But something is nagging me.  Something feels off.  While I had been zoned out the first stretch of the tour, I had noted an unusual lack of activity.  The beginning is generally quiet, but never this quiet..  There is always a door slamming or glass breaking or even the sound of mild sobbing while traversing the hallways.  Tonight it had been silent up until the observation room.  Too silent.
-
-
-
-I shake my head.  There is no such thing as too silent in these halls. 
-
-
-
-‘Tunnel vision kills’ I remind myself.   I rub the back of my stiff neck, trying to work a knot out, then lift my lantern to take in the whole group.  If I focus on one guest too much, I may miss another guest making a mistake.  We had lost guests before.  In fact, we had lost both guests and tour guides from tunnel vision.  It was a mistake I was not planning on making tonight.
-
-
-
- I give the Asian businessmen another once over.  They still seem to be studying Reggie and me and copying all our movements and gestures as closely as they can.  They are nervous, but attentive.  The old man is looking through the observation window with incredulity, but he looks fine as well.  I see no reason to cut the tour short.  After one last glance at the college students, I make eye contact with Reggie and give him a short nod.  He nods, almost more to himself than to me.  The tour will continue.
-
-
-
-Underground.  That is where the real activity is.  There are a few rooms above ground with red marks banning entry.  On the several sub-ground levels though, nearly every door is marked.  The underground is where the experimental treatments were administered.  It is where men suffered.  Died.  It is where some of the more dangerous spirits in this cursed building linger.
-
-
-
-There are seven entrances to the underground, but only one that we use.  Its entrance is at the center of the Asylum, just beside the doors to the original Cathedral.  Reggie starts the group moving again and I fall into step at the rear to keep an eye on our guests.
-
-
-
-Reggie continues his spiel:
-
-“As Dr. Sternvyrm built his expansions, he kept the Cathedral at the heart of the structure.  Some think he was a religious man and valued his patients having a place to pray and reflect.  Others believe that he wanted a place closeby in order to petition God for forgiveness for the atrocities he was committing just below its holy foundation.”
-
-
-
-I watch as the group drops in unison to cross themselves before passing through the next hallway.  One of the teens - the boy - glances to his right as he crosses the hallway.  He turns his head back quickly, whether from startlement or indifference, I cannot tell.
-
-
-
-“Eyes front,” I whisper.  The boy’s ears turn red and his shoulders bunch up.  He is embarrassed and scared.  That is good. He won’t risk looking again.
-
-
-
-As I cross the hallway’s intersection I feel the temperature drop.  My pulse quickens and I do everything I can to prevent my pace from increasing to match it.
-
-
-
-‘Do not engage!’  The words bounce around my empty skull as I stave off the natural impulses of fight or flight.
-
-
-
-“It buuuunrnnnnssss.” a voice breathes in my ear.  I can feel its breath on my earlobe as the small hairs on my neck stand up straight. The weight of an inhuman presence pushes on the light from my lantern, stretching it out across the hallway unnaturally.  I keep my pace and pass through the intersection.  The heavy, crushing presence seems to fade behind me to a low hiss.  
-
-
-
-No one else of the tour group had reacted.  I doubt if any had heard the voice.  But the hairs on the back of my neck are still standing on end.  Is it following us?
-
-
-
-‘Do not engage!’
-
-
-
-Did the spirit latch onto me?  Or perhaps onto the boy?  It is not the type of souvenir one wants to bring home from a place like this.  I make a mental note to make sure to keep an eye on the boy.  Reggie continues his speech, unaware.
-
-
-
-“Styrnvyrn believed in very aggressive treatments and he pioneered methods that today would be considered little more than torture.  He also believed in putting patients out of their comfort zones and often hired Doctors who would only further traumatize their patients. For Union soldiers he would hire Doctors from the deep south with thick southern drawls.  The idea was to make the patients face their fears.  This practice was continued by his successors by hiring German and Italian doctors after the Great War, adding Japanese doctors after World War Two, and finally Russian and Chinese doctors during the Cold War.”
-
-
-
-We cross another hallway.  I cannot tell if the presence behind me is still there, or if this growing sense of unease is due to getting closer to the Cathedral.
-
-
-
-Reggie, still unaware of my growing concerns, continues on.
-
-
-
-“Between doctor and patient tensions and the implementation of methods such as ice baths, steam rooms, electroshock therapy, lobotomies, and other heinous treatments, many patients suffered mental breakdowns and ultimately, over the years, several doctors and staff were killed by their patients.  Many more of the patients commited suicide.  In fact, it was rumored that several orderlies ran a quite profitable business of selling the patients everything from medications to overdose on to rope to hang themselves with.”
-
-
-
-Ahead of me, Reggie rounds the final corner that leads to the basement.  The troup disappears around the corner one by one.  With them out of view, and against my better judgement, I cast a short glance over my shoulder.  
-
-
-
-A lone man stands in the middle of the last intersection.  The telltale burns on his temples and blood seeping from his eyes tell me he had suffered electrotherapy and a lobotomy.
-
-
-
-I give no sign that I see him, mustering all my will on focusing my eyes through him as though he is not there. I count to three in my head then turn back and round the corner.
-
-
-
-Alarms go off in my head.  Something is wrong.  Something is very wrong!
-
-
-
-First, Reggie and the tour group are already halfway to the stairwell.  I had stopped only a few seconds before turning the corner, and now Reggie and the tour group are better than 100 yards down the corridor.
-
-
-
-Second, and more concerning than the time loss, the great doors to the cathedral stand wide open.  These doors are kept shut.  Always.  We check them before every tour.  We double lock and triple check them.  I did this just before meeting Reggie in the garage.  There was no way they could be open now.  No way, unless….
-
-
-
-Finally, Reggie is continuing down the hallway as though nothing is wrong.  His path to the Underground will take him straight past the doors of the Cathedral and he is showing no sign of stopping.
-
-
-
-‘Do not engage.’  The words pound through my head like a mantra.
-
-
-
-I cannot shout out.  I cannot risk the noise. Cannot risk awakening what lingers in the cathedral.  
-
-
-
-I sprint forward.  It is risky, but I see no alternative.  The tour group and Reggie are my responsibility.  I have to stop them.
-
-
-
-The shadows on the walls stretch and churn, upset by my sudden movement.  The light from my lantern arcs around the walls in psychedelic and seizure inducing patterns as it jolts up and down with my unsteady gait.
-
-
-
-But even as I run, I know I will not make it in time.  I watch in horror as Reggie reaches the entrance… and passes by without so much as a glance.  The tour group follows behind him.  First the college kids, then the old man.  One of the older couples passes by and they seem to shiver as they do so.  
-
-
-
-Do they not see?  How could they miss it?  Did Reggie see and tell them all to keep their eyes ahead like in the intersecting hallways?
-
-
-
-The Teens and their parents pass next, the boy seems to miss-step but keeps his head locked in the forward position.
-
-
-
-The group is nearly in the clear.  Just a few more.
-
-
-
-The Asian businessmen in their suits are passing now.  No.  Not passing.  Stopping.  Stopping and turning.  Turning not just their heads but their whole bodies.
-
-
-
-I am screaming now as I run.  Screaming at the top of my lungs but no sound is coming out.  I am running flat out but the shadows that were first stretching across the walls are now stretching the walls themselves.  Stretching out the hallway, making it longer and slowing my progress through it.
-
-
-
-One of the men reaches a hand into his jacket.  When he pulls his hand free from his jacket, he is holding a syringe.  He waves, as if signaling to someone inside the room.  The second man moves forwards slowly, momentarily blocking the first from my view.  He then bursts into the room in a single violent action.
-
-
-
-I skid to a halt and peripherally, I see the shadows rush past me on the walls.  The man with the syringe is in view again, but he no longer looks like a businessman.  His suit is gone, replaced with a green surgical apron.  He walks purposely through the doors of the Cathedral.  Then the screaming begins.
-
-
-
-I coax my legs to move again and find myself stepping up to the doorway of the Cathedral.  It is a massacre.  Three figures in white scrubs lie motionless on the floor, their white uniforms splattered with dark red sprays of blood.  The two Asian doctors are there as well, one of them kicking and screaming in Japanese as the patient on top of him is throttling him with his bare hands.  The other lies dead with the syringe he had carried stuck through his own temple.
-
-
-
-“Stan?” Reggie snaps, then sucks in a short breath.
-
-
-
-I jump as Reggie’s voice cuts into my thoughts.  I rip my attention from the cathedral massacre to see him looking at me with concern on his face.  The tour group stands behind him.
-
-
-
-“How…” I start without knowing what to ask.
-
-
-
-Reggie holds up a hand to still the tour group as he looks up and down the hallway.  “Where-” He starts, then trails off.
-
-
-
-As if in answer, the voice of the Japanese doctor screaming in his native tongue echoes through the hallways around us.  Reggie and every member of the tour group flinch instinctively and several people clap their hands over their ears.
-
-
-
-My head jolts back to the Cathedral doors.  They are closed.  Closed and locked.  Double locked.  I reach out a hand and yank at the chain.  It does not move.
-
-
-
-Reggie looks the doors up and down, clearly concerned.
-
-
-
-The Businessmen.  I look past Reggie and scan the faces of the tour group.  The businessmen are not there.  We are two short.  Or rather, we were always two short.  The Japanese businessmen were not tourists at all.  They were doctors.  Dead doctors.  Spirits; continuing on with their work in death as they had in life.  Studying, observing, and when necessary, administering treatments.  Tourist, patient, spirit, they knew no difference.  We were lucky.  Very lucky.  From Reggie’s pale white face, I could see he knew that as well.
-
-
-
-“Tour’s over,” Reggie manages with a gulp.  There are a few groans of protest, but Reggie silences them quickly.   The garage is a short walk from where we are and we get there without incident.  Pat is waiting for us.
-
-
-
-“Short tour,” Pat says.  It is an observation, not a question.  He can see the strain on Reggie’s face.  He knows something happened.  He does not ask.  He does not want to know.
-
-
-
-“The Atrium-” I start, but Reggie cuts me off.
-
-“The Atrium is compromised.” he tells Pat.
-
-Pat’s face turns sour.
-
-“And you’ll have to collect the group from the Rec Room and give them refunds,” Reggie adds, “We never picked them up.”  Pat looks confused but does not argue.  He does a quick headcount, then ushers our guests out of the asylum and into the night.
-
-
-
-“Pat didn’t mix up the drop-off points.”  Reggie’s voice is low but even.  It is the voice of someone whose parachute failed and had to resort to the reserve chute.
-
-
-
-I don’t answer.  I just stare past him.
-
-
-
-“The businessmen…” he trails off.
-
-
-
-I shake my head and start swaying gently from side to side.  “I’ll understand if you-”
-
-
-
-Reggie cuts me off, his voice seemingly far away, “We're good.  We're all good.”
-
-“Good,” I repeat the word, still staring past him.  Staring at the boots that sway back and forth, dangling over his shoulder.  They look so familiar.  The left boot lace is double-knotted.  The right lace hangs un-tied.  They look like my boots.
-
-
-
-Reggie gives me a hard look then glances over his shoulder to see what I’m looking at.  He inhales sharply, and turns back to me.
-
-
-
-“See ya at the next tour, Stan,” he says quickly as he turns and heads for the door.
-
-
-
-I open my mouth to respond but my bloated tongue no longer allows words to pass.  My neck itches where the bruises and rope burns still sting.  I reach out a hand towards the swaying boots below me, desperately wanting to re-tie the right lace.  Eternally unable to do so.
-
-
-
-The door closes behind Reggie.  I am left in darkness.  Left to hang.  To sway.  To wait.
-
-  
-  
-
-
-“Stan?”
-
-Reggie’s voice is barely a whisper.   
-
-The words spring up from somewhere deep in my chest.
-
-“I’m here…"
-
+Part 5
