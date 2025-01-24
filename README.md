@@ -1,368 +1,378 @@
-# I won't be apart of the food chain.  There's one bullet left. 
-I guess I’m writing this to put my mind at ease… I’ve never written in any sort of journal before, but I guess now there’s some sort of record of what happened to me at least. That is if there’s anyone left to read this.
+# I know what is happening with the airplanes
+Have you seen the news recently? Well, I sure have, and… they don’t paint a good picture… Ever since Boeing started falling apart, it has gone downhill. Now, I don’t mean to defame them… more than they already have… but it’s just not them who are the problem, because it’s aircraft from every make that have crashed; and they are not crashing because of mechanical failure. 
 
-Last year the clouds came. Humanity gazed upward as dense red formations accumulated above us. Immediately, people took it as a sign of the end times but were quickly dismissed as the rain the clouds produced didn’t have any distinguishing qualities. It was just rain.
 
-No blood fell from the sky, no acid, and no concoction turning us into horrible monsters from a 1980’s horror flick. The rain seemed to be harmless, and the clouds were gone the next day.
 
-The news just echoed the reports that “meteorologists and experts were ‘stumped’” at what caused the clouds to appear or why they were colored in such an odd way. It turned into a meme for about a month, and everyone had all but forgotten them by the end of last summer.
+Now, I know what you may be thinking, “Just who is this guy to have the nerve to talk about a serious and mysterious matter like a conspiracy theorist?” and, yes, I know that the AIG section of the ICAO is working tirelessly to find the causes of these crashes, the Jeju air collision with a wall and now a small plane crashing in Fullerton, California earlier today, but they won’t find anything. They’ll blame them on mechanical failures, a screw that wasn’t held properly, no maintenance from an airline… so on and so forth, because there are so many things that can go wrong when on a flight that it’s easy to blame something that didn’t cause the accident, but certainly would have after a few flights. 
 
-Around the end of the year, however, as all of the leaves started falling off the trees and plant life began to wither away for the winter, bright red spherical flowers roughly the size of tennis balls began sprouting where fields of grass and forests had been before. Everywhere you went you could see these flowers bloom.
 
-Folks quickly started making the connection to the red clouds, and statements by world governments advised everyone to avoid the flowers as best they could, as more research was necessary before a conclusion could be made. Panic started to set in from the masses.
 
-Conspiracy theorists claimed this was planned by our governments and the flowers would produce spores that would make us more subservient. The religious claimed it was a sign of end times and to prepare for the second coming. Others claimed it was extraterrestrials taking their first step in terraforming our planet for their incoming invasion.
+I know this, because I’m an aircraft mechanic at my country’s main airline and I like to fly many devices during my off time. For the former, I’m the senior mechanic stationed at the Capital’s airport, which is the main hangar where repairs are made for the Airline. For the latter, I like to fly ultralights, my own Cezzna, paraglide and skydive. 
 
-Maybe they all had some sort of truth. Maybe they all couldn’t be further from it. I still don’t know. The media and our elected officials stayed quiet, which of course didn’t help the ever-growing theories on the matter and the government's involvement.
 
-Around December, the flowers were blooming everywhere you looked. Entire countrysides were now painted red with the sprawling vines and buds of these flowers. The new plant life began overtaking all other flora wherever they grew, like an extremely aggressive invasive species.
 
-Finally, our governments couldn’t slap band-aid statements on this ever-growing phenomenon anymore. Task forces were dispatched and began burning operations to remove the flowers, but for every square mile burned, ten more would just as quickly turn bright red with the flowers’ bloom.
+As you can see, I like the air, it has become my life, after all, and I like to keep informed on the developments of mankind in aviation. It was during September of 2024 that I started to receive more and more aircraft with serious problems, the most common being cracks in the internal fuselage and wing structure. I am sure that I don’t need to tell you how dangerous that is. Our airline is called Regional Aeronautics, and it’s small compared to the airlines you may fly in. We operate a total of 20 planes on 8 routes, most aircraft are older Boeing 737s, 2 Airbus A320s which work as our fleet’s crown jewels and the one I loved the most, a single 1976 Handley Page Jetstream which was usually rented for private flights over short distances.
 
-Things started turning more insidious once herbivores started eating the flowers as their normal food sources were all but snuffed out. The herbivores who ate the flowers had a rapid change in demeanor and would quickly run to find a secluded place where they would lie still for days before a guaranteed demise.
 
-Predators and scavengers took advantage of the easy meal, only to meet the same fate. Insects, fungus, worms, and bacteria would all consume the body like they had done for their entire genetic history, and then they too would wither and die.
 
-As farming became impossible and the cattle and livestock either died out or became malnourished, food shortages became our next problem. Many died in riots and famine over the next few months. I guess they were the lucky ones…
+At first, I classified the incidents and damages as a product of our changing climate, since I read an investigation that stated that nowadays, there are more severe cases of invisible turbulence; the turbulence that you and I are used to, that can’t be spotted on radar or any of the other instruments and, therefore, can’t be avoided; than 50 years ago. It wasn’t until the end of November when I started to think it was something else.
 
-I had been dealing with the recent death of my mother, who lived in a farmhouse in the countryside of Virginia. My father passed away years ago, which left the house to me. Looking back, I’m appreciative that they didn’t have to witness what was to come.
 
-I wanted to sell the property, but obviously, no one had buying a house on their mind at a time like this. After receiving an alert to stay indoors on my cell phone, I decided to return to my old home near Washington, D.C., thinking it would be safer.
 
-I arrived in February to my childhood home covered in bright crimson red. I had grown somewhat accustomed to the world being covered in red by this point, but I’d be lying if it didn’t bring me sadness to see the property in this state.
+By that point, we had to ground 9 aircraft, and I calculated that by New Years Eve, we wouldn’t be able to sustain any route reliably. They all had the same problem, structural damage. We even had to dismantle the whole upper part of the Jetstream’s fuselage, which ended up being too much for the old craft, and the airline decided to sell it as soon as they could, a miracle they didn’t decide to scrap it but it was relegated to the sidelines until we repaired the other, more important planes. 
 
-Likewise, the chickens and cattle my parents had raised were all gone… A few of their bodies lay rotting, cloaked in red decay by the edge of the forest behind the house.
 
-Days, weeks, and months passed. I spent my time watching the news and tried to stock up on as much food and supplies as I could. The nights became quiet. I’d go days without even seeing a car drive down the road. 
 
-I started to feel as though something was watching me in the darkness of the night, just outside the tree line where the moon could not reflect the red glow of the flowers in the fields. I attributed it to solitude and paranoia but I could never shake the feeling.
+I decided I would take the Jetstream and repair it after hours, which I guessed would have it flying by Christmas, and the airline surprisingly agreed that I stayed in the hangar after my shift was over… after stating that they weren’t going to pay me the overtime. 
 
-I've always been one to prefer being alone. I worked for a small tech company that didn't require us to go into any office so outside of the occasional zoom meeting here and there I never really talked to anyone. I never thought I'd miss being around others as much as I did at this time. 
 
-April arrived, and the temperature started to rise with it. I think we had all been secretly hoping these red flowers were simply a seasonal phenomenon and would die in concession with our normal plant life returning in the spring.
 
-It never happened. In fact, the red flowers just grew ever more dense, and in late April, they began producing their own form of some twisted pollen. You couldn’t see more than five feet in front of you on a bright spring day.
+December 20th came, and, as Christmas rush approached, we were pressured to have the airplanes in flying condition as soon as possible. The grounded aircraft count had risen to 12 and the last 3 really terrified me. The first one arrived with its lower-left wing looking like a cat had used it as a scratcher, 3 deep gashes tore from the border of attack nearly up to the engine. The second one was worse, with the same pattern of gashes, yet this time, near the nose of the plane. The damage had been significant, damaging expensive sensors and nearly causing the plane to lose runway and resulting in an accident. Similar to what happened recently in South Korea.
 
-The smell it produced was like that of both iron and sulfur and left a rancid taste in your mouth. The news began calling this red pollen the “Red Murk.”
 
-On the third night of the new bloom is when I heard them. I awoke in the middle of the night to wailing screams in the distance.
 
-I lived in the countryside but was within walking distance of a small town where I had been buying my groceries and supplies. I opened my curtains and cracked open the window of my room to peer outside but was met with nothing but blackness and the sounds of men, women, and children screaming in the distance.
+All of those, however, paled in comparison to what happened to the third plane. It was one of the Airbus’, It had departed from the Capital’s airport, heading to the neighbouring country’s capital. At 17H00, it took off and at 17H30, it sent a distress signal, it had lost its steering. It was 1 grueling hour before the aircraft managed to land safely at the Capital’s airport. When it arrived at the hangar, it was terrifying. If I had believed that the first plane was used as a scratcher for a cat, this had been one for a whole litter.
 
-I could not tell if the screams were from agony, fear, or a mixture of the two, but it sent a dreadful chill down my spine. I sat frozen next to my window as my heart raced, and a heavy pit in my stomach started to weigh me down, just listening and feeling helpless to whatever was happening. I was terrified that whatever was making those people scream, would come for me next. 
 
-I realized I had not even noticed the cloud of red spores that had entered my home while the window was cracked. I quickly shut the window, which only muffled the screams in the distance.
 
-I rushed to turn on my TV to check the news, but all that would appear was a never-ending loading screen as the TV tried to connect to the internet.
+Aircraft are painted white from the factory, and over that, the airlines colour parts of them as they want, be it yellow, blue and red, like the Airline, or green, purple… pink even, yet underneath all of that, there is the natural silver and green of the aircraft. The third airplane had the fuselage’s paint torn to the exposed raw silver, it was like a gaping wound, and they were all over the place, small, large, elongated. I saw one that neatly went through the front of the aircraft to the back, splitting it into 2 halves. The wings and tail fared much worse, if the paint was an open wound, the scratches on the wing were down to the marrow. Critical components were damaged, wiring was cut and sometimes straight up missing. When we identified the problem that caused the loss of steering of the aircraft, it was a miracle nothing worse happened. A gash had cut through the hydraulic lines going to the wings on both sides, they had leaked themselves empty. 
 
-I went to find my phone to see what the hell was going on and was met with a new emergency alert notification stating:
 
-“EMERGENCY ALERT: HIGHLY AGGRESSIVE UNIDENTIFIED CREATURES REPORTED ACROSS MULTIPLE STATES. SHELTER IN PLACE. LOCK ALL DOORS AND WINDOWS. AUTHORITIES ARE RESPONDING”
 
-Before I could even process what I was reading, a loud knock at the door had broken my concentration.
+Usually, the lines keep leaking for hours before running out, but these were dryer than the Sahara, and to say it bothered me was an understatement, especially after I found the gashes near the fuel lines. 
 
-“David! David! It’s Ryan. Please!”
 
-I recognized the voice to be my parents' neighbor Ryan and was given a fleeting moment of relief. Ryan was about ten years older than me, and I had spoken with him briefly in the past but never more than a short small talk conversation here and there.
 
-I opened the door to see Ryan, his wife Trish, and their son Nate, who couldn’t have been older than ten. Ryan and his family quickly rushed inside.
+I was terrified, how could turbulence do so much damage to an aircraft… I accepted some structural damage, fissures on the wings and the internal structure were common during strong turbulence and so long as they were treated in a short time, they weren’t dangerous; yet gashes were new, and I just couldn’t wrap my head around how they could’ve formed. 
 
-“What’s going on out there?” I asked as I brought them into the living room.
 
-Ryan and his wife Trish were both in a panic, yet their son was practically frozen, just staring off into the distance.
 
-Ryan told me he was awoken to the screaming as well but realized his son Nate had gone out the front door for some reason. When he and his wife Trish rushed to go find him, they found him standing in the road in front of my house.
+“Easy,” said one of my workmates when I raised the question to a group of them during lunch break on the 22nd, “It’s ‘em Aliens”
 
-In a panic, they rushed here. Ryan’s sentence trailed off to a mumble.
 
-I put on a face of false confidence and offered to let Ryan and his family sleep here for the night. Trish took Nate to bed, but Ryan stayed with me.
 
-I realized at about this time that the screaming had stopped. After Trish and Nate had left the room and Ryan had a second to calm down, he looked over to me and said, 
+I raised an eyebrow at him, confused by his answer. I guess the others were intrigued too because the airport’s lunch hall felt eerily silent after that. After a few seconds of silence, my workmate continued.
 
-“I didn’t want to scare Nate, but I saw something out there. It looked like some sort of insect or… or a spider. It was just watching him from outside the fog.”
 
-“An insect?” I responded. “How big was it?”
 
-Ryan looked like he had been shaken to his core. “Big. Like the size of a large dog or… or a deer… I could just see its silhouette at the edge of the darkness, looking right at Nate, and… and I could almost swear it sounded like my voice was coming from it, just lower and… broken.”
+“Y’know, ‘em ones spotted over the skies of New York and Chicago recently.” he then made a pause to sip from his juice, “‘ven the Pentagon don’t know wha’s the deal with ‘em”
 
-Ryan kept trailing off in his sentences and seemed like he was trying to make sense of it all himself.
 
-“By the time Trish and I grabbed Nate, your house was closer to us than ours, so we ran this way,” Ryan said.
 
-We sat in silence for a few minutes, both of us just overwhelmed and afraid.
+I wasn’t sure if his answer was honest or he was just messing with me, so after he finished talking, I couldn’t think of anything to say to prevent the silence from falling uneasily over the lunch hall. 
 
-I walked Ryan to the room where I had led Trish and their son to rest. Trish was lying on her side, holding her son in her arms and stroking his hair. I could tell she had been crying, but I didn’t feel like I knew her well enough to say anything.
 
-The boy, on the other hand, looked almost unbothered and just continued staring off into the distance. I didn’t get any sleep that night.
 
-After receiving the emergency alert, both my cell service and internet connection stopped working. I quickly realized how much I had been relying on my phone to bring me comfort over the past few months, but now I had no way of knowing what was going on—no connection to the outside world.
+“Now, I don’t know what BS you’re talking about, but you’re most certainly wrong” An overly nasal voice called from the table over, and we all turned to look at the owner of the voice. It was a mechanic for an international airline that had been in the Capital to scout for a possible hub in the continent. He was tall and very, very slim, I’m talking slenderman territory slim; He looked like the type of guy that could win a hide and seek contest by just turning to their side. He had short, brown hair, a white face with freckles and a pair of thick-rimmed glasses that made him look like he was going to raise his index finger, show some bunny teeth, say “acshually” and spill the most useless fact ever. I mean, he certainly had the voice… 
 
-The next day, I awoke to my power cutting out. I walked outside to find the Red Murk was less dense, but it brought me no solace, for now I could once again see the sky.
 
-As I gazed upward, my heart was filled with dread as thick red clouds covered Earth’s atmosphere.
 
-Ryan and his family stayed at my house for a few weeks. I was honestly happy to have the company after being isolated for so long. We stayed inside and rationed our food carefully.
+“We all know that Aliens do not exist” the guy proceeded, using his index finger to accommodate his rims that were perpetually sliding down his nose “And we all know that summer has gone for far too long now due to the El Niño phenomena”
 
-Eventually, however, my supplies began to run dry. Ryan and I decided we should try and head into town to see if we could find any supplies or someone to help us.
 
-Trish objected and was able to convince Ryan to stay at the house. I left my front porch for the first time in months. Luckily, the Red Murk had cleared up enough that I could at least see where I was going.
 
-The walk into town was eerie, the silence so heavy it felt like a weight pressing down on me. I scanned the empty streets, hoping for any sign of life: a bird, a squirrel, even a distant voice.
+The people in the lunch hall all nodded in agreement.
 
-But there was nothing. Just the oppressive quiet and that unsettling feeling of being watched, a prickling awareness that something waited, just beyond the red-stained fog.
 
-I was able to make my way into an old Walgreens that had been abandoned. It was at about this time I realized I should have done some research on what type of medicine would be useful in a scenario such as this.
 
-Then again, what research could I have done with no internet? Walgreens wasn’t teeming with fresh, nutritious food, especially not any that hadn’t completely rotted with red mold anyway.
+“So it’s actually just the wind from summer that warms the earth and creates severe turbulence that causes airplanes to break.” 
 
-I grabbed as many items of food and medicine as I could before quickly heading out.
 
-As I walked out of town, the sound of my steps reverberated through the streets. Fear began to take hold of my body.
 
-It wasn’t fear like I had ever really felt before. It was more primal than that—like I was experiencing for the first time what it was like to be on the bottom of the food chain.
+I nodded, I had noticed that, when I went paragliding, I often had to wake up at 4 a.m. to fly because it became just too turbulent and hard to steer after 6 a.m. that I had to deploy my parachute and intentionally fall to be able to land. But that didn’t explain all of the gashes and tears to the plane’s fuselage. However, the lunch hall had returned to their usual banter and conversations so I felt it sensible not to continue the topic. I figured that if I were to get any information on the topic, I’d be better off talking to one of the pilots that experienced the turbulence.
 
-With no phone, no gun, no car, or no sort of human technology to keep me safe as it had humankind for thousands of years, I was completely alone.
 
-Whatever I felt watching me from just outside the Red Murk, I could feel that it was hungry.
 
-I don’t know if it was simply paranoia or a sixth sense from an age where humans were at the same level of disadvantage, but I knew from the deepest part of my physical body that I was not safe.
+It was the evening of the 26th of december, my shift had ended a few hours ago and I was fixing the Jetstream. Due to the abnormal quantity of grounded aircraft, I hadn’t had the time to pay attention to the craft, so the repair date had been moved to the 31st, on par with the new year. The night crew had settled into work, some even helping me from time to time on the Jetstream as they took a break from the bigger aircraft and I was casually humming a melody that I had learnt from a veteran that practiced skydiving with me when the doors to the hangar opened and in came a person.
 
-I began picking up the pace as I tried to get back home as quickly as possible. I can’t be certain, but my eyes were darting back and forth as I ran towards silhouettes of something slowly stalking my path just outside the fog.
 
-As I ran down the road, I saw what looked like the silhouette of a person on my right who had not been there on my way in. Relieved to see another human, I slowed down and began to approach the person, who I could now tell was sitting on their knees in an almost yoga-like position with their back turned toward me on the side of the road.
 
-“Hello?” I quivered. My words echoed in the fog like I was in a small cave.
+At first look, he seemed to be a high ranking Airline member. Maybe a manager? But when he came closer, I saw that he was a pilot. He was tall, with a neat haircut over his blonde hair, he had blue eyes and a clean shave. The newcomer wore a black pilot suit, decorated with the Airline’s logo, a bird with the colors of our flag, as well as medals, a tie and some aviator glasses in his breast pocket. He had matching black pants and formal, leather shoes. Under his arm, his cap was held firmly but elegantly. 
 
-“Are you okay?” I asked as I kept my distance but continued to walk around the person to see their face.
 
-As I walked around this person, I began to make out through the Red Murk a young man no older than seventeen, his mouth agape and his eyes bleeding from their sockets.
 
-All up and down the parts of his body I could see were red bulbs the size of golf balls. Some of them were broken like something had hatched out of them.
+He walked through the entrance, looking at the work that was being done to the aircraft. Fortunately, no other airplanes had joined us since the Airbus. I had been in the process of riveting the second-to-last panel to the fuselage, my handiwork making me proud, when he stopped and admired my progress.
 
-I took only one step closer as morbid curiosity overcame my fear. The boy was silent but twitching every few seconds and made a guttural hiccup sound with each twitch.
 
-It was at about this time I noticed small creatures that looked like an uncanny mix of both crustacean and arachnid. They were roughly the size of quarters with long red legs and a round black abdomen.
 
-They all had misshapen pincers near the front of their body like a crab with some sort of deformity. They crawled up and down the boy’s body and in and out of his nose and mouth.
+“Nice job man, this one’s looking as good as new” he chuckled, looking at the unfinished part. “You sure working hard on this one”
 
-I could hear some of them moving under his clothes, and they emanated a short and faint clicking sound as they scurried around. Small pieces of his flesh were missing, as though they had been using his still-living carcass for both incubation and food.
 
-I could feel myself getting ready to vomit, but the feeling of needing to run home was stronger.
 
-The next few minutes were a blur of animalistic focus to get indoors as quickly as possible.
+I smiled.
 
-It wasn’t until I ran through my front door and an air of safety washed over me that I began to feel guilt. I left that poor boy to suffer an unimaginable fate, and I didn’t even think to save him until I was safe and inside.
 
-As I quickly closed the door behind me and began considering the horror I just witnessed, I didn’t even notice Ryan and Trish waiting in the foyer.
 
-I stood there shaking, staring at the ground. My mind was filled with thoughts, but I didn’t say a word, still not noticing Ryan and Trish.
+“Yeah, I want to have it airborne ready by New Year’s” I said, happy that someone acknowledged my work, “Though the damage is quite disconcerting, because no turbulence could damage the fuselage like this… Or that”
 
-“Hey, what happened? Are you okay?” asked Ryan.
 
-Just now realizing they were standing there, I jumped in fear. I dropped the supplies on the ground and walked to the upstairs bathroom, where I began to vomit.
 
-I sat on the bathroom floor for the rest of the day. The image of that boy’s broken face burned into my eyes.
+I said, pointing to the Airbus behind me. When he looked towards the plane, the pilot audibly flinched. 
 
-I didn’t get much sleep after that, the feeling of both horror and guilt keeping me up into the late hours of the night.
 
-At this time of year in Virginia, the heat started to become unbearable—another painful reminder of our reliance on technology.
 
-We kept the windows closed for obvious reasons, which made the house a humid hellhole. I was always one to keep the AC at about 68 degrees or so, so sleeping at what felt like no lower than 89 degrees, on top of the fear, paranoia, and guilt, made meaningful rest nearly impossible.
+“Ho-ly” he said, whistling “I didn’t feel like it was THAT bad”
 
-One night, as I lay in bed staring at the ceiling while the moonlight peered through my curtains, filling my room with an off-red glow, I was startled by the sound of a horrible scream coming from Ryan and Trish’s room.
 
-I jumped out of bed and ran straight to where they had been sleeping.
 
-My heart sank as I opened the door and was greeted by the sight of Ryan holding a gun, pointing it in my general direction, with his family cowering behind him.
+“You the pilot?” I asked, internally begging for a ‘yes’. 
 
-Standing between Ryan’s family and me was a creature shaped like some sort of stingray with long, flat, thin limbs that looked way too small for its large winged head.
 
-The creature stood about a foot taller than me and had a long pointed tail like a scorpion. The creature's head shook in what seemed to be some sort of intimidation display as its long pointed tail raised higher and higher while vibrating back and forth pointing towards Ryan and his family.
 
-As the tail vibrated, I noticed it made almost the exact same noise as a rattlesnake.
+“In the flesh,” he said, pointing at himself; “Had to stop for a visit, figured I would assess the damage and try to see what happened”
 
-The next thing I knew, I heard a gunshot that made my ears ring. Growing up on a farm, I was no stranger to firearms and the sound they made when the trigger was pulled, but I was so focused on the strangeness of the creature, I wasn’t expecting it.
 
-The creature didn’t shriek like monsters do in the movies. It was high-pitched, sure, but it almost sounded more like an injured dog yelping in pain.
 
-The creature immediately fell to the ground, writhing in agony as it began to bleed its bright red blood all over the carpet, its sharp pointed tail flailing everywhere.
+I perked from my work and looked at him, intrigued. 
 
-After a few seconds, it took its last breath and deflated dead on the floor.
 
-It was around this time I looked toward the window on the other side of the room, which had been left cracked open not even two inches.
 
-We made sure to leave the windows closed after that night.
+“So…” I said, not knowing how to address the accident without sounding strange “What really happened?”
 
-I was somewhat upset that Ryan brought a gun into my home without telling me. Granted, I was glad he had it at that moment, but I started to feel like my hospitality was being taken advantage of.
 
-On the other hand, the last thing I wanted was to be alone.
 
-After much thought I decided to confront Ryan about the gun. He was sitting at my kitchen table reading an old book my dad kept around about the Korean war.
+I didn’t receive a response for a few seconds, so I proceeded nervously
 
-“Hey, can I talk to you?” I asked somewhat hesitantly.
 
-“Yeah sure, of course” Ryan responded closing the book and setting it to the side of the table.
 
-“Look I don’t have a problem with you having a gun but between that and the window being left open… I feel like we need to have a little more communication here…” The volume of my voice trailed off. 
+“Y’know… because that is most definitely not because of turbulence.”
 
-I was never good with confrontation so this was exceedingly uncomfortable for me.
 
-“I know. I’m sorry, but just for me and my family's safety I thought it was best. As for the window I told Trish we couldn’t open it but I guess Nate got the idea at some point in the night. But I’m sorry.” Ryan responded
 
-“It’s alright I just wish that like you would have been a little more forward about it… I guess” I responded almost to a mumble near the end of my sentence. 
+“I agree,” came the thoughtful voice of the pilot, “I just… I don't know what really happened… it’s like I was… at one moment I was setting the autopilot and then the next I was struggling with the controls to keep airborne. They started to get tighter and stronger with every shake and rattle of the aircraft and then it started creaking.”
 
-“Look, we can't thank you enough for all you’ve done for us. Letting us stay here together, going into town to get supplies and going through what you saw. We are all so appreciative, but at the end of the day all that matters to me is keeping my family safe. Not to mention if anything you should be thanking me, especially with what's out there” Ryan’s tone abruptly shifted from apologetic to frustrated and almost downright angry as he spoke.
 
-I was almost hurt by his words. I mean, I understood what he was saying but I now felt like an outsider in my own home, fending for myself as strangers shared my food, water, and shelter. I sat back in my chair and just nodded my head towards Ryan. We sat awkwardly in silence for a few minutes before Ryan got up to leave. 
 
-As I sat at the table in my kitchen I thought back to what Ryan said about Nate opening the window. What was he opening the window for? One would assume to let some air in but I was brought back to memories of the night Ryan and his family arrived. I remember him saying he heard some sort of creature in the darkness calling from his very own voice. My mind wandered as I sat at the table, considering all of the horrible possibilities. 
+“I see” I said, not really understanding
 
-As the weeks passed, we continued to hear more and more creatures just outside the house. They would moan and screech and scutter through the red foliage outside our walls. A terrifying reminder of how thin our layer of protection really was.
 
- At night, I continued to think of the boy sitting on the side of the road, of the voice calling to Nate, the creature that broke into my house not long ago...
 
-Are humans really this ill-equipped to survive without the use of any type of machines or technology? Ryan may have broken my trust but he was right about one thing. Who knows what would have happened if he didn't have that gun? 
+“There’s just, something that I remember happened,” He said, “I remember telling myself that I had to report it once we landed, but I just can’t remember.” 
 
-My mind then wandered to what it must be like to be an insect or a small creature living on the ocean floor.
 
-I remember seeing a documentary once about wasps that would lay eggs in still-living caterpillars. The eggs would hatch, and the larvae would eat their way out of the caterpillar's still-living body.
 
-It seems like the horror of that microscopic world is one that we now live in. One that was always right outside the comfy embrace of our safe, air-conditioned front door.
+He remained silent after that, consumed in thought as he looked at the looming giant that was the Airbus. I resumed my job of riveting the panel and checking for leaks until he turned to leave.
 
-My thoughts kept circling back to one singular question. What could have laid its eggs in that boy?
 
-As more time passed, all hope for being saved faded away. We had to begin being more strict with the rationing of our supplies. I refused to go back into town, especially alone. Trish and Ryan of course would not volunteer themselves.
 
-Some contention started arising between Ryan’s family and I. I barely talked to Trish, and Ryan seemed weary of me. Like he didn’t trust me. Meanwhile he continued to drink my water and feed his family with the food I had saved up. 
+“Well, I sure would like to see the finished progress on this old De Havilland” He said, extending a hand for me to shake. “Rowan”
 
-We never argued or anything like that but it seems our air of trust had been broken ever since he shot that creature in his room. 
 
-As I was scouring the pantry one night, looking for anything that could be consumed, just outside the wall, I could have sworn I heard Ryan’s voice calling out.
 
-I was worried and confused because the other side of this wall led to my backyard, where the tree line that guards a forest sits about 30 yards from my back door.
+“Josh” I took the hand
 
-“Ryan?” I yelled.
 
-“Yeah? Everything okay?” Ryan responded from what sounded like the living room.
 
-“Uh, nothing. Sorry. Thought I heard you say something,” I responded, confused.
+“Well then, Josh, see you on the 31st!” With that, he left the hangar briskly.
 
-A few minutes passed, and Trish came rushing down the stairs.
 
-“Where’s Nate?” she asked Ryan.
 
-“I thought he was with you…” Ryan responded, scared of the next words to come out of her mouth.
+I finished earlier, on the 29th, so I planned the test flight and submitted it for approval by the airline. They weren’t thrilled that a non-pilot was to control their precious aircraft, but I managed to get their approval after presenting them my flying license and telling them that one pilot was going to go with me. It was then that I got clearance for January 2nd.
 
-As I walked toward the stairs, I looked toward the back door, which had been left open, letting a cloud of red fog into the house.
 
-The three of us darted toward the back door, led by Trish. I grabbed my flashlight on the way out.
 
-The Red Murk was thin, but the moon was nowhere to be found, so we relied on the light of my flashlight as we looked for Nate in the backyard.
+It took a while, but I eventually managed to contact Rowan, who was thrilled to co-pilot the test flight. On the day I was going to fly, I woke up, ate cereal with yoghurt… don’t judge, I forgot to buy milk and no one was open on the 1st… and headed to work. I was cleared to test when my shift was over, at 7 p.m., yet time passed so slowly that I felt like I was going to die of old age before I got to fly the Jetstream, and I was just 26! Eventually, my shift ended, and I excitedly clocked out and jumped into the cockpit of the aircraft. I pulled up a checklist of what I needed to do previous to the flight and radioed the tower. 
 
-As we called out to him, we heard what sounded like crying from the tree line. The sound was identical to Nate’s voice.
 
-I pointed my flashlight at the area from which the sound was coming to see Nate with his hands over his eyes.
 
-He barely moved. Even though he was sobbing, his mouth didn’t twitch or open or close at all.
+Rowan arrived a few minutes later, excusing himself because there was traffic. I said don’t worry, and, after we refueled, we started to head towards the runway that the control tower directed us to. The sky was starting to darken and I could barely see the outlines of the trees at the end of the runway.
 
-Trish ran straight for him without a second thought, followed by Ryan and then me.
 
-Trish ran to Nate, squatted down, and began trying to pick him up. I noticed she struggled for a second and seemed confused about why she couldn’t lift the small boy.
 
-I raised the round light of my flashlight upwards a few inches as I realized the sound of crying was actually coming from further into the forest itself and not where Nate was supposedly standing. Ryan who was standing behind me began moving towards them both.
+“Ok,” said Rowan, “I’ve got here all the checklist ready. Where are we going?”
 
-Just as Ryan let out a sigh of relief over finding Nate, the large abdomen of an insect-like creature no shorter than 30 feet long and 20 feet tall whipped forward.
 
-The bottom of its thorax had been pointed up to the sky until now, unnoticed by us as it was camouflaged to look like shrubs and small trees that had been colored a subtle red to match its environment.
 
-Two large pincers darted toward Trish from either side of the flashlight’s round illumination and clamped her by the waist and right below her neck.
+“We’re heading to an airfield on the other side of the mountains,” I explained, “There there is no turbulence, and it’s owned by an associate of the Airline” 
 
-The creature’s legs, which I now realized were made to look like the bark of long thin trees, began to slowly stand up. 
 
-In a matter of seconds I understood this creature had been there the entire time we had been outside. Waiting for the perfect moment.
 
-As the creature rose, it pulled back its tail into the dark forest behind it. At that moment, I realized the tip of its tail had somehow either perfectly camouflaged itself to look exactly like Nate or had used the child’s corpse as a lure to get his mother out of the house.
+We were supposed to test the pressurization of the cabin, the fuselage’s integrity and engine feel. 
 
-I moved my flashlight upward in disbelief as I stared, dumbfounded, at the behemoth.
 
-The sound of Nate’s crying voice was still transmitting from the creature as it pulled Trish roughly 20 feet into the air and began to engorge itself on her body, starting at the side of her neck.
 
-Its head resembled a praying mantis, but its mandibles were wrong. They jutted out from its jaw like fleshy red tentacles, twitching unnervingly, pulling pieces of Trish’s flesh into its mouth where smaller more rigid mandibles did the chewing. 
+“Regional Aeronautics Flight 073-HM this is Air Traffic Control, do you copy? Over”
 
-Red blood started to drip down onto the ground as it rolled off the creature's clamped pincers, trapping her in place by her waist and upper body.
 
-I stood frozen in fear once again as the woman who had lived in my home for months was eaten alive by this creature.
 
-Looking back, I think I was most disturbed by how innocently uncaring the creature looked. Although it was a horrible abomination, it harbored no ill will. It was simply consuming energy.
+“Copy Regional Aeronautics 073-HM, Over”
 
-Trish’s family, life, hopes, and dreams—it all meant nothing to it. She was simply food. I think that somehow felt worse than something that hated or felt anger towards us. Something that we as humans could understand.
 
-Its large oval eyes even darted around from side to side, independently of one another, as though it itself had to be on the lookout for predators while it ate.
 
-I stared in horror as Trish’s lifeless body was torn apart one chunk at a time by the creature's maw.
+“Regional Aeronautics Flight O73-HM, cleared for takeoff, wind is 20 knots northward path Charlie 6, fly well, Over”
 
-It all must have been about eight seconds before my shock was broken by a bloodcurdling scream finally let out by Ryan, but there was nothing he or I could do.
 
-I snapped out of it and quickly ran to Ryan, grabbing him and attempting to drag him inside. My flashlight quickly jetted from side to side as I tried to grab him.
 
-In the illumination of my flashlight, I caught a short glimpse of dozens of eyes of varying sizes glowing from the reflection of the light at the cusp of the Red Murk, which had begun to grow thicker in the few short minutes we had been outside.
+We started the take-off procedure, engine throttle to maximum, the path to follow and took to the skies.
 
-The creatures sitting and staring from the red void would, without a doubt, make us their next meal if it weren’t for the giant organism just a few feet from us, which was currently consuming Ryan’s still-living wife.
 
-I was able to drag Ryan inside as he angrily and mournfully sobbed into my shoulder.
 
-Once inside, he pushed me away and ran upstairs. I didn’t chase him—yet another thing I now feel guilty about—but I had a new horrific image burned into my mind.
+The flight was uneventful, we quickly rose to 15,000 feet, the perks of taking off at 9,500 ft, to clear the mountains and immediately descended on the airfield, while we refuelled, I checked the fuselage for any signs of damage, but there were none.
 
-Ryan returned with the gun he had used to kill the stingray-like creature. I understood at the time, but maybe I was too afraid to stop him.
 
-I knew what horrors awaited us out there and like I always, I did nothing.
 
-I sat on the floor thinking about the image of Trish being eaten by something none of us could even comprehend.
+To say I was happy was the understatement of the new year, everything was going well, there was no turbulence expected because it was late in the night and usually, at night there isn’t a lot of wind.
 
-Ryan swung open the back door and started firing into the tree line.
 
-It was pitch black outside, but I could hear the creature grumble and move as its large but slender legs broke down smaller trees and retreated, meal in hand, into the forest.
 
-Ryan fired around five or six shots, then slumped down to his knees, dropping the gun.
+When it became time to return, I had one last test to do, and that was the engine feel. The old Handley Page Jetstream usually suffered from engine problems as its propeller engines were getting tired of living. So it was imperative that during our regular checkups, we did the engine feel test. It consisted of rising to the service ceiling, 25,000 ft, and pushing the throttle to the maximum; if the plane couldn’t surpass the 215 knots airspeed, it became time to look for a replacement engine. 
 
-I finally mustered the courage to stand up and try to calm Ryan once again and bring him inside.
 
-As I took my first step toward the back door, a long mucus covered appendage struck Ryan in the back of the head originating from somewhere above him and out of sight.
 
-He immediately slumped over, paralyzed, as the appendage still stuck to him pulled him upward.
+“I am actually dreading this part,” Rowan said as we climbed from the airfield. “I had just reached cruise altitude when the turbulence began, and I don’t know if this bird can handle it.”
 
-His frozen body faced toward me as his back folded over his legs, twisting his body. All he could move were his eyes, which locked with mine.
 
-The anger that overtook him all but a short few moments ago was gone. All I saw was fear and sadness in his eyes. 
 
-Ryan was then pulled away from my view to God knows what sort of fate.
+“It’s 9 at night, I’m sure there is basically no wind up there” I tried to calm him. “Besides, it’s just until we reach 215 knots, then we’ll start to land”
 
-I quickly closed the door as fast as I could and fell to the floor. My mind was filled with the thoughts of a whole family gone in the blink of an eye to the horrors outside of my very home.
 
-I didn’t get any sleep that night either.
 
-The next day, I gathered up enough bravery to quickly grab the gun Ryan left behind on my back porch.
+“I’m not sure about this” Rowan said, “You sure you have to do this?”
 
-The Red Murk was the thickest I had ever seen. The gun was not but a few feet from my door, but I could barely find it between the overwhelming fear and the red fog that filled the outside air.
 
-The Red Murk smelled particularly horrible that day. On top of sulfur and iron it gave an unholy aroma of putrid decay. 
 
-A few weeks have passed. I was proud of my rationing abilities but that meant I had gone days without eating more than once.
+I pulled my right hand from the controls and raised my pinky finger at Rowan. 
 
- I’m scared to look in the mirror, I don’t know if I’d even recognize the person staring back. I know I have a long beard now and that my hair has grown down below my neck line. I don’t want to see the scared shameful creature that I’ve become.
 
-I can hear them outside now as I’m writing this. It’s only a matter of time before they find a way in or decide just to break down a window or door.
 
-Some are larger than the creature that took Trish. One sounded so gargantuan its steps shook the house like an earthquake. The noises it emitted sounded like whales calling of all things.
+“Promise” I said, “If not, I have to buy you donuts”
 
-At night, I swear I hear Ryan’s voice calling my name from the edge of the forest. I know it's not him. One day recently I saw Ryan's split open carcass about 20 yards from my back porch. His lifeless form wrapped in red decay near where the cows my parents once raised used to roam. 
 
-I’m almost out of water now, so I guess this is it. I checked the gun Ryan left behind, and of course, there’s only one bullet left. Seems poetic almost.
 
-I don’t know why I’m writing this. I was hoping it would bring me some sort of comfort or a way to put things in perspective, but all it’s done is made me relive the horrors of the last year. So I guess these are my final words. 
+“Okay then…” Rowan said after a moment of deliberation, taking my pinky with his.
 
-I’m not going back outside. I won’t be a part of the food chain.
 
-There’s one bullet left.
+
+\*\*\*
+
+
+
+“Air Traffic Control this is Regional Aeronautics 073-HM, Over” I said to the radio
+
+“Regional Aeronautics Flight 073-HM this is ATC, Over” came the response over the grainy radio.
+
+
+
+“Regional Aeronautics Flight 073-HM, we need to climb to 25,000 feet, are we cleared? Over” 
+
+
+
+“Regional Aeronautics Flight 073-HM cleared to climb to 25,000 feet heading northwest, wind is 10 knots north, 25 knots north at 25,000 feet, no traffic, over”
+
+
+
+As we continued to climb, the flight became more and more unstable. There were times where I had to yank the controls fast to keep in track, which was very strange for me. Eventually, we reached 25,000 feet, leveled out and slowly throttled up, feeling the twin Turbomeca Astazou engines purr to 40,000 rpm as the plane reached 227 knots. 
+
+
+
+I prepared to land, pulling out the checklist and giving the landing section a look.
+
+
+
+“ATC this is RA Flight 073-HM ready for landing, over” I said onto the radio speaker, hearing a voice on the other end say.
+
+
+
+“RA Flight 073-HM this is ATC, cleared for landing Runway 2L, keep heading down Gamma 7 until 10,000 feet, wind is 18 knots northeast, no traffic, over”
+
+
+
+We started to head down when, as we were passing the 20,000 feet mark, a strange turbulence started shaking the plane. It started slow, almost unnoticeable, but slowly picked up force up to the point where the plane was thrashing wildly from side to side and strange, ripping sounds could be heard from outside. 
+
+
+
+The electronics started to fail, there were moments where we were in complete and utter darkness, not even the moon or the stars could illuminate the dark interior. 
+
+
+
+Besides all the shaking, I could feel something else, it seemed like someone was walking over the fuselage, scraping with a key or shards of glass over the fuselage of the old plane. I looked to one side and saw nothing, I looked to the other and saw nothing either. I did notice Rowan had frozen up, I think he was remembering what happened to his plane, so I shook him and brought him back to his senses. 
+
+
+
+The scraping continued, each time stronger and more frantic, we were now rapidly descending, we reached 16,000 feet.
+
+
+
+“I’M GONNA NEED YOU TO HOLD THE CONTROLS FOR A SECOND!” I shouted at Rowan, struggling to make myself heard over the thrashing of the frame, “I THINK THAT SOMEONE IS OUTSIDE THE FUSELAGE, I NEED TO SEE”
+
+
+
+“SOMEONE IS WHAT?!” Rowan asked, panic in his voice for a second before he looked to the front, took a deep breath and calmed himself. I turned my neck to the left side of the airplane, struggling to see what was happening. 
+
+
+
+What I saw next has to be the most terrifying thing ever. At the back of the plane, was a red creature. It seemed to be bipedal, with massive wings, and it was trying to get in using… using a sword. Above him, creating the turbulence, was a horse, it too was red and had wings, and was galloping above the fuselage, sending powerful thrusts. 
+
+
+
+“12,000 feet” Rowan said, his voice strained by the force of pulling up the yoke
+
+
+
+The creature outside raised its sword, it glowed orange, like flames, and then it thrust it against the fuselage, making a deep hole and sucking all the air out of the pressurized cabin.
+
+
+
+Immediately, oxygen masks came down, both Rowan and I put them on as there was one last ear splitting jarring sound and everything calmed down. The airplane stabilized again, the cabin was dark, as if all power had been cut; which mainly explained why the engines died down. It made it all the most terrifying when from behind the cockpit, a heavy foot and a dragging sound was heard.
+
+
+
+I opened my eyes wide and turned to look at Rowan. Rowan had a look of pure terror, his eyebrows lifted up nearly to his hair, eyes wide and even though the oxygen mask was covering his face, he probably had his mouth closed with so much force that his lips were turning pale… Or maybe that was me, because I could certainly feel how my lips begged for circulation, but I couldn’t even dare to move. 
+
+
+
+Rowan and I both gripped the yoke like it was going to save our lives. The landing gear wouldn’t even try to go down, so we were forced to make a choice. Do we land like this? Or do we go around and try to turn the engines on?
+
+
+
+There was another sound of a footstep, this time much closer, and the screech that followed centered me squarely on option 1, however, I still tried to turn the engines on, to no avail. There wasn’t even power to the small battery. 
+
+
+
+The third step was right next to the door and I dared not to look, instead focusing on the rapidly approaching runway. A sharp edge appeared at the corner of my vision, it was red, and surrounded by fire. I didn’t have to look back to see that it had broken into the Cockpit… but I did it anyways, the figure that was besides me tried to appear like it was one of the 4 horsemen of the Apocalypse, war, judging by the T-shirt that it wore, but its features were so incredibly alien, that I doubted my sanity. 
+
+
+
+As the flames around the creature’s sword flickered ominously, it grinned, revealing jagged, alien teeth that glinted like polished blades. “You think you can escape?” it hissed, its voice reverberating through the cockpit, not just heard but felt—deep in the bones. The air grew heavier, suffused with the coppery tang of blood, though neither Rowan nor I was wounded.
+
+
+
+Rowan trembled, his knuckles white on the yoke, and muttered, “What... what do you want?”
+
+
+
+The creature didn’t answer. Instead, it raised its hand, and the lights in the cockpit flickered and died. The dashboard sparked, the instruments freezing as the plane began an uncontrolled descent. The creature laughed, a sound that was neither loud nor soft, but filled every corner of my mind. I wanted to scream but couldn’t; my voice was stolen.
+
+
+
+Outside the window, the stars vanished. One by one, massive, silent ships slid into view, their jagged silhouettes darker than the night, their lights forming incomprehensible patterns that seemed to move and twist. My heart raced as I realized: they weren’t forming patterns—they were spelling something. Words. A message. But the letters shifted before I could comprehend, searing into my brain.
+
+
+
+The creature pointed its sword at Rowan, and his head snapped back violently. Blood dripped from his nose as he struggled to speak, his words slurring into incoherence. “Josh… get us down… get us…” His voice faded.
+
+
+
+Then it turned to me. “Pilot, do you know what it feels like to be insignificant?” its voice was no longer in my ears but inside my skull, resonating like the scream of tortured metal. “You’ll understand soon enough.”
+
+
+
+The plane shuddered violently. I reached for the controls, but my hands wouldn’t move. The creature chuckled, leaning close enough that I could feel the heat of its fiery presence. “You can’t save them. None of you can. This world will burn, and we’ll watch.”
+
+
+
+The next moment, the windshield shattered inward, and the roar of rushing air drowned out everything. I felt the searing grip of the creature’s hand on my shoulder before the world exploded into light. The last thing I heard was its voice, whispering now, intimate and inescapable, “You’ll kneel, one way or another.”
+
+
+
+Then, blackness.
+
+
+
+\*\*\*
+
+
+
+I awoke in a hospital, and I am receiving more and more notifications about airplane accidents, all with the same pattern: turbulence, shrapnel, uncontrollable descent, death. I know they caused it, I know HE caused it. They will attack from the skies, they own the skies now, and they will not hesitate to finish whatever creature crosses them. Tell me, when was the last time you saw a bird, when was the last time you heard that airplane travel was safe. Because I’m sure it’s not today.
 
   
