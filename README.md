@@ -1,64 +1,100 @@
-# My Boyfriend Disappeared, but the More I Search for Him, the More I’m Losing Myself
-It started with a voicemail.
+# I almost crashed into a car. It never stopped following.
+I was admiring the rosy tint of the sky signaling a sunset, when the ringing of my phone perked up my ears. The screen displayed a contact name that I had learned to despise. The voice of my boss echoed through the car.
 
-“Hey, it’s me. Call me back when you get this, okay? I’ve been… thinking about what you said, and I just need to talk to you.”
+“Hey \[name\], A coworker has flagged a bug in the program. We need you to come down to the office, later today.” he said, indifferent to any problems it may cause me.
 
-That was it. That was the last time I heard from Noah.
+“I’m sorry, but I requested time off over a month ago”
 
-I replayed the message so many times I memorized every hesitation, every crack in his voice. I tried calling him back, of course, but his phone went straight to voicemail. I figured he needed space. Noah always did this when life got overwhelming—he’d retreat for a day or two, hole up in his apartment with his records and a bottle of whiskey. But when a day stretched into a week, then two, I knew something was wrong.
+“That’s out of the question. This is urgent.”
 
-I filed a missing person’s report. His friends hadn’t heard from him. His job said he stopped showing up after taking an extended leave of absence. His apartment was empty, the rent paid months in advance. It was like he’d just… evaporated.
+“But… I’m out of tow— “ My hesitant voice getting caught, realizing it wasn’t worth the trouble.
 
-But I couldn’t let it go.
+“What time?” I asked, following a defeated sigh.
 
-I went through every scrap of his life, tearing apart his social media, scrolling through our old texts, even digging into the corners of his past he’d been reluctant to share. There had to be something—a clue, a thread to pull.
+“6:30 the latest.”
 
-And that’s when I found the notebook.
+I glanced at the dashboard clock: 5:24. I was at least 2 hours out from town.
 
+A monotone “I won’t be able to make it today” was quickly answered with “Then I’ll see you tomorrow”.
 
+And with that, my software engineering job had found yet another way to lace my retreat with a bitter conclusion.
 
-It was buried under a pile of papers in a drawer of his desk. The cover was plain black, the kind you’d find in any office supply store, but when I opened it, I realized it was a journal. And not just any journal—this was his life.
+For some context, I was quite reclusive throughout school, always avoiding conflict whenever possible. Which is what led me to stick with the same group of friends. Until high school, that is — I was assigned to a different school than the rest of them, so when the new year rolled around all I had for company was myself. It stayed that way.
 
-Dates, places, people. Thoughts scrawled in his jagged handwriting. But the farther I read, the stranger it got. He wrote about shadows following him, about waking up in places he didn’t recognize, about a voice he could hear whispering his name at night.
+That was all to say, when I got my driver’s license, I made it a habit of going on lone therapeutic road trips that gave me a much-needed breather from my dingy apartment — with Tim.
 
-“I think they’re watching me,” one entry said. “I see them in the corner of my eye, but when I turn, they’re gone.”
+Tim, you may ask, is—well, was—my 2008 Honda Accord. After all the trips we’d been on, he had grown to be my best friend (not like there was much competition). Over time, a faded yellow hue concealed his once sleek white paint.
 
-Another: “I don’t know if I’m going insane or if something’s really there, but it’s getting worse. I can’t trust anyone. Not even her.”
+Tim was driving me back from one of these excursions: to a little village. The sun slowly hid itself below the horizon, dimming the surroundings. The mountainous region the village was perched on gradually faded into flat farmland. Most of the route consisted of vacant roads with worn down signs and bus stops lining the sides, barring a few towns scattered along the way.
 
-The date on that one was a week before he disappeared.
+I was on the outskirts of one of these towns, the presence of cars leaving me feeling ambivalent. I can’t even remember what I was doing. The shock of the moment has shrouded my memory. The long drive must have gotten to me, but I got distracted somehow. I was at a semi-busy intersection, no more than a few weathered buildings lying around, when I blatantly ran through a stop sign.
 
-I reread that last line—not even her—over and over until the words blurred. Did he mean me?
+The cacophony of a car horn jolted me back to my senses.
 
+It instantly brought awareness to every single part of my body. I slammed on the brakes, coming to a screeching halt. A black sedan covered the left side of my vision. We both stopped dead-still in our tracks, narrowly preventing me from t-boning it. Its occupants were obscured by thick tinted windows. After the blood rushed through my feet and a white vignette began to cloud my vision, an almost impulsive belligerence arose in me, dethroning my better judgment.
 
+I’m not proud of it, but I honked my horn and let a surge of unmeant insults flow out — into the safety of my car, of course. I expected to hear a flurry of rage echo back (a much more justified one) but that never happened. It remained motionless. By the time the dust had dispersed, guilt had settled into my stomach and a wave of embarrassment struck me.
 
-I became obsessed. Every waking hour was consumed by Noah’s disappearance and the fragments he’d left behind. I found myself walking the places he wrote about in his journal: the coffee shop on 12th Street, the old bridge over the river, the abandoned lot behind the factory.
+With that, I drove off writing it off as a silly mistake and putting it behind me. I noticed a layer of sweat had built up in my shirt. Right before turning the corner, I eyed the rear-view mirror. I look back at the intersection and feel my stomach drop a second time when I see the once motionless car clearly veer in my direction, right before being obstructed by a building.
 
-At first, it felt like I was retracing his steps, but then things started to… shift.
+My sweat now ran cold as the sensation of tiny needles trying to break out of my skin emerged. The car turned onto my street, clearly giving chase. Their aggressive driving coupled with the now much more shrill and constant honking did nothing to quell my haziness.
 
-It was subtle at first. My reflection in the mirror lingered a second too long. I’d hear footsteps when I was alone, soft and deliberate, like someone following me. Once, I caught a glimpse of something in my peripheral vision—a shadow, tall and thin—but when I turned, there was nothing there.
+The length of a couple kilometers didn’t seem to deter the driver in any way. I tried driving in nonsensical patterns — going in circles, swerving between lanes and taking turns that would lead me in the opposite direction I was originally driving. Anything that might’ve given me a sliver of breathing room. But they were always there, just 3 seconds behind my shadow. Their vehicle, every time I look back, spiked my heart rate.
 
-The more I searched for Noah, the more I felt myself unraveling.
+Now firmly outside of town, right before an on-ramp, I pulled over. A high-speed car chase on the highway wasn’t something I wanted to risk — not before at least trying to understand what they wanted. A punch of hesitation hit me, seeing the car pull up behind me but I suppressed it. The tinted windows were still masking the driver.
 
-And then there were the dreams.
+I got out of the car, my legs crumbling slightly, unprepared to bear my weight. As I was about to let questions fly out my lips, the car door swung open as I heard:
 
-Every night, I’d find myself in a darkened version of somewhere familiar—my apartment, my office, the park where Noah and I used to meet. The shadows were always there, standing in the distance, their heads tilted as if watching me. I’d wake up drenched in sweat, but the feeling of being watched wouldn’t go away.
+“STAY IN YOUR FUCKING CAR”
 
+His appearance has escaped my memory, leaving a dark blank spot where he stood, when digging through the filling cabinets of my mind. But it left me spiraling, my clouded thoughts now a full-on blur. I can’t quite explain why, but he triggered a guttural dissatisfaction. I don’t know… he just evoked this sinister feeling within me. Almost like, despite an anger tugging at his face, I could feel an inner smile creeping through. I remember noticing his fingers were wrapped around some object, trying to hide it behind his back half-heartedly. I didn’t really pay it much attention but in hindsight it might very well have been a knife.
 
+I froze. Then a violent urge overtook me and threw me inside the car. I sat there, for a moment, trying to corral my thoughts, but they kept spilling out. My foot slammed on the gas instinctively after sensing footsteps behind my car. They had an echo to them, almost like there were more than one set of feet. This time, I didn’t have the courage to look back.
 
-Last night, I found the final entry in the notebook.
+It took me a second to realize that my headlights weren’t on. I think I might’ve forgotten what I was even doing before the encounter. I kept on driving, no clear destination in mind, speeding as the passage of time slowly stabilized me.
 
-It was written on the back cover, the ink smudged and frantic, as if he’d written it in a hurry.
+But then I looked back. Not because I wasn’t hearing anything — but because I was hearing too much. The car horn’s cacophony seemed to have been joined by another instrument. My eyes were struck by 4 blinding lights.
 
-“I understand now. They don’t want me. They want her. If you’re reading this, you have to stop. Don’t look for me. Don’t let them see you.”
+Another car had begun to follow me.
 
-My breath caught as I read it. My first instinct was to throw the notebook across the room, but I couldn’t let go of it.
+My last sliver of hope withered as I felt the white vignette closing in. At first, I could’ve chalked this whole thing up to be a maniac’s extreme case of road rage, but their increasing numbers had painted much more grim intentions. Calling the cops had come to mind when the chase first began but the guilt of almost ramming into that car discouraged me, but by now it seemed like a missed opportunity.
 
-I turned, feeling the weight of a thousand unseen eyes pressing against me, and there it was—just outside the window. A shadow, impossibly tall, staring back at me through the glass.
+I tried to calm my nerves, breathing in what felt like all the air inside the car and letting out a deep sigh. The proceeding moment, allowing a wave of dread to set in. It didn’t manage to help my motor control in any way, leaving my trembling hands fumbling for the phone.
 
-I don’t know what they are or why they want me. All I know is that Noah disappeared trying to keep them away from me. And now that I’ve been searching for him, I’ve brought them closer.
+“911, what’s your emergency?” a woman answered.
 
-They’re always watching now. I see them when I close my eyes, hear them whispering my name.
+“Yeah, a-a madman’s been chasing me for the past like… uh-” My head blanking, not allowing even a rough estimate to arise. I broke off my own thought:
 
-I thought I could find Noah. I thought I could save him.
+“He’s driving like a lunatic! I don’t know what he wants. Please! I need some- “
 
-But the more I search for him, the more I realize I’m the one who’s disappearing.
+“Sir, where are you?” cut off my pleading.
+
+“Oh, yeah. S-sorry. I’m at…” forcing an answer out of my mouth, trying to manifest a highway sign.
+
+“uhhhh… Yes! I’m at \[Highway Number\]. We’re heading southbound. I-I think we just passed Exit 12”
+
+“We already have officers in pursuit of a reckless driver in that area.”
+
+A rush of relief hit me. Someone must’ve noticed and called the cops. It almost made me forget I was on the call. Then my phone produced a sound:
+
+“Is it a white Honda Accord?”
+
+*…*
+
+“Sir, What type of car is following you?”
+
+*Wait, what? No no no no.*
+
+I felt my mind cease all operations, rendering me in a state of profound delirium. The world toppled over.
+
+I was barely paying attention to the road. When I was about to speak, a truck came barreling down the street straight ahead of me. I swerved to the right, running off the road. A tree was the last thing I saw.
+
+I awoke, not knowing how long it had been. A branch smited the windshield and impaled the passenger seat’s headrest. A grogginess overran my brain, glass shards scattered along the dashboard.
+
+I got out of the car, my legs crumbling, unprepared to bear my weight. The cold winter night’s wind caressed my face, giving me a weird sense of clarity. Vision seemed much more vibrant. Sound was crisper.
+
+The world seemed frozen. I was frozen.
+
+My vision displayed a car wreck, Tim was totaled. A light shone from the street, it engulfed the scene in a red and blue glow.
+
+Then the sound of sirens commenced.
