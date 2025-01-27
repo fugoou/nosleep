@@ -1,100 +1,56 @@
-# I almost crashed into a car. It never stopped following.
-I was admiring the rosy tint of the sky signaling a sunset, when the ringing of my phone perked up my ears. The screen displayed a contact name that I had learned to despise. The voice of my boss echoed through the car.
+# Grandma died with dignity at the age of 94 the other day, surrounded by her loved ones. So I don’t get why she’s come back.
+She was waiting for me when I returned from the hospice. Outside, by the door.
 
-“Hey \[name\], A coworker has flagged a bug in the program. We need you to come down to the office, later today.” he said, indifferent to any problems it may cause me.
+I barged by her, or through her- I was so discombobulated that I don’t know which- and went in.
 
-“I’m sorry, but I requested time off over a month ago”
+She didn’t follow me. Just stood by the door. I think she can’t come in. I’m certainly not about to ask her.
 
-“That’s out of the question. This is urgent.”
+I don’t understand why she’s doing this to me! She lived a full, respectable life, and she was a catalogue of aches and pains that I can’t begin to list. She chose to die freely and openly, after lots of discussion.
 
-“But… I’m out of tow— “ My hesitant voice getting caught, realizing it wasn’t worth the trouble.
+Well, some discussion.
 
-“What time?” I asked, following a defeated sigh.
+I told her about the option, you see. The medical staff in our region aren’t allowed to raise it with patients- after some scandal about homeless or disabled or mentally-ill people being pressured into it – I forget which. Some local busybodies took to the press and made a huge fuss, and the sanctimonious old geriatrics who run this place quickly put a fuck ton of extra rules in place.
 
-“6:30 the latest.”
+But there’s nothing to say that a loving grandson can’t gently talk about the option to his suffering grandma.
 
-I glanced at the dashboard clock: 5:24. I was at least 2 hours out from town.
+Especially since Grandma has a nice house, and I was forced to live with my parents (it’s the economy, stupid), until Grandma moved to the hospice and someone- I forget who it was- suggested I might as well move into her house since it was lying empty and she has all these plants need watering and it can be sorted out later.
 
-A monotone “I won’t be able to make it today” was quickly answered with “Then I’ll see you tomorrow”.
+Oh yes it will be sorted out. It’s later now. And I put the plants out by the pavement the second day- I don’t have time to waste on plants, they were dying anyway! All those creepy long yellowing stalks, brushing against me wherever I turned. The night before her death- *before she chose to die,* please let’s not forget that, one of them caught at me when I got up to pee, Jesus Christ, I don’t think I ever screamed so loudly. I’m surprised the neighbours didn’t call the police.
 
-And with that, my software engineering job had found yet another way to lace my retreat with a bitter conclusion.
+Yeah, they were out on the pavement that morning. Ugly things.  
 
-For some context, I was quite reclusive throughout school, always avoiding conflict whenever possible. Which is what led me to stick with the same group of friends. Until high school, that is — I was assigned to a different school than the rest of them, so when the new year rolled around all I had for company was myself. It stayed that way.
+Anyway, I had the conversation with Grandma. Grandma looked at me as I told her, her eyes bright and unclouded. She was wearing a very pretty lacy blue nightgown. It looked expensive, and ancient.
 
-That was all to say, when I got my driver’s license, I made it a habit of going on lone therapeutic road trips that gave me a much-needed breather from my dingy apartment — with Tim.
+“Thank you Nicholas” she said deliberately. I didn’t tell her about the plants, and she didn’t ask.
 
-Tim, you may ask, is—well, was—my 2008 Honda Accord. After all the trips we’d been on, he had grown to be my best friend (not like there was much competition). Over time, a faded yellow hue concealed his once sleek white paint.
+Mom told me about her decision later that day, struggling to hold back tears. “She wants us all there, Nicholas, singing her favourite song.”
 
-Tim was driving me back from one of these excursions: to a little village. The sun slowly hid itself below the horizon, dimming the surroundings. The mountainous region the village was perched on gradually faded into flat farmland. Most of the route consisted of vacant roads with worn down signs and bus stops lining the sides, barring a few towns scattered along the way.
+*Auld Lang Syne.* I resisted the urge to roll my eyes at the attention-seeking old bag.  I showed up. We all stood around the bed, she held Mom’s hands, who was sobbing uncontrollably and unable to sing, and I sang and watched the stuff being pumped into her veins. She watched me. I think. I was trying not to look.
 
-I was on the outskirts of one of these towns, the presence of cars leaving me feeling ambivalent. I can’t even remember what I was doing. The shock of the moment has shrouded my memory. The long drive must have gotten to me, but I got distracted somehow. I was at a semi-busy intersection, no more than a few weathered buildings lying around, when I blatantly ran through a stop sign.
+Everything went well. Grandma closed her bright eyes. I was out of there. My parents agreed I could stay in her house until “we sort things out”- honestly I don’t think they enjoyed having me with them either.
 
-The cacophony of a car horn jolted me back to my senses.
+She was there when I returned to the house.
 
-It instantly brought awareness to every single part of my body. I slammed on the brakes, coming to a screeching halt. A black sedan covered the left side of my vision. We both stopped dead-still in our tracks, narrowly preventing me from t-boning it. Its occupants were obscured by thick tinted windows. After the blood rushed through my feet and a white vignette began to cloud my vision, an almost impulsive belligerence arose in me, dethroning my better judgment.
+I genuinely thought it was just a random old lady in a blue dress standing by the door. I remember wondering why she didn’t have a coat on.
 
-I’m not proud of it, but I honked my horn and let a surge of unmeant insults flow out — into the safety of my car, of course. I expected to hear a flurry of rage echo back (a much more justified one) but that never happened. It remained motionless. By the time the dust had dispersed, guilt had settled into my stomach and a wave of embarrassment struck me.
+Then I went up- she turned to me, and I froze.
 
-With that, I drove off writing it off as a silly mistake and putting it behind me. I noticed a layer of sweat had built up in my shirt. Right before turning the corner, I eyed the rear-view mirror. I look back at the intersection and feel my stomach drop a second time when I see the once motionless car clearly veer in my direction, right before being obstructed by a building.
+She opened her mouth, and I saw very clearly the gaping black hole.
 
-My sweat now ran cold as the sensation of tiny needles trying to break out of my skin emerged. The car turned onto my street, clearly giving chase. Their aggressive driving coupled with the now much more shrill and constant honking did nothing to quell my haziness.
+I heard her voice, very deliberate and slow “*my plants, Nicholas*”. The hole grew wider and wider and moved closer to me, starting to swallow me up.
 
-The length of a couple kilometers didn’t seem to deter the driver in any way. I tried driving in nonsensical patterns — going in circles, swerving between lanes and taking turns that would lead me in the opposite direction I was originally driving. Anything that might’ve given me a sliver of breathing room. But they were always there, just 3 seconds behind my shadow. Their vehicle, every time I look back, spiked my heart rate.
+I unfroze and barged in.
 
-Now firmly outside of town, right before an on-ramp, I pulled over. A high-speed car chase on the highway wasn’t something I wanted to risk — not before at least trying to understand what they wanted. A punch of hesitation hit me, seeing the car pull up behind me but I suppressed it. The tinted windows were still masking the driver.
+She was still there, standing. I knew I can move past her, if I move very fast. And I knew she’s not going anywhere.
 
-I got out of the car, my legs crumbling slightly, unprepared to bear my weight. As I was about to let questions fly out my lips, the car door swung open as I heard:
+But neither did I.
 
-“STAY IN YOUR FUCKING CAR”
+We get used to everything, they say. After a while, I got used to Grandma standing on my doorstep, I got used to zipping through her as she opened her horrible mouth to cry out about her plants. I am thankful she can’t actually come into the house.
 
-His appearance has escaped my memory, leaving a dark blank spot where he stood, when digging through the filling cabinets of my mind. But it left me spiraling, my clouded thoughts now a full-on blur. I can’t quite explain why, but he triggered a guttural dissatisfaction. I don’t know… he just evoked this sinister feeling within me. Almost like, despite an anger tugging at his face, I could feel an inner smile creeping through. I remember noticing his fingers were wrapped around some object, trying to hide it behind his back half-heartedly. I didn’t really pay it much attention but in hindsight it might very well have been a knife.
+Sometimes I feel trailing yellowing leaves brush against my skin as I move through the house, from the kitchen, now open and spacious thanks to me, to the living room and back, as I go about my day. I don’t let it bother me.
 
-I froze. Then a violent urge overtook me and threw me inside the car. I sat there, for a moment, trying to corral my thoughts, but they kept spilling out. My foot slammed on the gas instinctively after sensing footsteps behind my car. They had an echo to them, almost like there were more than one set of feet. This time, I didn’t have the courage to look back.
+I am alive, she is not, I have the house, she does not, she made the choice, and we will both live on with that, in our own ways.
 
-It took me a second to realize that my headlights weren’t on. I think I might’ve forgotten what I was even doing before the encounter. I kept on driving, no clear destination in mind, speeding as the passage of time slowly stabilized me.
+ 
 
-But then I looked back. Not because I wasn’t hearing anything — but because I was hearing too much. The car horn’s cacophony seemed to have been joined by another instrument. My eyes were struck by 4 blinding lights.
-
-Another car had begun to follow me.
-
-My last sliver of hope withered as I felt the white vignette closing in. At first, I could’ve chalked this whole thing up to be a maniac’s extreme case of road rage, but their increasing numbers had painted much more grim intentions. Calling the cops had come to mind when the chase first began but the guilt of almost ramming into that car discouraged me, but by now it seemed like a missed opportunity.
-
-I tried to calm my nerves, breathing in what felt like all the air inside the car and letting out a deep sigh. The proceeding moment, allowing a wave of dread to set in. It didn’t manage to help my motor control in any way, leaving my trembling hands fumbling for the phone.
-
-“911, what’s your emergency?” a woman answered.
-
-“Yeah, a-a madman’s been chasing me for the past like… uh-” My head blanking, not allowing even a rough estimate to arise. I broke off my own thought:
-
-“He’s driving like a lunatic! I don’t know what he wants. Please! I need some- “
-
-“Sir, where are you?” cut off my pleading.
-
-“Oh, yeah. S-sorry. I’m at…” forcing an answer out of my mouth, trying to manifest a highway sign.
-
-“uhhhh… Yes! I’m at \[Highway Number\]. We’re heading southbound. I-I think we just passed Exit 12”
-
-“We already have officers in pursuit of a reckless driver in that area.”
-
-A rush of relief hit me. Someone must’ve noticed and called the cops. It almost made me forget I was on the call. Then my phone produced a sound:
-
-“Is it a white Honda Accord?”
-
-*…*
-
-“Sir, What type of car is following you?”
-
-*Wait, what? No no no no.*
-
-I felt my mind cease all operations, rendering me in a state of profound delirium. The world toppled over.
-
-I was barely paying attention to the road. When I was about to speak, a truck came barreling down the street straight ahead of me. I swerved to the right, running off the road. A tree was the last thing I saw.
-
-I awoke, not knowing how long it had been. A branch smited the windshield and impaled the passenger seat’s headrest. A grogginess overran my brain, glass shards scattered along the dashboard.
-
-I got out of the car, my legs crumbling, unprepared to bear my weight. The cold winter night’s wind caressed my face, giving me a weird sense of clarity. Vision seemed much more vibrant. Sound was crisper.
-
-The world seemed frozen. I was frozen.
-
-My vision displayed a car wreck, Tim was totaled. A light shone from the street, it engulfed the scene in a red and blue glow.
-
-Then the sound of sirens commenced.
+ 
