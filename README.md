@@ -1,194 +1,302 @@
-# My Grandfather's couch took me to another world
-You live through it one hundred times. Then, you live through it a thousand more. That’s when you’re awake; when you’re asleep is when it gets weird. The events replay like usual. You notice where you screwed up and what happened because of it but for some reason your ex is there with famous cartoon characters. And they’re all just watching you with blank faces that have eyes the size of footballs while the tragedy you survived is happening in the background. Maybe that doesn’t make sense, but I’ve been living through that night back in Dugsgrave more times than I can count. 
+# Has Anyone Else Heard Music in the Smoky Mountains?
+Never thought I’d have a reason to share this story online. I always chalked it up to an overactive imagination, but after falling down a rabbit hole of Appalachian folklore, I felt the need to finally put it into words.
 
-Back in December, I went down to the town where my Grandfather spent his entire life up until his death a week before. We all saw it coming in the family but we figured he had another year left in him, and I thought I had more time to figure out what I would do with my new debt and degree.
+I grew up in Nashville, and every time my parents drove us to the Smokies to visit family, it felt like Christmas. If you’ve never been to Pigeon Forge, Tennessee, imagine the Las Vegas Strip—if it were designed for middle-class families. A long stretch of road lined with go-karts, water parks, and over-the-top dinner shows that probably haven’t aged as well as I remember them.
 
-Since everyone else in the family were halfway across the world in countries I’ve never heard of, it was dropped into my lap to handle my Grandfather’s house until the funeral could be arranged and the family could come back to the USA to handle all the legal stuff. So until then, I was stuck in a house that was in a town I hadn’t been in since I was 3 years old. 
+All of this is to say that when my parents told me we were moving there, I was ecstatic.
 
-It was one of them older style houses. The type where it’s pointy, has two floors, and the windows look like tall mirrors when the sun hits it right. The insides were nice and clean, surprisingly. My Grandfather Herman was a secret neat freak, I suppose. The only thing making the place less than pristine was the dust and my presence. 
+Looking back, our reason for moving wasn’t as happy as I would’ve liked. It was 2009, and like a lot of families back then, we were struggling. My parents tried to downplay it, but even at twelve, I could tell things weren’t right. When my aunt and uncle offered us a place to stay, it wasn’t framed as a last resort—but that’s exactly what it was.
 
-The first few days were alright. My Grandfather’s place didn’t have the 80 inch TV I was used to, nor did he have the fast internet I took for granted back home. Instead, I had local access TV and the neighbor’s Internet to pass the time. I scrolled the usual places while “Jorge’s World History” played in the background. I was in the middle of reading an article about a gaming studio being able to “mimic” a player’s playstyle to create a nemesis when I heard a knock at the door. It was a single thud of a knock, enough to make me whip my head toward the living room. I got up and walked toward the front door as another thud hit.
+Their cabin wasn’t in Pigeon Forge, not really. It was tucked away in the woods between there and Gatlinburg, a good fifteen-minute drive from the neon lights and tourist traps. I didn’t realize it at the time, but my parents weren’t thrilled about the move. I was too caught up in my daydreams of roller coasters and water slides to notice the tension in their voices.
 
-As I looked through the peephole, I could see three older people outside the door with an aluminum tray and a small cake. Before they could knock again, I opened the door. 
+I remember the disappointment sinking in as we drove deeper into the mountains, the bright lights of Pigeon Forge fading behind us. I’d been so sure we’d be staying near all the fun stuff—somewhere with bumper cars and arcade games right down the road. But instead, we kept winding further into the woods, the trees growing thicker and the roads narrower.
 
-“Hello. How may I help you?” I asked the closest one. He was a tall man with gray curly hair that was neatly trimmed. 
+“Alex, you’re going to love it,” my dad said from the driver’s seat, glancing at me in the rearview mirror. “It’s quiet, peaceful. Think of it as an adventure.”
 
-He hunched a bit to look me in the eye. “Hello young man. We were friends of Herman. We noticed the lights were on and put two and two together. We’re sorry for your loss and we wanted to let you know that we are here if you’ve got any questions, troubles that need fixing, or you just need the company”.
+I forced a smile, but the excitement I’d been carrying all week started to feel heavy in my chest. Quiet wasn’t what I wanted. Peaceful wasn’t either.
 
-His voice was gravelly, sounded like he never had air in his lungs, but his smile was warm and inviting. I opened the door to let who I would soon learn to be Quentin, Mary, and Trujillo, in. Quentin was the tall one. Mary was a shorter woman with a short brown bob cut, she looked younger than the other two men. And Trujillo was about the same height as me, he wore a gray hunting cap, and his beard was as long as my forearm. 
+“I just thought we’d be closer to all the fun stuff,” I said, glancing out the window at the endless forest. “We’re in the middle of nowhere.”
 
-We spent a few hours talking about my Grandfather, eating the ham sandwiches they made along with the cake that had frosting spelled out, “Our Condolences” in cursive. I learned that the Grandfather I barely spent time with was an avid collector of “fancy knick knacks”, he was a man who couldn’t be out drank, and he was a big fan of Asian Kung Fu Generation. After we were done, they asked me something that I wish I knew myself.
+“Oh, don’t be so negative,” Mom chimed in, twisting to look at me from the passenger seat. “Once we get settled in, we might take you to Dollywood this weekend. How does that sound?”
 
-Throughout the night, they all looked like they wanted to ask but Mary was the one who got to it first. “Can we know how Herman passed away? All we know is that obviously he’s not here with us anymore and he just seemed like a modern day titan. Y’know he once lifted a whole couch for us to go star gazing out back. Just hucked the whole thing over his shoulder like it was nothing”. Quentin laughed and patted her back.
+“Dollywood’s pretty pricey,” Dad said with a wince, but when he saw my face fall, he quickly added, “Uh… but we can see about getting some tickets.”
 
+That was enough to pull me out of my slump. “Really?” I asked, sitting up straighter.
 
+Mom smiled at me, though her voice softened. “Really. We’ll figure it out. Just give this place a chance, okay?”
 
-“I’m sorry but I don’t know myself. All I know is what you know”, I answered as I tried looking into all three of their faces. “One day I’m at my dishwashing job and then the next, I’m here”. 
+I nodded, but as we turned onto a bumpy gravel road and the cabin came into view—small, worn, and tucked deep in the trees—I still couldn’t shake the feeling that “quiet” and “peaceful” were just fancy words for “lonely.”
 
-Quentin and Mary seemed to have sympathetic faces but Trujillo had a poker face so firm that I’m sure he’d be kicked out of every casino in Vegas. 
+As we pulled into the driveway, the cabin finally came into view, nestled between the towering trees like it had been hidden there on purpose. It wasn’t as big as I’d imagined—a single story with a wraparound porch and a roof that looked a little too weathered—but Aunt Laura was already on the porch, waving like she hadn’t seen family in years.
 
+“There’s my favorite niece!” she called as we climbed out of the car.
 
+I smiled, even though I was her only niece, and let her pull me into a hug that smelled like lavender and fresh bread. “It’s so good to see you, Alex,” she said warmly, brushing a strand of my hair behind my ear. “You’ve grown so much since the last time I saw you.”
 
-“Mr. Trujillo”, I locked eyes with him, or at least tried to. It’s like he was looking past me, “Do you know something”?
+I didn’t remember ever meeting her before, but I just nodded politely and let her lead me up the porch steps.
 
+“Come on, let me show you to your room. I fixed up the guest bedroom for you—thought you might like the one with the window overlooking the woods.”
 
+Inside, the cabin felt smaller than it looked. Cozy, I guess, if I was being generous. The living room opened straight into the kitchen, with mismatched furniture and a faint smell of wood smoke hanging in the air. Aunt Laura led me down a short hallway and pushed open a door to reveal a small room with a twin bed, a nightstand, and a window framed by floral curtains.
 
-I turned to look where his gaze fell. His eyes never moved away from the back door down the hall. “No, son. I’m just thinking about that couch and my talks with Herman. We would stay out there for hours in the night. Just us and more than a couple of bottles”.
+“It’s not much,” she said, patting my shoulder, “but I figured you’d want a little space to yourself.”
 
+“It’s nice,” I said, dropping my backpack onto the bed. The truth was, it felt cramped, like the walls were leaning in, but the view out the window was kind of pretty. Trees stretched out as far as I could see, their tops swaying gently in the wind.
 
+“You’ll get used to it,” she added with a wink, before stepping back toward the door. “Why don’t you unpack a little and settle in? Dinner’ll be ready soon.”
 
-“Bottles of what?” I wondered aloud.
+I nodded, glancing back out the window. The woods seemed so still, but something about them felt… alive. Like they were waiting for something.
 
+Uncle Frank lumbered into the house, his boots scuffing against the wooden floor, a hunting rifle slung over his shoulder. He pulled off his cap and let out a sigh, shaking his head as he set the rifle down by the door.
 
+“Well, Rob, welcome to the good life,” he said, clapping my dad on the back with a grin. “Bet you’re missin’ all that city traffic already.”
 
-“Bottles.”, he said with a monotone voice, and before I could ask him to clarify, Quentin placed his hand onto Trujillo’s shoulder. “Well, I think we’ve wasted enough of this boy’s time. It’s getting rather late and if we stay here any longer, my wife will be rather furious”.
+Dad chuckled, setting down his duffel bag. “Yeah, something like that.”
 
+Frank smirked, but the expression didn’t last long. “Didn’t have much luck out there today. Thought I had a buck lined up, but he took off before I could get a shot. Guess even the deer know I’m losin’ my touch.”
 
+Aunt Laura rolled her eyes, wiping her hands on a dish towel. “Maybe they’re just smarter than you give ‘em credit for.”
 
-“As will your husband, Trujillo”, Mary quickly added in. I watched as they all stood up, took their coats, and then walked out of the door.
+“Or maybe Frank’s just dumber than we thought,” Mom chimed in, grinning as she and Laura shared a laugh.
 
+Dad just gave a tight smile, glancing at me. We exchanged an awkward look, both unsure whether to laugh or just let it pass.
 
+Dinner that night was quieter than I expected. Aunt Laura and Mom chatted about recipes and old family memories while Uncle Frank teased Dad between bites of stew. I mostly picked at my food, still trying to adjust to the small, cozy space and the eerie stillness outside. Every now and then, I caught my mom glancing at me like she was checking to see if I was okay. I forced a smile each time, even though my stomach felt too tight to eat much.
 
-“Goodnight Jeremy. Lock this door, please?”, Quentin said as he closed the door behind him.
+After dinner, I helped Aunt Laura clear the table, and Mom and Dad stepped outside for some air. The house felt smaller with just me, Aunt Laura, and Uncle Frank sitting around, the distant hum of crickets seeping through the walls. That’s when there was a sharp knock at the door.
 
-I watched them walk away, and then split off into different houses across the street. I had a weird feeling coming up. Trujillo barely spoke and the minute he does, Quentin makes them all leave. I get it, some people just don’t speak but there was something about Trujillo that made me think I should open up that back door and see what was out there.
+“Come on in, Caleb!” Aunt Laura called, not even looking up from the plate she was drying.
 
-Up until this night, I never went out the back. On the drive, I didn’t see anything out there in the backyard. The clean house made me think that Grandpa just kept his backyard as neat as his house. But as I opened up that cool to the touch glass and wooden door, I saw it. The green couch in the backyard. It looked like it was picked straight out of the store, clean and seemingly immune to the elements. It was as if the fog was avoiding it, refusing to even obscure the couch. Then there was the heat. I could feel it slowly warming the front of my body. It was 48 Fahrenheit outside but this green couch was insanely hot enough to reach me from 20 feet away. 
+The door creaked open, and a boy about my age stepped inside, pushing his shaggy brown hair out of his face with one hand while awkwardly fumbling with a rolled-up newspaper in the other. His jeans were streaked with dirt, and his sneakers looked like they’d been through one too many puddles.
 
-I stepped through the threshold, curious. A strange sound happened behind me as soon as my left foot landed onto the grass in the backyard. A mixture of clicks and chimes like some ancient instrument playing a foul note. I looked behind me and saw nothing but the sun resting on the horizon, its soft orange light making the miles and miles of amber grasses glow. 
+“Got your paper!” he announced, a little too loudly, as he tossed it onto the counter. It unrolled halfway and slid onto the floor, and he froze, looking at it for a second too long before Aunt Laura pointed it out with a laugh.
 
-The house was gone. The white square fence and the green couch was still there with all of its heat. But my Grandpa’s house, my car, the entire neighborhood was gone. 
+“Thanks, Caleb, but you’re supposed to deliver it to the counter, not the floor,” she teased.
 
-Despite all the pinching, I was not waking up from this dream where winter became warm muggy summer. In my increasing panic, I was trying to think of what to do. But before I could make any sort of plan, I heard a roar in a distant forest, and when I saw the trees crashing over, I started to panic. 
+“Oh—right!” He stooped down quickly, scooping it up and slapping it onto the counter with a sheepish grin. “Uh, here you go. Perfect delivery.”
 
-Something was aware that I was here, and it was absolutely pissed about it. A cold sweat started on my forehead, and it felt hard to breathe. Panicking, I mindlessly turned to the couch as if it would save me and saw them.
+“That’s more like it,” she said, smiling as she turned toward me. “Come meet my niece, Alex. She just got here today.”
 
-Trujillo’s bottles. I could hear the roar coming closer, stomping heavy stomping towards me. I picked one up at random, it was unlabeled and warm. The liquid inside was a burgundy red, with gray specks floating around inside. The stomping was now close enough for me to feel the vibrations. I didn’t know what to do. My brain was thinking of a thousand meaningless things. 
+Caleb straightened up, shoving his hands into his pockets and rocking on his heels. His eyes darted toward me, but he didn’t hold eye contact for long. “Oh, uh, hey! I’m Caleb. I, uh… live down the road. Well, not, like, right down the road—it’s kinda far, but I bike here sometimes, so it’s not that far…” His words tumbled out in a rush, and he scratched the back of his neck as his voice trailed off.
 
-Was time passing the same back home? How would One Piece end? I never wrote a book. I never kissed anyone yet. Would that chick text me back? Would my asshole roommate back home ever stop using my books as a fucking ashtray?
+“Hi,” I said, trying not to laugh at his rambling.
 
-All these stupid thoughts combined in an instant into the only thing that made sense in that moment. 
+“You’re about the same age,” Aunt Laura chimed in. “Maybe Caleb can show you around sometime.”
 
-I turned around and threw the bottle at whatever creature was behind me. I think maybe it was the adrenaline or maybe it was my mind demanding a solution. Either way, I watched as the bottle flew towards it in slow motion. 
+“Yeah!” he said quickly, his face brightening. “I mean, if you want. There’s, uh, this cool spot with rocks you can climb, and a stream, and this one tree that’s, like, super big. You’d probably like it.” He finished with an awkward, toothy grin.
 
-The creature looked like tv static, an amorphous blob of black and white shivering. It’s very being making my clothes and my body hair thrust forward toward it. The sinking sun’s light seemed to be swallowed by it, like it had many hungry mouths sucking in all the light it could get. I couldn’t really get a good grip on its shape, it all looked like it blended together. 
+“That sounds fun,” I said, turning to Aunt Laura. “Is it okay to go now?”
 
-But something in my lizard brain could recognize that it was reaching out to me with a wide grasp. I felt like my head was going to explode from the stress, my body was itchy and painful. This was it, I’m going to die. 
+She looked surprised for a moment but smiled warmly. “If Caleb’s up for it. Just don’t wander too far—it’s getting dark.”
 
-And then the bottle hit, the glass shattered into a glitter, and the red liquid carved through the body of the thing causing it to let loose a wet shriek that covered me head to toe. 
+“Yeah, totally!” Caleb said, already inching toward the door. “We’ll just check out the stream real quick. It’s close. Like, super close. You’ll love it.”
 
-By the time I realized I was covered in wet gunk that smelled like shit, the thing was gone. The trees in the forest were moving again, I could only guess it retreated back there. I stood up, and looked at the bottle of… stuff that saved my life. 
+I glanced at Aunt Laura for confirmation, and when she nodded, I grabbed my jacket and followed Caleb outside. I wasn’t sure if this was a good idea, but the thought of finally doing something other than sitting around the cabin was too tempting to pass up.
 
-It wasn’t burgundy red anymore, it was now lime green. The same shade as the couch. I turned around to the couch and saw something strange. You would think at this point, I’d be rolling with the weirdness, but I could never have expected to see that Trujillo’s bottles were hooked up to the couch with these little metal spigots. The couch was pumping out this mystery juice. 
+“So you moved in with Mrs. Laura and Mr. Frank? That’s cool. They’re nice. Dad has me bring the paper and their mail to them sometimes since the delivery guy won’t go this far. I didn’t know they had a niece. Where are you from? I haven’t seen you here before. Do you like it here?” Caleb rattled off without a breath, barely giving me a second to respond.
 
-It smelled like vinegar and puke, and now it was gathering into a puddle on the floor where the missing bottle was. It slowly ate away at the dirt, a splotch shaped hole sinking into the earth. I definitely wasn’t going to touch it.
+I blinked, trying to process the rapid-fire questions. “Uh… Nashville,” I answered, deciding to tackle the easiest one first. “And we just got here today, so I haven’t really had time to—”
 
-I spent some time, 20 minutes give or take, trying to make my heart stop boxing my ribcage and thinking about what to do. I kept looking at how there was miles of dirt everywhere except for the forest where the monster came from. I could choose a random direction of dirt to head in and hope there would be something or I could head into the one place that had danger so that I could find SOMETHING. 
+“Oh, Nashville! That’s a big city, right?” he interrupted, his voice buzzing with curiosity. “I’ve never been, but I bet it’s crazy loud. Are there, like, huge buildings everywhere? And, like, famous people walking around? Oh! Have you ever met Dolly Parton?”
 
-I decided on the forest since I didn’t like the idea of my skeleton cartoonishly being blown by the wind somewhere in the dust. 
+I couldn’t help but laugh a little at that. “No, I’ve never met Dolly Parton.”
 
-I don’t know how long the walk took, but the sun was nearly gone when I entered the forest. Light pollution was something that I always forgot existed. Spending most of my life in towns had cemented in my head the idea the world was just perpetually bright always. The obvious was now surrounding me; light pollution was real and it was not here to help me now. The forest was dark, the only light being the fading sunshafts above me. 
+“Dang. That’d be cool, though.” Caleb kicked a rock off the path, shoving his hands into his pockets. “So do you like it here so far?”
 
-I didn’t know what I was doing or what I should be doing until my foot stepped into something warm. I felt a small shock climb up my right leg, gone as fast as it came. I looked down and saw the static trail left behind from the monster. I followed it, making sure to avoid stepping into any more of the fading television liquid. The soft hum of the static growing louder the more I wandered deeper into the woods. 
+I hesitated, glancing around at the trees stretching endlessly in every direction. The air smelled fresh, like damp earth and pine, and the only sounds were the crunch of our footsteps and the distant hum of crickets. It was different, that was for sure.
 
-When the sun was finally gone, leaving me with nothing but trees and the soft white light from the blood, I heard a ringtone further in. I didn’t understand the Japanese but I knew by the song it was Grandpa’s phone. A short while later and I came up onto the remains of a destroyed cabin. There was a tiny light resting on what looked like an air mattress. The screen on the phone read, “Marque”. 
+“It’s… quiet,” I finally said.
 
+Caleb grinned. “Yeah. You get used to it. Well, except at night. Sometimes it’s really quiet. Too quiet. But that’s normal.”
 
+I frowned. “Too quiet?”
 
-I picked up the phone and whispered a “Hello”?
+He waved a hand. “Yeah, you know, like, when the crickets just stop all of a sudden? And it’s just… nothing? Kinda creepy, but it’s whatever.” He said it like it was no big deal, but something about the way he kicked another rock down the path made me wonder if he believed that.
 
+I didn’t know what to say to that, so I just nodded and kept walking.
 
+“Yeah, it’s kinda cool,” Caleb said, his tone shifting just slightly. “When it gets real real quiet… you can hear the music.”
 
-“Jeremy, listen. Don’t even talk. You need to find a blanket that has a dark blue panther on it. If it’s not in the cabin, it’s out the backdoor in the neighborhood somewhere. Once you have the blanket, go back to the couch”.
+I stopped mid-step, looking at him. “Music?”
 
-My hairs started to stand. The hum of the static growing louder.
+He nodded, kicking another rock lazily down the dirt path. “Yeah. Comes from the woods. You gotta listen real close, though. It doesn’t happen all the time, just… sometimes, y’know? Like, late at night or early in the morning, when everything else is real still.”
 
+A weird chill ran through me, even though the air was warm. “What kind of music?”
 
+Caleb shrugged, like he hadn’t just said something that sounded straight out of a ghost story. “Dunno. It’s kinda like a violin, but not really? It’s hard to explain. Sometimes it’s real soft, like it’s far away, and sometimes it’s closer. But if you try to find it, it stops.”
 
-“Trujillo? What the fuck is happening? What’s going on”?By the time I said “going”, Trujillo had hung up and I could feel the back of my shirt being gently tugged. I jumped over the lime green air mattress, and quickly searched the cabin. 
+I let out a nervous laugh, even though I wasn’t sure why. “You’re messing with me.”
 
-The living room, what was left of it, only had the mattress and a mini fridge. The kitchen was clean and the cabinets only had polished dishes. When I rushed into the bedroom, it looked like a near 1 to 1 duplicate of Grandpa’s guest room. Popcorn ceiling, a fan with a broken light bulb, and that same itchy rug that made getting out of the twin bed uncomfortable. The static was getting more painful, I frantically pulled out drawers, looked under the bed, and the closet. No blanket. Before I left to run out of the backdoor, there was a note under the lightswitch near the guest room door. It said,“1: HFWF2 2: ItTakesBraveryToLive”.
+“I swear I’m not,” he said, grinning but still serious. “I’ve heard it since I was little. My dad says it’s just the wind, but wind don’t play music.”
 
-I should have taken the note but fizzy anxiety was drowning my brain. At that moment, I just wanted to be away from the static. When I finally got out of the house, I saw the neighborhood. Grandpa’s neighborhood. It looked nearly exactly  how I remembered it, save for the fact that it was surrounded by the woods. 
+That last part stuck with me. Wind don’t play music.
 
-Before I could question it, my legs were carrying me toward the suburb but in my fervor to get away from the monster, my foot got caught in a small hole. I tripped and fell all the way down the hill. Every few seconds, I felt nature punch me in a new spot. When I reached the end of the slope, the pain felt like it was a mixture of thorns and burns but a mixture of annoyed, adrenaline, and anger forced me up into the street.
+I glanced at the woods around us, darkening as the sun dipped lower behind the hills. The trees swayed gently, their leaves whispering in the breeze. There was nothing unusual, nothing strange.
 
-My body felt sore and it felt like bones would poke my skin in a threatening way if I stepped wrong, and with every step I could see droplets of red fall onto the asphalt. It was definitely the pain, the focusing to stay awake that distracted me from what was happening. The wood creaked, the glass shattered and reformed, the street signs had their letters morph into new ones. That didn’t matter to me, at that moment I was nothing more than a simple machine with one order in its head. Keep stepping forward.
+But for the first time since I’d arrived, I really listened.
 
-I should’ve known that when a house appeared in front of me that things were wrong. I mindlessly opened the door, desperate for rest, and stepped inside. My shoes were off and on the rack, and I found my way to the rug that my father picked up off the street and cleaned. I didn’t know how to let myself gently down so I just fell onto my face. Familiar feel and smell, the rug made falling asleep in my childhood home easy. Better than any sleeping pill.
+We arrived at the creek. It was quiet, but nothing like the eerie silence he’d described. The water rushed gently over the rocks, its steady trickle filling the air. Crickets had started chirping softly, their song blending with the distant hum of cicadas as the sun dipped lower behind the mountains. The whole scene felt calm, still—almost like something out of a painting.
 
-In my foggy dreams that night, I saw my Grandfather Herman. He was impaled on a cross spear in the middle of some graveyard, the flag of his nation draped over him. His eyes were wildly alive, darting from place to place until he finally saw me. He mouthed something to me, something I knew to be important, but when I woke up I couldn’t remember what he was trying to tell me. I was still hurt but I forced myself up when I heard Grandpa’s phone ringing again. In the kitchen, on the countertop next to multigrain bread was the phone. Instead of “Marque”, this one was from Quentin. 
+It was nice. Peaceful.
 
+“Have you ever had a kiss?” Caleb asked, shattering the moment completely.
 
+I blinked, turning to him. “What?”
 
-“You alright, son?” Quentin asked as I put the phone on speaker. 
+“A kiss,” he repeated, as if I hadn’t heard him the first time. “Like, y’know, with another person.”
 
+I stared at him, unsure whether to be confused, horrified, or just walk away. “Uh… no?”
 
+Caleb nodded like he was thinking really hard about it. “Me neither.”
 
-“No. I don’t know what’s going on and I’m badly hurt”.
+I let out a breath I didn’t realize I’d been holding. “Okay?”
 
+He kicked at a loose pebble near the water’s edge. “I just figured we’re about the same age, and some kids at school have done it, so I was curious.”
 
+I shifted uncomfortably. “I… I don’t really know you like that.”
 
-“I knew this would happen. I should have warned you but who would believe an old man when he brings up magic”?
+Caleb’s eyes widened like he just realized how weird the conversation had gotten. “Oh! No, no, I wasn’t—I didn’t mean we should—” He groaned, rubbing his hands over his face. “That came out super weird, didn’t it?”
 
+I nodded. “Yeah. Yeah, it did.”
 
+“Crap. Okay, pretend I didn’t say anything,” he said quickly, waving his hands like he could erase the last thirty seconds. “I have a habit of saying dumb stuff when it’s too quiet.”
 
-“Quentin, I don’t care at this point. I need medical help and I don’t think there’s doctors in this weird silent hill rip off”.
+I smirked despite myself. “Noticed that.”
 
+Suddenly, it got quiet. 
 
+The change was so subtle at first that I almost didn’t notice it. One second, the forest was alive with sound, and the next, it was slipping away piece by piece. The crickets softened, their chirps fading into nothing. The cicadas followed, like someone was slowly turning the volume down on the entire woods. Even the creek—the water right in front of me—seemed to hush, its steady rush over the rocks dulling to an eerie, almost unnatural quiet.
 
-“Do me a favor and tell me a bad memory of yours”.
+Caleb put a finger to his lips, his eyes wide. Don’t speak.
 
+That’s when I heard it.
 
+It was faint at first, almost like a breeze threading through the trees, but it wasn’t wind. It was a melody, soft and slow, the kind of sound that made you want to stop and listen without even realizing it. It reminded me of a violin, though the notes weren’t quite right—like whoever was playing didn’t know the song or the strings were slightly out of tune.
 
-“What”?
+I froze, my breath catching in my throat. Caleb didn’t move either, his finger still pressed to his lips, his eyes fixed on the trees across the creek.
 
+The melody grew louder, still distant but clearer now, weaving through the woods like it was carried on the air. I couldn’t tell where it was coming from—sometimes it seemed to echo from the left, then the right, then straight ahead.
 
+“What is that?” I whispered, my voice barely audible.
 
-“Just tell me, Jeremy. A bad memory. Were you bullied? Did you ever get dumped”?
+Caleb lowered his hand and leaned closer, his voice equally quiet. “The music,” he said, like it was obvious.
 
+I swallowed hard, my eyes darting around the darkening woods. “Is it… someone playing? Like, with an instrument?”
 
+He shook his head, his face serious for the first time since I’d met him. “I don’t think so.”
 
-Feeling more of myself pouring out, my body threatening to collapse. I blurted out the first thing that came to mind. “Juan in the first grade stole my limited run card of Terrence Phobos. I remember seeing him take it but I didn’t say anything because”. I breathed in wrong, started coughing. 
+“What do you mean you don’t think so?” I whispered, the words rushing out faster than I meant them to.
 
-Quentin sounded panicked and urged me to continue, “Please, son. Finish your memory”.
+“I mean,” he said, leaning back slightly, “no one knows where it comes from. You can follow it all you want, but you won’t find anything.”
 
+I stared at him, my heart pounding. “You’ve followed it?”
 
+“Once,” he admitted, his voice dropping even lower. “Didn’t get far, though. My dad caught me and dragged me back before I could…” His sentence trailed off, his eyes flicking back to the trees.
 
-“I didn’t confront him because Juan was the only kid in class who’d talk to me. I thought being friends with someone like me meant that things like that happened. Like I had to pay a tax to have friends”.
+“Before you could what?”
 
+“Before I could find it,” he said simply.
 
+I turned my head toward the woods again, the melody still drifting through the air, soft but pulling at me. It didn’t sound threatening. If anything, it was kind of… beautiful.
 
-Quentin quickly asked me, “How did that make you feel? Did you ever get over it”?
+But there was something else under the surface, a feeling I couldn’t explain. Like the sound wasn’t meant for me—or maybe it was.
 
- I remember answering this before when I went to therapy after what happened in December 2017. I told Quentin the same thing I told my therapist,
+Caleb tugged at my sleeve, breaking my thoughts. “We should go back,” he said, glancing nervously over his shoulder. “It’s getting dark.”
 
+I didn’t respond, still entranced by the soft melody of the strings carrying through the air. 
 
+Caleb tugged harder on my sleeve, his voice sharper now. “It ain’t safe here after dark, Alex. I still gotta bike back home. We can come back another time.”
 
-“It made me feel pathetic. Then I got angry about it. I was angry that I let myself be hurt just to have someone spend time with me. I decided a week later that I deserved better, that I am better even if everyone in that class thought I was a loser. I never got that card back but Juan never tried anything after I told him off and dumped milk on his head”.
+I hesitated, the pull of the music keeping me rooted in place for just a moment longer. The way it drifted through the air—delicate, haunting—made it hard to turn away. But Caleb’s grip on my shoulder and the unease in his voice finally broke the spell.
 
-Then, my body felt a warm, almost burning sensation. It started from my feet all the way to my head, culminating in a headache. 
+Reluctantly, I nodded, and we started the short hike back to the cabin. The further we walked, the softer the music became, until it melted completely into the chirps of crickets and the rustle of leaves. By the time we reached the edge of the woods, it was as if it had never been there at all.
 
-Quentin must have heard me groaning because he started chuckling a bit. He asked, “Feel better”?
+Uncle Frank was on the front porch, picking at the strings of his guitar with an ease that told me he’d been playing for years. The melody was simple, steady, and kind of comforting, the warm notes blending into the soft hum of the evening. It was so different from the haunting tune I’d heard in the woods, yet it was enough to calm the knot that had settled in my stomach.
 
-I checked myself and I was still hurt but now I wasn’t leaking all over the place. “Yeah”, I answered, “I do feel better. I’m still hurt but now I’m not bleeding. My head feels funny though”.
+I waved goodbye to Caleb as he hopped on his bike, wobbling just a little as he pedaled down the dirt road. “See ya tomorrow!” he called over his shoulder before disappearing into the trees.
 
-Quentin stopped chuckling and said, “I’m on limited time but I’m glad I could help you. Listen, it’s not gonna be easy but you need to do it. Especially if you ever want to get out”.
+I climbed the porch steps and plopped down beside Frank, leaning my back against the railing. He glanced at me, strumming a few slow chords before letting them hang in the air. “Creek treat you well?”
 
-Before I could ask what “it” was, Quentin hung up. I tried picking up the phone to keep this time, maybe try to call Quentin back, but I felt a squish in my hands when I gripped it. The “phone” was a cake. I didn’t know how to feel. I just laughed a bit. Spending all those nights studying, I never would have guessed I’d be here in this situation. It wasn’t the weird static monster or the 1 to 1 replica of my Grandpa’s neighborhood. It was the fact that I was back in the kitchen where I watched my Father cook dinner every night. Everything was how I remembered it.
+“It was nice,” I said, pulling my knees up to my chest. “Quiet.”
 
-Except for the door at the end of the hall. When I climbed the stairs to visit my old room, I saw a dirty steel door, and it was cracked open. Frozen, I must have stared at that door for what felt like hours, but in reality was a few minutes. In that time, I watched as the door slowly creaked open. Enough to have the light show off what looked like a closet with a blanket inside. The dark blue panther blanket.
+Frank nodded, still plucking at the strings. “Always is. Somethin’ peaceful about water runnin’ over rocks. Clears the head.”
 
-But when I walked forward to pick up the blanket, I felt the air die with each step. The air smelled stale, my skin prickled whenever I moved, and there was no sound. The sensation grew stronger the closer I got to the blanket Trujillo commanded me to retrieve, and when I reached for it the front of the house was sucked into a typhoon of splintered wood and ruptured metal. Then it was blown back towards me as I heard the roar of the thing that had been hunting me since I was trapped here. 
+I hesitated, staring out at the woods as the last bits of sunlight faded behind the mountains. “Do you ever hear… music out there?”
 
-I didn’t need to look back to confirm the thing’s presence, I could feel the shocking and stinging grasp of it reaching out for me. I ran towards the steel door, and rushed inside to grab the blanket. When my hand felt the soft embroidered panther, my stomach felt a jump like when you’re in a fast elevator and it starts going down. The sound outside died as the door slammed shut. When I looked up from that short moment, I was back near the couch. Miles of dirt and amber grasses with the sun rising into the sky. Worrying about the monster somehow rushing back to me, I sat down on the couch with the blanket. Another series of clicks and chimes played and when I blinked, I was somewhere new.
+His fingers paused mid-strum, just for a second, before he leaned back in his chair and adjusted one of the tuning pegs. “The mountains have a way of singin’ to all of us,” he said finally, his voice low and thoughtful. “Ain’t a one the same.”
 
-A dark forest, the only source of light being the moon and a computer sitting on a desk in front of me. This is where I’ve been for… however long I’ve been here. I can’t really tell since the moon and it’s night feel like it never moves but it doesn’t feel long. It hasn’t been long enough for my body to completely heal, I’m still sore whenever I move in any way that doesn’t involve lying down on the warm couch, and strangely enough I’m not hungry or thirsty. Neither Quentin, nor Trujillo have contacted me, and the computer only has one app.
+I frowned, turning to look at him. “What does that mean?”
 
-This app. What you’ve/I’ve been reading. A blank white page that I’ve been using to record how I got here, what I’ve been doing, and whatever else that comes to mind. In other words, I’ve been living through it a hundred, thousand, million times both awake and asleep. If I’m not asleep on the lime green couch, exploring the forest, then I’m writing here. 
+He gave me a small, knowing smile and went back to his guitar. “It means I wouldn’t lose sleep over it. Some things out here just… are.”
 
-It would be mundane but recently I’ve been losing time. Everyday (night?) I wake up, I feel like something is missing from my head. I feel like they’re important so I’ve just been writing down any and everything that I think is important. It all feels like random bullshit but I’m scared of losing everything that I am. Especially because it feels like someone is leaving me notes when I check the computer. Sometimes they’re in the middle of a sentence or they’re a whole entry by itself. 
+That didn’t exactly answer my question, but I got the sense he wasn’t going to explain any further. His music picked up again, soft and steady, leaving me alone with my thoughts and the fading light.
 
-Today’s note is the reason I’ve sat down and rewrote all of this. It was after I was writing about how I saw a light in the woods that I saw it at the end of the page. 
+I went to bed early that night, exhaustion finally catching up to me. After saying goodnight to the family, I barely had time to pull the blankets over me before sleep took hold.
 
-Herman Fabacher is alive. Don’t trust your family. Don’t trust anyone.
+But even in my dreams, the song lingered. The same eerie, delicate melody drifted through my mind, looping over and over. It wasn’t unpleasant—just strange, like a tune I almost recognized but couldn’t quite place. It followed me through the depths of sleep, threading through my thoughts like it belonged there.
+
+Then, I woke up.
+
+Cold. Damp. Uncomfortable.
+
+My body ached, and as my eyes adjusted, a deep unease settled in my stomach. The ceiling of my bedroom was gone, replaced by open sky and the dark silhouettes of trees swaying gently above me. A chill ran through me, and I realized I was lying in the grass—wet grass, my pajamas clinging to my skin from the dampness.
+
+Panic surged through my chest. I sat up too fast, my hands sinking slightly into the soft earth beneath me. My breath came out in short, uneven gasps as my mind scrambled to piece together what had happened.
+
+That’s when I heard it.
+
+The music.
+
+Not inside my head. Not in a dream.
+
+It was playing, real and close.
+
+I got up quickly, my bare feet squishing into the damp mud as I cried out, “Mom? Dad?!”
+
+The words barely left my mouth before the melody cut out.
+
+Not faded. Not drifted away. Just gone, like someone had slammed a door on it the moment I broke the silence.
+
+My breath came fast, uneven. The world around me suddenly felt too big—the towering trees, the endless dark stretching between them, the cold night air pressing against my skin. My pulse pounded in my ears, but beneath it, I started to hear something else.
+
+The rushing of water.
+
+It was faint, but steady. Familiar.
+
+I turned toward the sound, my legs shaky as I forced myself forward. The wet grass clung to my ankles, and each step sent a fresh jolt of panic through my chest. I didn’t know where I was going, not exactly, but my body moved on instinct, chasing the one thing I recognized in the dark.
+
+The creek.
+
+I stumbled down a small slope, pushing past low branches and damp undergrowth until the water came into view. And there—just ahead of me—I saw the flat, familiar rock.
+
+The same one Caleb and I had sat on just hours ago.
+
+I cried out again, my voice shaking as I spun around, trying to retrace my steps back home. “Mom? Dad?”
+
+The sound of my own voice only made the silence around me feel heavier. I turned toward the faint glow of a light in the distance—the porch light. Relief surged through me like a jolt of electricity, and I started stumbling toward it, my feet sliding against the wet grass and mud.
+
+As I got closer, I saw movement—two figures running down the steps of the porch. Uncle Frank was in the lead, his flashlight cutting through the dark as he moved with purpose, while my dad awkwardly stumbled behind him, his footing unsteady but his face full of worry.
+
+“Alex?!” my dad called out, his voice tight and breathless. “Alex, where are you?”
+
+“I’m here!” I yelled, my voice cracking. “I’m here!”
+
+Frank’s flashlight beam swung in my direction, landing on me as I froze in place, shivering and covered in mud. His face was a mix of relief and something else—something I couldn’t quite read. “Jesus Christ,” he muttered under his breath, hurrying toward me.
+
+“What the hell are you doing out here?” my dad asked as he caught up, his voice shaking almost as much as I was. He grabbed my arms, looking me over like he couldn’t believe I was standing in front of him.
+
+“I-I don’t know,” I stammered, tears welling up in my eyes. “I just… woke up here.”
+
+The woods became less comforting and more terrifying for me after that night. What once seemed peaceful and alive now felt watchful, looming. Uncle Frank started double-checking all the locks on the doors and windows every night, muttering something about how “you can’t be too careful out here.” He tried to play it off like he was just being responsible, but I could see the way he glanced at me, his lips pressed into a tight line.
+
+He didn’t have to tell me to stay inside. I wasn’t going anywhere near those trees again—not willingly. But sleep? That was a different story.
+
+I refused to lie down, refused to close my eyes. Every time I even thought about drifting off, the memory of waking up cold and lost in the grass came rushing back. So I stayed by the window instead, my knees pulled up to my chest, staring out into the dark woods.
+
+The porch light illuminated the first few rows of trees, but beyond that, it was just shadows. Shadows and the melody, still faint in the back of my mind, like it hadn’t really left.
+
+It was softer now, barely there, but it was there. Like it was waiting. Like it was calling me back.
+
+
+
+If anyone has had a similar experience please let me know. I don’t know what it was about those mountains that just send a chill down my spine anytime I think back. 
