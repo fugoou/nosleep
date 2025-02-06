@@ -1,121 +1,254 @@
-# The Audio Logs Weren’t the End—Something Else is Happening Now.
-[Part One](https://www.reddit.com/r/nosleep/s/3OtJQNOD3A)
-[Part Two](https://www.reddit.com/r/nosleep/s/zQZ6N9Uk9m)
+# Two months after my boyfriend died, I saw a crow carrying his torso.
+Jem died on prom-night. 
 
+Alone, and crumpled in the road, shattered into pieces. 
 
-The Audio Logs Weren’t the End—Something Else is Happening Now
+While I was convinced he'd stood me up. 
 
+The person who hit him swiped the ring he was going to propose to me with. 
 
-Audio Log 001: The Recorder
+*“We’re burying what we could find.”* I was told at his funeral. 
 
-[Click. A new voice—calm, cautious, but with an edge of uncertainty.]
+That's what his Mom told me. 
 
-“Uh, this is… I guess this is my first log. 
+Instead of his body, she buried his tux and shoes. 
 
-January 25th. My name’s Alex.
+We didn't have the luxury of having a body. There was no body. 
 
-I don’t even know where to start. It’s been a week since I found Nathan’s audio recorder in that cabin. I wasn’t looking for it. I was out hiking, came across the place by accident. Or maybe… maybe not.
+Jem's mom hid her agony with wide smiles and swollen eyes. 
 
-The recorder was just sitting on the table, next to a box. I didn’t open the box—I don’t know why, but I couldn’t bring myself to touch it. I just grabbed the recorder and got out of there.
+"It's okay, we can... bury his clothes!"
 
-At first, I thought this was some kind of joke. The logs, the creature, the ‘pull.’ It sounded insane. But now… now I’m not so sure. Because things have been happening. Strange things.”
+She said that's what he would have *wanted*. 
 
-[A pause. Alex exhales shakily.]
+I know Jem, and he would have wanted to be cremated. Burned to ashes. 
 
-“It started small. Weird dreams. A pressure in my chest. A feeling like I’m being watched, even when I’m alone. And the scratching… God, the scratching. I thought it was mice in the walls at first, but it’s not. It’s something else.
+Jem hated the idea of being buried underground to rot away into nothing. 
 
-I don’t know why I’m recording this. Maybe it’s to keep myself sane. Or maybe I just need proof. For when this thing finally catches up to me.”
+He once told me, if he were to ever die young, he wanted his ashes sprinkled in the sea. So he could go to Atlantis. 
 
-[Click.]
+That's what loved about him. He was a fantasy freak. 
 
-Audio Log 002: The Box
+His mother's words stuck with me, heavily, like a fucking weight on my chest. She did her best to comfort me at the funeral, but I couldn't stand the idea of burying an empty coffin.
 
-[Click. Alex’s voice is quieter, like he’s speaking in a small, enclosed space.]
+"We're burying what we they can *find*, sweetheart, and some of his clothes."
 
-“January 27th. I went back to the cabin today. I couldn’t stop thinking about the box. I know I said I didn’t open it, but… it’s like it’s been calling me. Like I had to go back.
+They couldn't FIND anything. 
 
-The cabin was just like I left it. Cold. Empty. But the box… it was different. It looked older somehow, like it had been sitting there for years instead of days. And the smell—it was faint, but it was there. Rot and ash.
+Jem was dead and gone, and whatever pieces of him left were lost. Most of him was caught around the car wheel. 
 
-I opened it this time. Inside, there was… a bone. Not like any bone I’ve ever seen. It was long and thin, carved with spirals and symbols. They were… moving. I swear to God, they were moving, twisting, crawling beneath the surface.
+Apparently, the crime scene was grisly. Blood on the road, a cruel scarlet smear stretching right across the sidewalk. 
 
-I don’t know why I took it. I didn’t mean to, but I couldn’t stop myself. It felt warm in my hand, like it was alive. I wrapped it up and brought it home. And now… now I think I’ve made a mistake.”
+Excuse me for my language, but the evil bastard who hit him didn't even care. 
 
-[A faint scratching sound is audible in the background. Alex doesn’t acknowledge it.]
+He swiped the ring Jem was going to propose to me with. 
 
-“I can’t get rid of it. I tried burning it, burying it, even throwing it in the river. It always comes back. It’s in the box again now, under my bed. And the pull—it’s stronger than ever.”
+And left him dead on the side of the road like he didn't fucking matter. 
 
-[Click.]
+Grief is weird. It hits you in waves, and emotions no longer feel like your own. 
 
-Audio Log 003: The Clearing
+I laugh, and it doesn't feel right. 
 
-[Click. Alex’s breath is labored, his voice filled with tension. Snow crunches underfoot.]
+I cry, and it feels forced. 
 
-“January 29th. I followed the tracks today. They were outside my house, leading into the woods. Same as Nathan described—long, deep, like something heavy was dragging itself through the snow.
+It's like being an alien among humans. 
 
-The tracks led me to a clearing. I think it’s the same one Nathan found. The trees are dead, the ground’s bare, and the smell… it’s worse than I imagined. Like death and chemicals, like something rotting and burning at the same time.
+I thought I was okay, and then I was hearing his favorite song, *smelling* his cologne was still clinging to my clothes and my car seats, even my own skin. 
 
-And the bones… they’re everywhere. Scattered in spirals and circles, just like Nathan said. But there’s something new.
+Then I was breaking apart all over again, overwhelmed, fucking *suffocated* with him– until I couldn't breathe.
 
-There’s a pattern carved into the ground, bigger than the others. A spiral, at least ten feet across. The dirt is black and cracked, like it’s been burned into the earth.
+I wanted to stay with him– even if he was six feet under the ground, buried in dirt and surrounded by wilting flowers. 
 
-When I got close, the buzzing started. It wasn’t a sound—it was inside me. My head, my chest, my hands. It felt like I was standing on the edge of something… huge. Something alive.
+It wasn't fair that I was alive, and he wasn't. 
 
-I ran. I didn’t want to see what was coming, but I know it’s not going to stop.”
+Every day, I was numb, and I was sick of *numb*. 
 
-[A faint hum grows louder in the background before the recording cuts off.]
+Every day had no sound. Every day was like living in a forwarding video tape, and I was the only one awake. Alive. 
 
-Audio Log 004: The Shadows
+Two months after Jem’s death, sound bled back in the form of a loud squawk. 
 
-[Click. Alex’s voice is frantic, trembling. The sound of footsteps pacing on a wooden floor is audible.]
+I was walking back from school a few days ago. I don't know what day it was.
 
-“February 1st. I can’t stay here anymore. The scratching’s getting louder. It’s on the walls, the windows, the ceiling. Last night, I saw shadows moving outside. They weren’t people. They were too tall, too thin. And they don’t walk—they… glide.
+I didn't care. Lifting my head, a crow swooped above me. I admit, I was mesmerized, smiling a little. 
 
-I’ve been keeping the lights on, but it doesn’t matter. They’re closer every time I look.
+I think that was the first time I actually felt something. 
 
-And the bone—it’s glowing now. Faint, but I can see it. The patterns are pulsing, like they’re alive. I can’t sleep. I can’t think. It’s in my head, whispering, pulling me toward the box.
+But then I glimpsed what was caught between its talons. 
 
-I think… I think it wants me to take it back to the clearing. But I’m afraid of what will happen if I do.”
+Scarlet entrails twisted in burned strips of clothing I recognized. 
 
-[A loud crash startles Alex, followed by silence. When he speaks again, his voice is barely audible.]
+What was never recovered. What his mother was still looking for. 
 
-“It’s inside. I don’t know how, but it’s inside.”
+Something snapped inside me, my legs giving way. 
 
-[The recording cuts out abruptly.]
+Jem’s tux. The one he died wearing. 
 
-Audio Log 005: The Spiral
+Another crow flew past, its beak twitching, beady eyes focused. 
 
-[Click. Alex’s voice is hollow, resigned. The faint hum from earlier logs persists in the background, growing louder as the recording progresses.]
+This time, my boyfriend’s mutilated torso was clinging between tiny talons. 
 
-“February 3rd. I… I don’t think I have much time left. The pull isn’t just a feeling anymore. It’s in my bones, like a magnet dragging me toward the clearing. I tried leaving—packed my things, got in the car—but the engine wouldn’t start. And when I looked back at the house, I saw them.
+I thought I was going to throw up. 
 
-They were standing in the trees. Watching. Waiting. I know if I run, they’ll follow me. Maybe they’ll follow me anyway.”
+My first thought was they were hungry. But it didn't matter, because they accomplished what the police couldn't. 
 
-[The sound of footsteps pacing stops, replaced by the faint creak of a chair. Alex’s voice softens.]
+The crows found him.
 
-“The bone… it’s not just a bone. It’s part of something bigger. A piece of whatever’s out there. I think it wants me to bring it back, to complete whatever it’s building. But I don’t know what happens after that.
+Before I could stop myself, I threw myself into a run. 
 
-Maybe this is how it starts. Maybe this is how it spreads.”
+I know it sounds ridiculous, but I HAD to know what was left of him, and how much of him– and if I would be able to scoop up his lost pieces and take him home.
 
-[A long pause. The hum intensifies, distorting the recording slightly. Alex’s voice drops to a whisper.]
+The crows touched down deep in the town forest. I thought it was a nest, or worse, maybe they were *eating* him. 
 
-“I’ve been seeing things. Shadows in the corners of my vision. Spirals carved into my skin when I wake up. And the worst part… the worst part is, I think I’m starting to understand the patterns.
+But to my shock, there were bodies, all of them dead kids, and among them, my boyfriend, lying in pieces half fused together, his head attached to his torso. 
 
-They’re not just carvings. They’re instructions.”
+The crows worked effortlessly, hopping across the ground, piecing Jem together like a puzzle. 
 
-[Another pause. When Alex speaks again, his voice is trembling.]
+I watched, baffled. These kids weren't recently dead. They died a while ago. 
 
-“I can’t stop it. Whatever it is, it’s already inside me.”
+Serena drowned last fall. Rowan crashed his car two years ago.
 
-[The hum grows louder, warping Alex’s voice. There’s a sharp static burst, and the recording cuts out.]
+It started to to hit me slowly, in waves of ice cold water, that the crows didn't *find* the other dead kids. 
 
-The logs end there. I found the recorder in the clearing, sitting on top of a freshly carved spiral in the dirt. There were no footprints, no sign of Alex, just the faint smell of ash and rot lingering in the air.
+When one crow pecked at Rowan's torso, pulling out stringy intestines, his body jerking, just like Jem’s, I slammed my hand over my mouth. 
 
-I took the recorder with me, but I haven’t listened to it again. Not since that first time.
+The crows *dug* them up. 
 
-The spirals started showing up a week later. On my walls. My skin. Everywhere I go, they’re waiting.
+Which means these birds actively searched for them. 
 
-I don’t know what it wants, but I know something Alex and Nathan didn’t.
+Wanted *them* specifically. 
 
-There is no escaping it.
+Serena’s face was half rotted away, maggots creeping from her nostrils. 
 
+The crows rolled her over, chirping to each other, like giving each other orders. 
 
+Rowan was more skeletal than human, and yet I watched, transfixed, as fleshy patches of feather-like skin spread across the pearly white of his skull, covering his half mutilated grimace. 
+
+When they were finished with the other two, their focus went to Jem. 
+
+He took a while. So long that my legs were aching from staying crouched, my clammy hand glued to my mouth. 
+
+When they were finished, the crows left in a flock, taking off into the sky. 
+
+They had buried Serena and Rowan in shallow graves covered in flowers and berries. 
+
+I think… I could be mistaken, but I think it was their own version of a funeral. 
+
+Jem, however, lay on his back. 
+
+Somehow, despite the grisly way he had been put back together, he was still beautiful. 
+
+I thought I was never going to see him again, and there he was, put together like a puzzle piece. I noticed he was missing an arm, and a quiet “chirp” startled me. 
+
+Next to me, a baby crow was dragging his mutilated arm. 
+
+And with perfect precision, reattached it, hopping across my boyfriend’s stomach. 
+
+It flew off when I got too close, struggling to hold myself together. 
+
+I dropped to my knees in front of him, tears choking my throat. 
+
+I could take all of him back to his mother. 
+
+I could bury him *whole*. 
+
+I scooped him up, but when he twitched in my arms, I dropped him. 
+
+“Jem?” I whispered, my trembling hands cradling his face. 
+
+His flickering eyes, lips parting in a silent cry. 
+
+He didn't move, his head slumping, but his chest was… *twitching*. 
+
+He was alive. 
+
+When I rolled him onto his back, something slimy filled my throat. 
+
+Something was *writhing* under his skin, raven black streaks running up and down his naked spine. 
+
+His body twisted and jerked, his head snapping back, congealed blood seeping from his mouth in black lumps. 
+
+I shuffled back when his spine broke through skin, splitting in two, bulging feathered appendages protruding from his back.
+
+Wings. 
+
+He was beautiful, and yet when Jem turned to me, vacant eyes, beady, almost bird-like, I found myself stepping back. 
+
+The glamour over my eyes seemed to come apart, and I saw the reality of him, a human twisted and cruelly contorted into something inhuman. 
+
+His head twitched, dead eyes staring straight through me. 
+
+I think he was trying to speak, the way his lips parted slowly, but I don't think he could. 
+
+Behind him, a single crow watched him, its head inclined, almost like it was waiting for something. 
+
+I screamed at it, told it to *shoo*, but the bird just sat there staring at me. 
+
+It wasn't frightened or intimidated. 
+
+It's almost like it was playing it's own fucked up games with me, pushing me to rush at it or try and attack the thing. 
+
+Jem didn't react when I said his name. 
+
+I don't think he even knows his name. 
+
+Instead, he turned, spread his wings, and took off into the night. 
+
+After a moment of the crow watching me, again, like it *wanted* me to do something. 
+
+Its tiny eyes flicked to a pebble, and I felt it; a sudden, overwhelming urge to grab the rock, and throw it at its head. 
+
+But I didn't. 
+
+And, like it was disappointed, it too swooped into the air, giving me last one  caw. 
+
+Days later, I was woken by ice cold air. 
+
+My window was open. 
+
+And on my pillow next to me, something was wet. 
+
+My forehead was sticky, strands of my hair glued to my cheeks. 
+
+There was a decapitated head neatly placed on my pillow. Its eyes were wide open, like they were still screaming. 
+
+Next to it, was my ring. 
+
+The following night, I woke to coins being dropped on my pillow. 
+
+Then maggots. 
+
+Human arms and legs. 
+
+I think he's giving me ‘gifts’ but I'm fucking terrified of him, and what he's turned into. 
+
+If I shut my window, he comes through the front door. 
+
+He won't stop. 
+
+I've told the authorities, but they're convinced it's some kind of animal???? 
+
+I led the sheriff back to the forest where I found the bodies of the other kids, but they're gone. 
+
+I'm terrified the same thing that happened to Jem-- whatever creature he became - - is happening to them too. 
+
+I keep hearing noises at night, loud chirping and flapping wings. 
+
+Like they're outside my house hunting me down. 
+
+It sounds like they're teasing me, waiting for the right moment. 
+
+I can hear a mix of human laughter, laced with something wrong. Bird-like. 
+
+They're outside right now. Laughing. They won't stop laughing. 
+
+Giggling. 
+
+Chittering in their own language, and sometimes I swear the birds answer. 
+
+They swoop past my window, slamming their talon-like nails on the glass. 
+
+I tried locking and bordering it up, but they just tore it down. 
+
+Please help me. How do I get Jem to stop??? Is there a way to stop them?? 
+
+Whatever my boyfriend has turned into is trying to fucking KILL me.
