@@ -1,365 +1,164 @@
-# Ribbon Man
-There was an official name for the site. The one used in all the paperwork and reports.
+# I accidentally took the wrong bag at the airport—It’s full of teeth
+Human teeth by the looks of it. 
 
+Molars, incisors, and every tooth in between. It had to be about forty pounds of teeth tightly wrapped in potato sacks inside a blue duffel bag that looked identical to mine.
 
-Unofficially, we just called it the Bramble Barrow.
+I wish I had double-checked the contents at the airport, but I was so exhausted by my flight that I just wanted to get home. 
 
+And now all my clothes, toiletries and Hawaiian souvenirs are gone, replaced by a bag that belongs to either the tooth fairy or some psychotic dentist.
 
-A couple of campers far off any beaten path had discovered it completely by chance. They'd been trying to find a way around the thick, thorny growth they'd found themselves in when one tripped over something sticking up from the ground. That something turned out to be the peak of a buried structure, which led to phone calls and police tape and, eventually, us.
+*Seriously, how the hell did this get through security?*
 
+I put on some kitchen gloves and dug around through the teeth, hoping to find some form of identification. There was nothing. Nothing but more teeth.
 
-I was part of a hybrid American/Scandinavian (leaving it intentionally vague) group of archeology grad students who, through some string pulling and a renowned department head willing to oversee us, landed the job of uncovering the site. At the time, it felt like we'd won the lottery. We'd been to numerous excavations over the years, but always as visitors, still learning the ropes. This one was going to be *ours*. The perfect final project before we graduated into full fledged archeologists.
+Then I received a text on my phone that stiffened my entire back.
 
+ **‘Where are my fucking teeth?’**
 
-The first order of business was clearing away the underbrush. There was a lot of it, a whole wirey, tangled blanket that had grown for so long, the branches had become interlocked, turning it all to one, unruly plant hellbent on fighting us off with long, bristling thorns. Because we couldn't be sure how deeply the structure was buried, or if anything of value might be scattered at varying depths around it, we were forced to contend with the bramble by hand, carefully carving our way through with chainsaws, hatchets, and machetes. We spent an equal amount of time clearing the plants and pulling stinging thorns from ourselves. The clothes we wore didn't matter; they had a nasty habit of finding their way down to flesh.
+I was more confused than ever. Was the person who expected this bag seriously texting this phone right now? How did they get my number?
 
+Instinctively, I looked around my empty apartment, threatened by the message. But of course, the only movement was my own reflection on the balcony glass.
 
-Eventually we hit barren soil and the digging could begin. What started as a peak oh-so-gradually formed into the stone frame of a barrow opening.
+Then my phone recieved a picture of an open blue duffel bag. Inside was my red summer shorts, along with my surfboard keyring and tiki mask magnet. *They have my stuff.*
 
+**‘You have our teeth. And we know who you are.’**
 
-Or what should have been an opening.
+There came another picture of a crumpled form I filled out to go scuba diving. It was left in the outer pocket of my duffel bag. My name was listed. My address. Even my phone number.
 
+*Oh shit.*
 
-Where we expected to find a door, there was only a wall of solid stone. 
+Then I received a call from an unknown caller. I put the phone on the ground and let it ring out. Each ring sent a buzz through my hardwood floor, and a shiver up to my neck.
 
+Another text: **‘We know where you live. Give us the teeth.’**
 
-“What do you make of this?” Pierce, another American I'd known since our first year of university, beckoned me over to the portion of the barrow he'd been working on.
+Terrible scenarios flooded my mind. Men wearing balaclavas bursting through the door with army boots and pointing their gleaming knives at my face. Zap straps tightening around my feet and hands, cutting off all circulation. Days of being locked in a cargo container and having to suck the moisture from filthy puddles for sustenance…
 
+*Okay, relax, relax. Chill.* I had a habit of watching too much true crime.
 
-I followed his pointing finger to a symbol carved deeply into a rock. It resembled a hook with a trio of lines scored across it and a circle around its straight end. 
+I ran through the options, they all seemed like imperfect solutions.
 
+1.) I could call the police … but I didn’t know if they could help me. They would have no idea who this tooth person is either. I doubt they would put me in witness protection based on a few texts.
 
-“I'm not sure. I don't think I've seen this before.”
+2.) I could go stay at a hotel in a different town… But how long would I have to wait? They know where I live. They could visit at any time. I’d be living in danger…
 
+Before I could stop myself, I texted back.
 
-“That's about to change really quickly.”
+**'This was an accident. I’ll give you back the bag. I didn’t mean to take it’**
 
+I stayed there, kneeling by the tooth-bag, waiting for a reply. 
 
-He waved his hand up and down the wall, showcasing the same symbol etched over and over again across the stones.
+**‘You will drop the bag at** \[redacted\] **park. There is a wooden bench on the south end dedicated to the firehall. You will place the bag beneath there at 10:00pm.’**
 
+I breathed a sigh of relief. Instructions. Clean and simple. That park was across from my apartment. I could do that no problem. 
 
-We called over one of the Scandinavian crew members, Inka, we knew to have a special interest in runes and religious symbols, but even she didn't immediately recognize it and took photos to look it up once we were back on campus.
+Another text: **'And you must add one of your front teeth.’**
 
+My throat tightened. *What?*
 
-It took weeks of painstaking labor, but we eventually uncovered the whole of the Bramble Barrow’s entrance and could finally begin chipping our way to its interior. 
+I quickly texted back. ‘**What do you mean?’**
 
+**‘Because of your interference. A price must be paid. One of your front teeth’**
 
-There are certain grave goods we expect to find in a tomb like this: weapons, remnants of fur and linen, bones from sacrificed animals, whatever the deceased needed to make their way in the afterlife. We quickly deduced this particular person had either been incredibly frugal and those that buried him respected that lifestyle in death, or he'd been denied even the bare necessities. The latter didn't make much sense since a burial place such as this was usually reserved for respected members of Viking society, but all we found when we first glimpsed the inner chamber was a raised stone platform upon which lay its sole, shroud-wrapped inhabitant and a collection of sealed pottery.
+*They can’t be serious.*
 
+I stood up and closed the blinds on my balcony, paranoid that someone can see me. I had typed the single word ‘Why?’ but never hit send.
 
-“More symbols all over, especially around the body,” Pierce said, breaking the tomb's centuries old silence.
+*How could they even know if I added a tooth in or not? There were thousands of teeth in that bag.*
 
+I lightly touched my two front teeth, so firmly panted in the roof of my mouth. *How would I even pull a tooth out?*
 
-“I see Mjolnir repeated from here, along with elhaz and uruz,” Inka said. “Protection, mostly. A warrior, maybe?”
+\*\*\*
 
+Arriving around 9:30 pm, the park was pretty cold. Most nights it snowed this time of year, but luckily it had been pretty dry for a while, so I didn't need to wear too many layers.
 
-I shrugged, intrigued and excited. “Let's get some more light in here and find out.”
+The bench dedicated to the firehall was easy to find, and I shoved the tooth-bag directly beneath it with a paper note on top: ‘Sorry about the mix up.”
 
+I sat on the bench for a little bit, pretending to look at my phone. There was an old man out for a walk through the park, and a young couple with their dog. I didn't want them to think I was dropping off a bomb or drugs or something, so I stuck around for a bit and smoked a single cigarette.
 
-***
+One cigarette turned to three. Then four. I couldn't help myself, I was nervous.
 
+*Would they know I didn't add my teeth?*
 
-We called him Ribbon Man. 
+After considering it back and forth in the apartment, I left my front teeth alone. If they really wanted some extra teeth, I figured I could stop by a dental office on a later date and get them all the teeth they wanted. I just couldn't bring myself to grab a wrench, and pry perfectly healthy teeth out of my own mouth.
 
+At 9:53, the park emptied out and it started to get freezing. It was my cue to exit.
 
-Not immediately, but after we saw him for what he was.
+I took one last drag, exhaled a large plume of smoke and I saw it contour around the edges of a … *strange, unseeable shape.*
 
+It was really odd. 
 
-He was extremely well preserved, wisps of his pale hair peeking out from beneath his shroud, which covered all of him except his sunken face, which retained its eyelashes, sparse and fine, but still there on his closed lids. His visible skin, though dehydrated and fragile, was intact, giving a very rough approximation of who he'd once been.
+It felt like there was something *invisible* standing only inches away.
 
+As I tried to move forward, a bone-like *hand* found my throat. Two yellow eyes appeared, floating in the air.
 
-We left him in his original burial wrapping, which we realized was painted with more of the hooks, runes, and Thor's famous hammer, and carefully prepared him for the long journey back to campus. 
+“Filthy liar. You didn't add your pain.” 
 
+“wha—?”
 
-Half of our group remained on site to continue the dig while the rest of us accompanied the deceased to the lab, where we could barely contain our excitement. The odds of finding such a specimen were astronomically against us, yet here we were, sitting around a discovery upon which we could stake our names and build our careers. What previously unknown secrets might we unveil? What could he tell us about his society? About himself? I stared at the crate containing him all the way back to the city.
+The powerful grip lifted me by the throat. I brought my hands down against a wiry, invisible arm.
 
+“Each tooth remembers." The voice came as a seething whisper. "Every tooth retains the *pain* from when it was pulled.”
 
-I had the honor of peeling the shroud with a surgeon's care from his body. One layer, two, three. Thirteen. Every one decorated with the same symbols. It had been affixed tightly around him, like a baby's swaddling, Pierce said, if the mother was tired of hearing it cry. Not a description I would have used myself, but he wasn't wrong.
+My assailant lifted me a whole foot above the ground. I couldn't breathe.
 
+“Lord Foul needs his shipment of pain. *You* delayed it.”
 
-Finally I reached the last layer. 
+“Please!” I tried to say, but could only make a choking sound. *“GHhhk! Ack!”*
 
+The entity dropped me to the ground.
 
-I unwound it from around his head, revealing a thin braid of blonde hair. My colleagues rolled him gently to and fro, allowing me to reveal more and more of him. 
+I inhaled and immediately tried to crawl away, but an invisible knee pinned me down.
 
+“And now, you must top off the pain with a fresh *garnish.”*
 
-Laid out before us, fully nude and without any ornamentation, we saw them. The thin cuts running up and down his leathery skin. It was unlike anything any of us, including our department head who was supervising, had ever seen.
+ Two invisible hands forced their way into my mouth and pried open my jaw. I tried to fight back, to close my mouth, but it was no use. This entity, whatever it was, had incredible strength.
 
+“A fresh dollop of *pain* will rejuvenate the supply.”
 
-“It's all very uniform,” Inka said, leaning in so close her respirator almost touched the arm she was studying. “It must be ceremonial.”
+M two frontmost teeth (my ‘buck-teeth’), were effortlessly bent outward, and snapped off. I shrieked from the pain. Tears streamed instantly.
 
+“That's for stealing our bag.”
 
-“An empty chamber and sliced up skin,” I mused aloud. “Maybe he was a sacrifice?”
+As if my teeth were the tabs on a soda can, the entity began to bend each one outward. All my upper front teeth. Then my lower. One by one.
 
+“That's for lying. 
 
-“The edge there is curled,” Inka pointed out. “It looks like…like it can be peeled back?”
+“That's for screaming. 
 
+“That's for being fucking irritating.”
 
-We debated briefly before I took the tweezers from my sterile tray. We agreed if there was any resistance, I would stop immediately, but the skin was all too ready to come away the moment I gave it the tiniest, most cautious tug. It unfurled into a strip, still attached at the underside of the arm.
+My gums became a fountain of blood. The pain in my mouth was catastrophic—each nerve ending raw and on fire. I tried to scream for help, but the knee on my chest weighed down harder. Soon I could barely make a sound.
 
+The hands plucked out all my bent, broken teeth like a series of pull tabs. *Pwick! Pwick! Pwick!*
 
-Like a piece of weathered, ancient parchment, the interior was scrawled over with black runes.
+“Lord Foul will be most pleased.”
 
+The bony fingers travelled further into my mouth. Sharp nails dug beneath my molars, *and pulled.*
 
-We traded mystified frowns. Our supervisor took the tweezers, ushered me aside, and began peeling skin as I had the shroud.
+The last thing I remember was looking up and seeing the yellow eyes stare back at me. 
 
+Two glowing moons from hell.
 
-By the time he was finished, the corpse's skin looked like so many ribbons stretched out around it. 
+\*\*\*
 
+\*\*\*
 
-“What do they say?” Pierce asked softly. 
+\*\*\*
 
+I almost bled to death that night.
 
-Not even our supervisor, an expert in the Viking Era and fluent in its language, could say. 
+Thankfully someone found me passed out in the park and called an ambulance, which took me into a hospital, where I recovered for six days straight.
 
+My mouth was a wreck. Every single tooth ripped out. Every. Single. One. There were half-inch wounds all over the roof *and* floor of my mouth. No conventional dentures would even fit in my desiccated gums. 
 
-We stayed late into the night, documenting everything we could, trading theories, determining who we might call for insight. I don't recall who coined the name, but it took no time at all before we were calling him “Ribbon Man”. It was exhilarating and exhausting and, by the time we were forced from the lab, my head was swimming. 
+It took 3 months of visiting the dentist to slowly reconstruct what was destroyed. And even now, I still have to wear two different sets of dentures. One for daytime (which allowed me to carefully chew food), and one for night time (which slowly bent my fucked gums back into place).
 
+I have no idea what the hell attacked me that night. I don't really want to think about it.  Or about what happened to that duffel bag full of teeth. 
 
-All the way back to my apartment, I thought of the Ribbon Man and his partially flayed flesh. The messages contained within. Instead of providing answers, every new discovery only deepened the mystery. Questions burst like fireworks in my mind, but instead of fading, they hung in the air, bright and burning, overlapping into an indecipherable jumble. I doubted right up until my head hit the pillow that I would get any sleep. 
+I’ve since moved cities, as you might expect. In fact, I no longer live in the US. I’ve moved far away.
 
+Most importantly, I bought a custom built suitcase off the internet with zebra stripes. I’ve pinned bright yellow plastic stars all over, and many other identifiers too. it might look like a tacky eye sore, but I’ll never confuse it for someone else's bag.
 
-It came immediately, but it was shallow, and while hovering between awake and sleep, the shadows at the foot of my bed seemed to shift into a sunken face with bottomless black sockets. In my daze, uncertain, but nervous to the point of goosebumps, I curled my legs slowly toward me, trying to determine if the dark was playing further tricks on me or if there really were long, bony fingers curling around my footboard. Grave-cold air swirled up my legs, chilling me even through my blankets, and I lurched for my light, only to reveal my small studio apartment as it always was, and me its only inhabitant. I scoffed at myself for allowing my excitement to bring Ribbon Man home with me.
+If you're ever at the airport and you recognize my bag from this story, I give you permission to come up and say hi. I make it a point to try and meet friendly people, and move forward with my life.  Who knows, if you catch me in the right mood, I may even show you my removable teeth.
 
-
-Despite such a poor night's rest, I was up at dawn and eager to return to campus to continue unraveling the Ribbon Man.
-
-
-“Hey, you ok?” Pierce asked when he joined me an hour later, cup of coffee from a nearby shop in hand.
-
-
-“Fine, just didn't get much sleep.”
-
-
-“Ok, but what's that have to do with your leg?”
-
-
-“My leg?” I looked down to see splotches of red standing out brightly against the light fabric of my pants. I tugged the cuff up to see a shallow cut seeping along my ankle. “Shit, must have snagged it on something. I was in a rush this morning and wasn't paying attention to much of anything except getting back here. Didn't even notice.”
-
-
-“Need a bandaid?”
-
-
-“It looks like it's stopped bleeding. I'll just clean it up after I finish cataloging these pictures.”
-
-
-It was easy to forget about something so trivial when there was so much to get done in the day ahead. There were samples to be taken, x-rays to perform, and endless write ups to muscle through. I loved every minute of it to the point of obsession.
-
-
-To the point I was still working after everyone else went home. 
-
-
-I hardly noticed how quiet the lab became once I was on my own. My Walkman was keeping me company while I studied results of some tests we'd run on fibers pulled from Ribbon Man.
-
-
-The first brush of cold air across the back of my neck, exactly like the one that had crept over me in my bed, was shaken off a stray breeze from a fan left on in one of the offices.
-
-
-The second, close enough to disturb my hair, made me tear my headphones off and spin on my stool. 
-
-
-The lab was empty except for me and Ribbon Man.
-
-
-He was on the table, same as always, tendrils of skin spread out like a grisly flower in bloom. I shook my head, suddenly overtaken by a yawn, and stood to stretch. I hadn't realized how stiff I'd become, bunched up on my stool. 
-
-
-“Guess I should get going,” I said aloud, growing uncomfortably aware of the silence surrounding me.
-
-
-The lab seemed bigger when I was the only one in it. The lights, harsher against the tile floors and avocado green metal cabinets. Though it made me feel silly to do so, I hurriedly put away my files and grabbed my Walkman to leave, only to jerk to a halt as I passed Ribbon Man.
-
-
-One of the petals of flesh, all of which had been covered in runes, was blank. 
-
-
-More disturbing, Ribbon Man's lids were open, revealing vacant, black sockets.
-
-
-The walk back to my apartment gave me time to talk myself down from the panic that had seemed so imminent in the lab. A change in air pressure could explain the relaxing lids. It was possible not *every* strip of skin had writing on it, I'd just been fixated on those that did. It all seemed fairly obvious out in the clear night with cars trundling by and lights glowing in so many windows. Since when was I the superstitious sort? I’d been on numerous excavations and examined more than one corpse; none of it had ever bothered me. I was just glad no one had been there to see me spook myself. 
-
-
-Sleep that night was more tenuous than the one before. I tossed and turned, dreams spinning relentlessly through my head. *He* was in all of them, standing in my room, his skin hanging like swishing ribbons from his body. His footsteps were slow and stiff as he approached my bed, like he could barely get his legs to shuffle forward. He leaned over me like I had leaned over him, his ribbons dangling across my face as his empty gaze bored into me.
-
-
-I froze, limbs stretched and stiff, muscles taut and heart pounding in my ears.
-
-
-I couldn't move as he staggered to my leg and took hold of my ankle, a prisoner to him or perhaps only sheer terror. I couldn't scream as he tilted his head back and reached into his gaping mouth, extracting a narrow blade from deep in his throat between his thumb and forefinger. I couldn't do anything at all as he cut along my flesh and peeled it in strips up to my knee.
-
-
-He hunched low over my carved leg. With the same knife, he pierced his desiccated tongue through and used the blood (blood that he shouldn't have had in his body) dripping from its tip to begin drawing runes upon the inside of my flayed skin. When he was done, he spat a thick, foul smelling wad on the flesh and folded it back into place.
-
-
-I woke with a short scream that almost hit the same pitch as the telephone ringing from the kitchen. The sun bleeding through my blinds told me exactly who was calling. I must not have set my alarm or, in my weariness, I'd shut it off when it rang, and now I was late. 
-
-
-I barely gave myself time to pull on my clothes before bolting out the door.
-
-
-The lab was empty when I arrived, and it was only then I remembered the press conference regarding our find. The rest of the team must have gone without me, unable to wait any longer. I sank on to my stool, head throbbing, eyes dry, mouth full of cotton. Worst was the incessant sting up and down my leg, though when I looked, it appeared to be fine. I attributed it to bug bites and resolved to look for bed bugs when I got home.
-
-
-My dreams must have been interpreting the bites in the most nightmarish way possible, I told myself, and grabbed the top most file left on the increasingly precarious pile. 
-
-
-My colleagues had gotten work done while I was sleeping off my nightmares. The most recent document added was a facsimile from a linguistic expert who recognized the strange text as a cypher based on Elder Futhark, the ancient runic alphabet. The research into its use and full translation were incomplete and, as such, the help she could provide was limited.
-
-
-She noted references to a transfer or trade, though she couldn't determine what the subject was. She recognized patterns often found in religious contexts, but the exact meanings were a work in progress. Her overall summation was that the text was ceremonial in nature with indications toward some kind of death or burial ritual, but she couldn't be certain beyond that.
-
-
-Her notes obviously mentioned Ribbon Man as the source, but they continued, stating no other finding bore the same markings. Curious as to what she was referring to, I flipped the page to a list of the pottery discovered alongside him in the Bramble Barrow.
-
-
-I'd forgotten all about it.
-
-
-A chill dragged along the back of my neck. My skin prickled.
-
-
-I turned the page again, to the grainy, black and white photos attached with exhibit numbers.
-
-
-A pottery jar in each photo, and beside them, stretched out with careful precision and held in place along the furled edges with specimen pins, was skin. Human skin. Intact, retaining the shape of the body they'd been cut from, but every few inches, it was cut into strips, like ribbons.
-
-
-An unfolded flap showed it free of any cyphered text.
-
-
-She concluded by saying the runes upon the door, walls, and shroud were protection and wards – svefnthorn, what I had thought of as a hook, was a symbol used to imbue sleep upon an enemy, Mjolnir, the hammer wielded by Thor, protector of humanity – and their placement indicated they were being used to keep something *in*, not out.
-
-
-I sank on to the stool, flipping back and forth between the Ribbon Man report, the pottery, the symbols. There was a nagging thought at the back of my mind, one I couldn't immediately identify, but that was growing from a whisper to a roar.
-
-
-I stared at the photo of the Ribbon Man, far less detailed on paper than he was on the table behind me, then at the skin found within the pottery.
-
-
-*Transfer or trade*
-
-
-*Death or burial*
-
-
-*Keeping something in, not out*
-
-
-I could hardly swallow past the fear lodged as a lump in my throat as the roar took shape into an impossible terror.
-
-
-It was only the dreams making me so irrational, I tried to tell myself. I was connecting dots that weren't there.
-
-
-But the more I tried to dispel this insane notion that was coming together inside me, the more my leg ached with a fiery, stinging pain, until I threw the reports aside and stood, fingers clenched in my hair. I paced in a limping, zigzagging line, each one bringing me closer to Ribbon Man. I stopped next to his table, gripping its edge and muttering at how crazy I was becoming. What this obsession was doing to me.
-
-
-I was just overtired. The nightmares were taking a toll.
-
-
-I'd been working too much, going from the field where conditions were always rough straight to endless hours in the lab.
-
-
-I was–
-
-
-A row of the Ribbon Man's strips of skin were unmarked, plain flesh. 
-
-
-“No,” I uttered, touching them bare handedly, suddenly unaware of protocol and preservation. “There was….there was text. There weren't this many blank!”
-
-
-His empty sockets stared upward, abyssal black and bottomless.
-
-
-In the corner of his mouth, caught in the deep crease around his withered lips, was a dried speck of something thick and dark. 
-
-
-I reeled back, yanking up my pant leg. There was no way. It was only a nightmare! My leg was fine! I propped it up on the stool and ran my fingers over my shin. It was normal, completely fine….
-
-
-My nail caught.
-
-
-The skin pulled.
-
-
-The slice was so fine, I almost didn't see it, even with the tip of my pinky nail wedged in it.
-
-
-I looked at the Ribbon Man, lying still and staring, then at my leg.
-
-
-I bit down on a bunched up towel to muffle my screams when I made the first incision, following the guideline already laid out in my skin. It took some searching, but I found a second only inches away. The room had dropped to an icy cold temperature, but sweat poured down my face and back. I gasped, panting into the towel, tears spilling down my cheeks, and cut again.
-
-
-Nausea hit first when I pinched the tattered edges, the lines no longer precise and so clean as to be invisible. Then my vision dotted with stars and I thought I might pass out. I swayed, leaning heavily against the counter beside me, and swallowed hard. Bile fumes filled my mouth.
-
-
-I peeled.
-
-
-Dark runes were etched on the inside of my flesh.
-
-
-*Transfer or trade*
-
-
-The words from the report repeated over and over again. 
-
-
-*He* was doing this to me. 
-
-
-The blank, ribboned skin found in the pottery flashed through my mind.
-
-
-He'd done it before. Until he was caught. Until he was sealed with his prior victims in the Bramble Barrow.
-
-
-Until we tore through everything meant to stop us, all the warnings, and freed him.
-
-
-My stomach boiled almost to the tipping point. I gagged, head pounding with my erratic heartbeat. 
-
-
-What he was, whatever was *in* him, wanted out. 
-
-
-I couldn't let it.
-
-
-There was no muffling my screams when I hacked off the skin of my leg, revealing muscle and tendon beneath and spilling pools of blood across the tiles. Clutching the marked strips of my own body, I hauled myself to my feet, intent on finding matches or a lighter. Anything I could use to destroy the Ribbon Man.
-
-
-“Good God!”
-
-
-Someone caught me under my arms and I was suddenly looking up at my department head's face, drawn into a horrified frown. Behind him, my fellow students fanned out in a concerned, whispering line.
-
-
-“Let me go!” I struggled against his grip, weak with blood loss. “We have to burn him!”
-
-
-“What have you done to yourself?”
-
-
-“Call an ambulance!”
-
-
-“Is that…skin?”
-
-
-Their voices were too loud, yet strangely distant. I shook my head, still fighting, and waved the strips of my skin overhead.
-
-
-“Look! He's alive! He was trying to possess me!”
-
-
-Their confused, scared expressions made no sense. Couldn't they see the writing? Wasn't it clear?
-
-
-I looked at the flesh clutched in my fist, ready to spread it out like parchment for them, but I found there was nothing to show. No ink. No runes. Only torn skin. I whirled, dragging my department head with me.
-
-
-Ribbon Man lay on the table, eyes closed, ribbons spread all around. Every one of them covered in runes.
+As far as I know, I’m the only 27 year old with full blown grandma [dentures.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
