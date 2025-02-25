@@ -1,327 +1,176 @@
-# I Found A Defunct National Park, There's A Tree There That Sounds Like A Wounded Animal - Part 1
-Part 1
+# My friends and I tried a ritual we found on Reddit. I think it worked.
+Did you ever have an imaginary friend? Chances are good that you did, even if you don’t remember it. The statistics say about 65% of all kids do, and that it usually lasts for a couple of months. My mom claims I had mine for almost two years. I think his name was Dale. Or Dane? He was really good at marbles, the way I usually wished I was, and he knew all the best hiding places when my brother and I played hide-and-seek. He was my best friend in first grade, but until Cat showed us the ritual, I hadn’t thought about him in years.
 
+Of course it was Cat who found the ritual. She’s always lurking on r/paranormal and r/threekings. Joel and I aren’t quite as into creepy shit, but Cat’s been our friend since elementary school. She’s a good friend, weird interests and all. Also, a total badass at COD. 
 
+She’d been after us for months to do one of her rituals, but most of the things she found just seemed silly or dangerous. What is the point of locking yourself in a dark room with a mirror? If you stare into it long enough, of course you’re going to see something. And if you get a bunch of people together and go stumbling around in the dark, someone’s going to get hurt. We tried to tell her we didn’t want to do the rituals, but she persisted. Cat’s like that. She doesn’t really take no for an answer.
 
-As it turns out, there are actually multiple defunct national parks in the US. You won’t find their names or locations on the surface of the internet, or in virtually any tangible archives available to the public. I just happened to be in the right place, and at the right time, to find one for myself.
+On Friday, she showed up at Joel’s house with a sheaf of papers clutched in her hand. We were sitting around, playing some Madden, when she started banging on the door like she was there to serve a warrant. She was practically vibrating when we opened the door. I took a step back, but she shoved the papers into my hands before I realized what she was doing.
 
+“Look, Remy! I found a ritual you guys can actually do. Nothing dangerous, nothing stupid. This is the one.”  Joel started to protest, but Cat was already pushing past him into the house. She sprawled on the couch, so far back that her sandals dangled a couple of inches off the floor. Her foster parents don’t let her shave her legs, but I caught Joel checking her out anyway. He’s always kind of had a thing for her, but Cat’s totally oblivious to that kind of stuff. “Just read it.”
 
+Joel squinted at the printout. “Ritual for Summoning Your Imaginary Friend,” he read, shaking his head. “Regain your creativity, your innocence, and your power… Give me that.”
 
-My parents inherited a few acres of land in central Kentucky when my grandmother passed. Apparently, it’s been in the family for some six or so generations. I can vaguely remember going there as a small kid. I remembered the basic landscape: uneven, filled with deep, narrow valleys and rocky outcroppings everywhere. And in the center of the property was a hill where was a small, almost rotting cabin where my grandparents lived. In fact, the one time we went up there when I was a kid was to help replace some of the beams and add on to the back for extra space. My grandparents were always protective of that house, so it took several years to convince them to have the repairs done. I wouldn’t be surprised if it hadn’t seen any kind of serious maintenance in 90 years or so. 
+He snatched the papers, but I had my eyes on Cat. She was jittering on the couch like an over-caffeinated kid on Christmas Eve. Her brown eyes were shining with excitement and she kept messing with her hair, twisting one strand around her finger and flipping it from one side of her part to the other. “See? It’s perfect.”
 
+“What is this ritual supposed to do, exactly?” I put my hand out for the papers, but Joel was still reading. He yanked the ritual away from me and slumped down on the couch next to Cat, flipping to the next page.
 
+“It says we have to finish the ritual three minutes to sunset, and if we do it correctly our imaginary friends will appear. There’s a whole list of stuff we need…” His voice trailed off as he ran his finger down the list. 
 
-Now, as a grown adult, I get that familiar feeling that I get when visiting other places from my childhood. Everything felt so much bigger back then, and now the cabin looks so much smaller: a plain, rectangular building made from cross-linked timber and caulked with concrete, no larger than the living room in my own house. 
+“Yeah?” Cat prompted him. Bounce, bounce.
 
+“Water, a watch, childhood photographs. I think I have most of this stuff.” He frowned at something on the page. “What’s the salt for?”
 
+I stared at him. “You’re not actually considering this one?”
 
-That day, I went there to help my parents extract the old family records, which my grandmother insisted on keeping in the loft of the cabin, despite the threat of humidity damage. The loft was one place that my grandparents, understandably, forbade me from going. As I stood there, I remembered that janky ladder made from tree limbs leading through a trapdoor and up to the storage space above. Of course, the first thing we did was replace the ladder with one we brought with us from the nearest hardware store. 
+“Why not?” Joel shrugged, and Cat broke into a big, sunny smile. I did a double-take; Cat doesn’t smile much. Her front teeth are crooked, and no matter what we tell her she’s always been self-conscious about it. “It doesn’t look dangerous.  We just lay out this stuff and invite our childhood friends to return.”
 
+I threw myself back into Joel’s old recliner, wincing as the mechanism inside squealed warningly. “For what purpose? I mean, I can get behind wanting to reconnect with part of your childhood, but what good does it do to summon your imaginary friend?”
 
+Joel closed the packet and handed the papers over to me. He looked at Cat for a long time before he answered, and when he finally did it seemed like he was talking more to her than to me. “I was a really happy kid,” he said. “I wouldn’t mind getting that back. Levi and I used to have all kinds of adventures in my dad’s house.”
 
-Then, climbing up to the loft, we found at least ten plastic tubs containing all manner of documents, photos, and memorabilia from the past hundred years or so. Most of these were fairly mundane. The first artifact I picked up was a tax document from 1940, then a coin labeled 1927. But one thing in particular caught my eye in the midst of the piles of history.
+“Yes!” Cat clapped her hands and threw her legs over Joel’s. “Come on, Remy. There has to be something about your childhood that you wouldn’t mind getting back. The ritual says we can ask our childhood friends questions, and that sometimes they’ll give us a gift if we ask nicely.”
 
+ *If we ask nicely*. Like something was out there, deciding whether or not we were worthy. I shivered. Then I looked at the two of them and thought about it. Really thought about it, the way I suspected neither of them had actually done. Cat was right, I did have some questions. And… What was the worst that could happen? Neither Joel nor I was any stranger to making fools of ourselves. And it would be pretty badass to see Dane again, even if it was only imaginary.
 
+I looked up. Cat beamed at me. She was thrilled that Joel was in. I sighed. “Fine. What do we need to do?”
 
- It was a small black-and-white photograph, smaller than the palm of my hand. The image featured a white wooden sign driven into the ground by two large timber beams, with two older vehicles surrounding a shed in the background, with a line of trees behind that. 
+Setting up for the ritual was simple. We had to split up to get the childhood photographs, but everyone found one. Joel found this great picture of him with his hair in microbraids. When we finished laughing about it, he put it into the circle with Cat’s third grade dance recital snapshot and the picture of me in my youth soccer uniform. I hoped we weren’t going to have to burn the pictures. I looked like an idiot in that uniform, but my mom would be big mad if the picture went up in flames.
 
+“Focus, you guys.” Cat’s eyes were so wide and bright I almost suspected she was on something. She’d told us to focus about a dozen times now, but Joel and I weren’t taking it seriously. We should have.
 
+“Yeah, Remy.” Joel poked me with the bundle of sage. “Stop fooling around. This is important to Cat.”
 
-The sign was painted with bold black letters: 
+I brandished the salt shaker. “I’m over here doing my job! You were the one horsing around!”
 
+“Stop it!” Cat had both hands on her hips, her eyes flashing. “I really need this to go right, you guys.”
 
+I yawned, righting the salt shaker and sidestepping Joel as he tried to poke me again. “Why is this so important to you, kitty-Cat?”
 
-Crying Tree National Park
+She rolled her eyes at the nickname- or maybe at my question. “This is the first time you idiots have actually agreed to help me with one of these. And besides, I really want to see Friend again. He was the only one I had after my parents died.”
 
+We both fell quiet at that. Cat doesn’t talk about her childhood much. She moved to town the year we all turned nine, and we’ve been best friends ever since. So much so, in fact, that we tend to forget she wasn’t always with us. I could tell Joel wanted to make a snarky comment about Friend’s name, but he kept his mouth shut. Who knew what old memories it might drag up?
 
+Cat lit the sage and offered it to me. “Remy, you go first.”
 
-I had never heard of this national park before, but the landscape was unmistakable: a meadow clearing in the midst of dense forest, the kind that you find every now and again out in the woods of central Kentucky. After staring at the image, analyzing every detail for a solid minute or two, I flipped the image over, revealing a label written in faded pencil:
+“Why me?” I didn’t reach for the sage. I wasn’t ready to participate in this ridiculousness until one of the others went first. But Cat wasn’t going to give me a choice.
 
+Cat smiled, inscrutable, and pointed to something in the printout. “You’re the oldest by six days, right? It has to be you.”
 
+“Ugh, fine.” I took a breath and spoke the words, feeling ridiculous. Nothing happened. No flicker in the air, no shapes in the dim candlelight. Just silence.
 
-Gray Road Entrance to Crying Tree - May 1, 1925
+I almost felt relieved. If something had happened, I would have had to face it. This way, I could still pretend the ritual was bullshit.
 
+Then, with a wet hissing noise, the candle went out. 
 
+“Wind.” Joel spoke quickly, striking a match. But there was no wind. The windows were closed. And for a second, I had the awful feeling something had just made a decision about me.
 
-I slipped the photograph into my coat pocket to investigate later. I spent the next hour or so sorting through more mundane legal documents and trinkets, the meaning and sentiment of which have long been forgotten. At the bottom of my second box, there was an old, weathered folding map. The front of the flyer displayed the familiar title: 
+The flame stood straight and bright once more as Cat handed the smoking bundle of sage to Joel. The candlelight stretched as he spoke the ritual words. At first, I thought it was a trick of the light, but then I saw it: thin, dark, barely there.
 
+A little boy, about seven years old, with a shock of white hair and big pupiless blue eyes. Not quite standing. Not quite moving. Just there, staring at Joel with something like recognition.
 
+“Levi?” Joel’s voice cracked, but he didn’t ask a question. He didn’t wait. “I- I dismiss you!”
 
-Crying Tree National Park Map
+The shadow flickered, and then it was gone. Joel let out a breath that was almost a sob.
 
+“Why did you do that?” Cat surged to her feet, knocking over the salt shaker. “You didn’t even ask him anything! He looked at you, Joel!”
 
+She wasn’t just mad. She was hurt. Like he’d thrown away something she’d been working on for years.
 
-At the bottom, there was a copyright indicator telling me that the map came from the same year: 1925. Upon unfolding the map, I found a familiar road map on the far left, showing Elizabethtown, KY to the west, with streets running north and south of the park, Colesburg Road to the north, and Gray Road to the south. To the right of the road map was a magnified version, showing individual landmarks and trails throughout the park. The area was fairly small, at least by comparison to nearby national parks like Mammoth Cave. 
+Joel was still breathing hard when Cat snatched the sage from him, her fingers gripping it so tightly her knuckles went white. The moment she sat back down, the candle flames trembled; not flickering, not bending in the air, just shivering like something unseen had pressed too close.
 
+A thick weight settled over the room, heavy and suffocating like we were being buried in something invisible. Like the air had been replaced with something denser, something that wanted to be inside our lungs. Joel and I exchanged a look, and I knew he was feeling it too.
 
+Cat didn’t hesitate. She lifted her chin, her voice steady, the words spilling from her like she’d practiced them a hundred times.
 
-There was an information building and a parking lot, leading to three different trails. One of these led from the parking lot to the center of the park, where there was a single point labeled ‘The Crying Tree’. After examining the other extraneous details of the map, I flipped to the back, where there was a short script explaining the significance of the tree:
+“Friend, beloved of Cat, I invite you back.”
 
+The candlelight lurched sideways. The shadows stretched, pooling unnaturally beneath Cat’s filthy sandals. I swallowed hard.
 
+The room *tilted*.
 
-*The Crying Tree of Kentucky has stood as a wonder of nature* 
+Not physically. But suddenly, the floor didn’t feel stable. The walls were too far away, stretching back into a darkness that hadn’t been there before. Joel’s hand shot out, gripping my arm.
 
-*among the hills and hollers of this beautiful state since time* 
+“Friend,” Cat repeated, and she smiled. A real, soft, relieved smile. “Come back to me, beloved.”
 
-*immemorial. It was discovered by brothers Oliver and Gregory*
+Something slid into the circle.
 
-*Hasting all the way back in 1830 when hunting on the vast* 
+Not appeared; slid.
 
-*landscape surrounding their cabin home. They supposedly* 
+I don’t know how to describe it. At first it was just wrong air, a smear of space that shouldn’t exist. And then it was there. Not fully formed, but real enough that I could feel my stomach trying to fold in on itself just from looking at it.
 
-*mistook it for the screeching of a wounded elk, only to find* 
+It was too tall. Where Levi had been a shadow, flickering and vague, this thing was solid. A thick, sinewy shape, hunched and waiting. I didn’t want to look at its face, but my eyes kept pulling towards it, like my own mind wanted to confirm the thing it refused to process.
 
-*themselves at the base of this magnificent organism. It*
+It was smiling. Too many teeth, in too many places.
 
-*remains a mystery as to the purpose of the tree’s cry, or*
+I sucked in a sharp breath. Joel made a noise low in his throat, but Cat just beamed.
 
-*exactly how long it’s been there. It’s speculated, though,*
+“See, Remy?” Her voice was barely a whisper. Reverent. “It works. He came back.”
 
-*that the tree is related to the native Shawnee tribe’s* 
+As she spoke, the thing moved toward her. A twitch, a jerk, like something shifting under its skin. Like it was learning how to wear its own shape again. Its limbs cracked as it reached for her.
 
-*long-standing tradition of restless tree-spirits.*
+Joel grabbed my wrist again. “Nope. Nope nope nope *nope*.”
 
+“Cat,”I whispered, barely able to get the words out. “We should stop.”
 
+But she didn’t look scared, and she didn’t say the words to dismiss the monster. She looked happy. 
 
-Gregory Hasting…that was a name I remembered. It was my grandmother’s great-great-grandfather. She spoke about him quite a bit actually, like a family patriarch, but she never said a word about the tree or the park or anything like that. And not to mention, something this…strange…how could I have never heard of it before? I mean, I’m a pretty avid hiker, and I love going to National Parks, even several times a year, but this…this was entirely new to me.
+Joel yanked hard on my arm, and for the first time, Cat’s expression sharpened. “Go,” she snapped. The candles flared. The shadow at her feet reached.
 
+“I’ll finish the ritual alone.” The words sent a spike of cold fear through my guts.
 
+The room didn’t feel right anymore; it felt *claimed*. Joel and I bolted.
 
-That night, I opened the map on my laptop and searched for ‘Crying Tree National Park’. When it loaded…there was nothing. I looked at the area specified on the flyer, and there was nothing there but open forest with small roads winding through. I tried googling the name…I just got redirected to Joshua Tree National Park out in California. I tried every combination of relevant terms that came to mind, ‘Crying Tree’, ‘Kentucky Crying Tree’, ‘Tree that makes crying noise’...nothing. I searched every nature-lover forum imaginable, asking if anyone had heard of this place. Most people who responded had never heard of such a place, even suggesting that I had fallen victim to some kind of elaborate and niche prank. 
+I walked home alone. Joel didn’t say anything when we reached the intersection near his house. He just turned and left, hands jammed deep in his hoodie pockets.
 
+I didn’t blame him.
 
+The night felt too quiet. The streetlights buzzed overhead, and somewhere far off, a dog barked once before cutting off, like it had thought better of making noise.
 
-But there was one person…a user called Harbinger237 on a small forum that will remain anonymous to respect their privacy. This user was the first to reply to my query on this particular forum. 
+I wasn’t sure I was breathing right. My chest felt tight, my stomach knotted. I didn’t even want to look at the shadows pooling in the alleyways I passed. Didn’t want to think about how they stretched wrong back at Cat’s house. How they moved.
 
+Cat was still there. With *it*. Friend.
 
+I almost went back a dozen times, but I couldn’t. Instead I charged upstairs to my room, threw myself on my bed, and threw my arm over my eyes. I couldn’t process what had happened to us. How did everything get so screwed up?
 
-He simply stated, “Probably a defunct np, there’s actually several places like that.” 
+My phone buzzed next to me on the bed, and I glanced at the screen. 
 
 
 
-Indeed, I knew there were some areas that were once national parks, but were later revoked. But a place like this, that seemingly never existed, was still definitely a first. I shared that thought with Harbinger, who promptly responded with, 
+Joel \[11:42pm\]: Dude. Don’t answer Cat.
 
+If she texts you, don’t answer.
 
+Something’s wrong.
 
-“This is a different category. These weren’t just revoked from np status, they were deliberately buried. Forgotten. Whatever records you found, they’re likely the only ones still in existence.”
+She came over acting weird. I don’t think it’s her.
 
 
 
-Skeptical, I retorted with, “Okay? How would you know about them, then?” 
+The phone buzzed in my hand as I read the last message: another text, this time from Cat.
 
 
 
-Harbinger responded, “Forums like this one. You’re not the first to find evidence of these kinds of parks. At the current time, I’ve collected sufficient evidence for 14 such places, now including yours.” 
+Cat \[11:43pm\]: Joel’s being so weird lol.
 
+Wouldn’t even let me in.
 
+I’m coming to you instead.
 
-I probed further, “Can you give any examples of such a place?’
+Be there soon :)
 
 
 
-Harbinger replied, “There’s a reason these places were buried.”
+I stared at my phone, pulse hammering against my ribs. My fingers felt stiff, heavy. I wanted to believe Joel was overreacting. That Cat was just messing with us. That we were all just—
 
+Something shifted. A creak of wood.
 
+Under the bed.
 
-At that, a sharp chill ran up my back and shoulders in spite of my skepticism. Frustrated, I ended that chain of replies and closed my laptop for the night. As I laid in bed that night, I stayed up just thinking about the whole thing. Honestly, I thought Harbinger’s idea was ridiculous. Just some wacko conspiracy theorist who had one too many joints that fine evening. That aside, in the pit of my stomach, in the very core of my being, I knew something was very, very wrong. Just my possession of the artifacts truly felt like eating of the forbidden fruit, or something along those lines. 
+"Remy… don’t trust them." A voice. Small. Familiar. Too close. Like someone was curled beneath my bed, their mouth an inch from my ear.
 
+I stopped breathing. The air in my lungs turned solid.
 
+Then, from the darkness below, something rolled out and bumped against my foot.
 
-I knew in my very bones that I ought to have ended my search then and there…but I didn’t. The way I saw it, this place, this tree, was practically my family’s forgotten legacy. To leave it alone, in my mind, would have been a disservice to those who came before me. How wrong I was. I should have heard my ancestors, practically screaming from their graves to forget it, but I didn’t. I made up my mind to go to the location on the folding map the very next day.
-
-
-
-Early the next morning, I made the half-hour drive to the side of Gray Road, almost exactly where the road to the south entrance should have been. The whole area was overgrown with trees and shrubs, thick even in winter, and no sign of a path anywhere. Grabbing my pack of standard hiking gear, I locked my car and trudged into the dense treeline. Honestly, I didn’t care if it was private property or not at the time. I guess I was too blinded by curiosity to think too deeply about that. In any case, it was close enough to the family land that I could plausibly claim that I got lost, at least that’s what I told myself. 
-
-
-
-For the next three hours, I hiked north, in and out of canyons and across shallow ridgelines. It was probably only a mile-and-a-half hike in reality, but the incline made it feel like ten. As I approached the area where the park entrance should have been, I found a familiar clearing…the one from the photo. But like with the not-road where I parked my car, there was absolutely no sign that the area had even so much been touched by mankind. 
-
-
-
-For this very purpose, I brought a pocket metal detector and a trowel, hoping to find some remnant of the former settlement. I covered what I believed to be the general locations of the old sign and the shed, and got not a single hit. Over the ensuing hours, I searched nearly the entire clearing and found, again, absolutely nothing. I had expected to find something, even if modern, like a shotgun shell, an empty can…something. But there was still no sign that this area had ever been developed. 
-
-
-
-It almost felt like hallowed ground, a place which could not, would not, see corruption by our species within its premises. As such, I felt like a stranger there, an intruder in a holy place. I wanted to run, and as I was about to turn back to make the trip toward my car, that’s when I saw it. Off in the tree line to the north, there was a game trail. Obviously not made by humans, but still well-used and clearly leading to somewhere important to the woodland creatures who made it. 
-
-
-
-That’s when I made the single worst decision in my life…I followed the trail back into the woods. The actual trail itself was maybe a few inches wide and clearly made by deer having trotted through there for many generations. 
-
-
-
-It seemed to go on for miles along this relatively flat woodland plane, until about halfway through my trip when I found the first sign of any human development since the day began. If I had blinked a second too late, I’d have probably missed it. It was a simple wooden post with a small metal placard with the logo of the National Park Service printed on it, as well as the words ‘Land Boundary’. I felt my stomach drop. This place was real? And what’s more, the sign looked brand new. 
-
-
-
-Hands shaking, I took a picture of the post and continued on. Past the sign, the land visibly began to dip. Subtly at first, but then becoming a deep hole in the ground about half a mile in. At this point, I was effectively climbing down the cliffs in a spiral motion around the hole, and it got warmer. I still don’t fully know why, but it felt like a nice spring day down in the hole. 
-
-
-
-My nerves started to ease as I approached the solid ground beneath me, but I was still terrified by looking up above me and seeing the sheer height I had climbed down from without any gear and without having told anyone where I was. In all probability, if I had been injured there, nobody would have found me in time
-
-
-
-Inexplicably, the game trail continued from its ending a few hundred feet above at the bottom of the sinkhole. Now I could clearly see another sign of human activity: a six-foot tall wooden fence, painted black. The game trail ended at the edge of the fence, and circled around its circumference, which appeared more well trod than the rest of the game trail, like animals had been just circling around the fence over and over for days on end.
-
-
-
-And, upon closer inspection, there were. Thousands of ants, interspersed with beetles, wasps, and even a lizard or two making their twisted, symbiotic death march around the fence. And the smell hit me all at once. It smelled like goats, like a barn with farm animals, and it only became stronger as I climbed over the wooden fence and trudged forward. As soon as I landed on the other side of the veil, my head immediately began pounding, like I was suddenly plunged to the crushing pressures of the deep ocean. Looking up, I saw it at long last…the Crying Tree. 
-
-
-
-It was still fairly small, but there was no way I could be mistaken about it. It was by far the strangest organism I had ever laid my eyes on. Its bark looked like large fingernails, giving it an unnaturally smooth, plated exterior. It was clear to me that the smell was coming from whatever viscous sap was oozing from underneath the bark-plates. I covered my mouth and nose with my coat to keep my stomach steady enough to investigate further. 
-
-
-
-It branched off toward the top like a tree, but in the wrong ways. Its branches twisted at unnaturally sharp angles, almost like a monkey’s limbs. But what really stood out to me is how it twitched. 
-
-
-
-Subtly, almost imperceivably, the limbs twitched against the direction of the wind, like an octopus getting electrocuted. I stood mesmerized, trying to make sense of what I was seeing when I realized something: it wasn’t making any sounds whatsoever. Even the movements it made, it moved without so much as a crunch. 
-
-
-
-It was like it was trying to become a tree, but got confused and became this grotesque, branching obelisk. At that moment, I felt something I had never felt before in the depths of my heart. It was like a homogenized blend of nostalgia, inspiration, awe…perhaps infatuation? The thought went through my mind: this is it. This is my family legacy, it’s like the tree and I were fated to meet long before my birth.
-
-
-
-Without even thinking about it, I stepped forward, toward the tree. Then another…and another. I don’t think I blinked for the entire time I was walking, and started involuntarily grinning as I approached. Before I knew it, I was mere inches from the tree, all my senses numbed by its presence. 
-
-
-
-All at once, I placed my right palm on the sticky-smooth surface of the tree, and it tensed up like a cat’s skin when it doesn’t want to be pet. And, immediately, the tree let out the most blood-chilling scream I had heard in my entire life. Indeed, it was like an elk or caribou call, but its tone shifted and modulated up and down, like it was trying to speak, but using an elk’s voice. It repeated the same warbled pattern over and over:
-
-
-
-“Waaaooouukh…Nēaoaaaah…Waaaooouukh…Nēaoaaaah”
-
-
-
-I stood there in my trance until well after the sun went down, then I collapsed, feeling a surge of…electricity, possibly?  I became unconscious, and with time tuned out the wailing of the tree so I could hear my own thoughts. What insanity would lead someone…anyone…to bring this thing to public attention, much less make a national park out of it? It wasn’t a wonder of nature, it was an abomination, an amalgamation of countless traits of hundreds of creatures…a mockery. That’s what it was. 
-
-
-
-Like a twisted divinity, standing in the midst of God’s good, green Earth…and laughing at Him. How could anyone stand to share the same land–no–the same *planet* as this thing? In my insanity, I wanted it all to end. Right then…right there. I begged a God who was ever silent to my pleas to take me away from this thing…this world…just so I didn’t have to spend another moment with that unholy being. 
-
-
-
-And in a moment…I was back in my car on the side of Gray Road. I didn’t remember the trip back, but the aches in my muscles told me enough about that part of things. I wondered for a moment if I had hallucinated, but in the deepest core of my being, something had broken, irreparably, and that was enough for me to know that what I went through was very, very real.
-
-
-
-For the rest of my life, I would hear the tree’s crying playing in the back of my mind. But not like a memory…more like a telegraph, like it was continuing to attempt to torment me, consciously. All the way back to my home in Elizabethtown: 
-
-
-
-“Waaaooouukh…Nēaoaaaah…Waaaooouukh…Nēaoaaaah” 
-
-
-
-As I drove, I began to know things. Not like visions, or voices, but deeper than that. Thoughts, ideas, memories that became evident to me through means I could not even begin to understand. 
-
-
-
-The wailings I continued to hear, they caused me to remember something from the deepest annals of time. Someone had tried to teach that thing to speak. When this land was young, when the Shawnee lived here, someone taught it those two accursed words, if they *are* words.
-
-
-
-Small bits of information like this entered my mind on a regular basis throughout the drive home. The realizations hit me such that I nearly wrecked at least five times on that drive alone. After an eternity in my mind, I arrived back at my house, remembering little from the drive itself. And upon entering my room my mind went calm. It had probably been at least twelve hours since I had that level of calm in my head. I just laid there in my bed until late in the afternoon out of the physical and mental exhaustion of the previous day. Throughout that time, the words in the back of my head softened, but never stopped, like waves against the seashore, each time bringing with them new meaning that I could only begin to know how to process. 
-
-
-
-But in the midst of the noise, I managed to find one thought of my own to bring me back down to reality: Harbinger. Of course, there’s no way they *wouldn’t* know *something* about what was going on. So, still feeble and shaking, I opened my laptop on the other side of my dark bedroom. 
-
-
-
-The forum page was still open, but upon scrolling through the page, yesterday’s thread was gone. No ‘this thread has been deleted’ notification…nothing. It was just gone. I scrolled through the forum for hours, thread after thread, looking for any sign of the user Harbinger237. Under a random thread about aquatic fungi, I found the user. It was a single comment, agreeing with another user about some piece of niche information about a fungal species. I clicked on his nametag and sent him a private message. 
-
-
-
-I typed away, frantically, but with caution, “Harbinger237, this is the guest user from yesterday, the one asking about Crying Tree National Park. I went to the location on the map. Tell me what you know about the tree, or whatever that thing is. I trust you know what I’m talking about.”
-
-
-
-They responded within a few minutes, “I guess that makes idiots of the both of us. So can you see the Titan now? I trust you know what I’m talking about.”
-
-
-
-“The Titan?” I responded
-
-
-
-“Is it night where you are?” Harbinger asked
-
-
-
-“Yeah, why?”
-
-
-
-“Look out your window. To the west.”
-
-
-
-I just sat there stunned, trying to understand what I was reading. I thought there couldn’t be any harm in following his instructions. Nobody could see me, anyway. Cautiously, I went to the window in my room, which faced roughly northwest. I stood there stalling in front of the window, the parts of the brain that were still my own screaming at me to keep the shutters closed. To forget everything, but I knew I had long passed the point of no return, and had to follow this road to the end. That was the only way forward I could see that involved me staying alive. 
-
-
-
-Grabbing the painted wooden lever, and pulling it down, I gazed out into the distance, and saw exactly what he was talking about. There was a silhouette off in the distance, one so massive that it covered most of my view of the sky, the lower half of it’s torso falling behind the curvature of the Earth. It was dimly lit by the light of the set sun, like the moon, but no one else below seemed to notice it. It had a thin frame with no discernible details, save two dots, or perhaps singularities, or something like that–I don’t know—on its head that I assumed were its eyes. 
-
-
-
-And it was staring at me.
-
-
-
-Now that I was aware of it, even when I turned away from it in disbelief, I could still feel its gaze. Through walls, through space and time, it seemed that nothing could separate me from its long, dispassionate gaze. It felt like ice piercing my body constantly. That’s how I knew it was watching me. 
-
-
-
-In morbid curiosity, I took a double take, and this time stared at it for as long as I could bear it. Still, I could discern no details, but behind it…as I allowed my eyes to adjust, I saw that behind the one most prominent, there were hundreds, thousands, uncountable hosts of them stretching out into the distance and filling the endless void. 
-
-
-
-And the stars were gone…and also the planets and the moon with them. I couldn’t understand what I was seeing, but I thought I knew at least that, somehow, the cosmos was gone, replaced by this divine assembly of unknowable giants that only I and Harbinger, apparently, could see.
-
-
-
-And something else broke inside of me. I always loved space, but all in a moment, my fundamental understanding of what that even is was broken. In desperation, I ran back to the laptop, trying to shut what I had seen out of my mind, and typed to Harbinger:
-
-
-
-“What are those things? What do they have to do with the tree? What’s going on? Is this some kind of alternate universe? I’m losing my mind! Please, just tell me!”
-
-
-
-He responded, vague as ever, “They call themselves the Powers, actually. If you listen closely, they will tell you what you need to know. But I can at least assure you of this: you’re in the same universe you’ve always been in. You and I just see on different spectrums than the rest.”
-
-
-
-At this point, I knew I’d had enough. I knew if I took one more step down this road, my mind would break, and there’s no way that kind of life would be worth living. I closed my tabs and performed a hard reboot on my laptop in an effort to remove any trace of information about the Crying Tree. And it worked. I went to bed at around 2:00 AM and tried to live my life normally from that point forward. 
-
-
-
-I just took it one day at a time. I went to my job as a software developer the next day. It was actually the first time I had been in-person at the office in several months. I knew that this kind of human interaction would be important if I was to forget about the events of the past three days. The following week, I met up with a psychiatrist and tried explaining my symptoms in a way that made it sound like I had Schizophrenia, and it worked. The doctor prescribed me Olanzapine, which admittedly did help a bit with the tree’s voice in the back of my head, and with the help of the medication, I learned to tune it out entirely with time. As for the Powers, I just triple-covered my windows with blinds and blankets and I never went out at night. Yeah, I’ve had to make some pretty dumb excuses on that front.
-
-
-
-Although I tried to forget, there was no way I could manage that level of recovery, I could only learn to cope with my strange new reality. And I had some time to think about the park, and ask myself why something like that could have happened. I’m not going to pretend that I have an answer for that. But I do completely understand now why it was buried and forgotten. It has nothing to do with government cover ups or conspiracy theories or the like. It’s simply a human response to the unnatural. No human being could possibly come into contact with that thing and bear to remember it. 
-
-
-
-For a whole year I lived my normal, mundane life, and even found a girlfriend, Karah. My world became more beautiful after the incident, so maybe, in some messed up way, my encounter with the Crying Tree was for the better. Perhaps it was the thing that pushed me to get back into society and truly live life. 
-
-
-
-At least, that’s what I thought…until the tree suddenly spoke in breathy, monotonous English, only once:
-
-
-
-“Come back to the window. We miss you.”
-
-
-
-End Part 1
-
+A marble.
