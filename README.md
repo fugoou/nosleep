@@ -1,35 +1,174 @@
-# I think someone’s watching me outside my window: Update 2
-Sorry for the late update, everyone, but last night was by far the scariest night I have ever experienced. Like last time, I will start from the beginning. 
+# There's Something in the Vent
+This is a recollection of events I need to get off my chest. There’s no one close to me anymore. Since becoming an adult, I moved to Georgia and lost touch with everyone back home. I haven’t made many friends here either–at least, no one close enough to take me seriously. Maybe this is the best place to let it all out. No judgment. No one to laugh at me or call me an idiot.
 
-Before I start, thank everyone who commented on how I should protect myself. 
+So, here it goes.
 
-For weapons, my boyfriend Anthony has an old shotgun from his grandfather. The downside is that I have never shot one before and can’t find any of my boyfriend’s shells. But I do have a metal softball bat! I did order a security camera on Amazon; they should come in tomorrow afternoon. 
-I closed all my house curtains so no one could see inside. 
+I used to live in a rural part of Arkansas, surrounded by nothing but dirt, fields, and woods. The nearest supermarket was more than thirty minutes away, and at most, there was a rundown quick-mart stationed between the two locations. My father ran a farm, so we lived on an expansive plot of land. The house was two stories, and the top floor had big windows overlooking the fields.
 
-Here’s Todays update. The night I noticed the man in my yard, I called the police, and the officers came to my house. They looked around but didn’t see anything out of the ordinary. It’s been snowing in Utah, and they said if anyone were watching me, there would prints in the snow. They consoled me and said everything was alright and I was probably imagining things. One officer said, “You’re probably just feeling lonely and paranoid and seeing things that aren’t there.” 
+My aunt lived with us. Along with my grandfather. He wasn’t doing well–his mind was slipping away, and Alzheimer’s had taken hold. He often didn’t remember who we were… it was hard.
 
-I felt so dumb for even calling them. They didn’t find anything, which made me feel crazy. I really thought I saw someone. The last thing they told me was to call them if anything else happened, and they would get out to me when they could. Some help they were. 
+My aunt and I clung to each other. Despite being my father’s younger sister, she was only a couple of years older than me. My grandfather had “run around” a lot in his younger days. As for my dad, he was battling an addiction with alcohol, though, if I’m being honest, wasn’t a battle he was winning. Still, I tried to be hopeful.
 
-I woke up this morning feeling unrested. I tossed and turned all night, and I couldn’t get to sleep. I just felt this sense of unease, like someone was standing outside my bedroom window. I hate feeling like this in my own home. 
+Those years were rough, and I think that made my aunt and me more susceptible to the things we endured that summer. We were just kids–only 14 and 16. We were scared of everything.
 
-Work was even worse. I work at a local coffee shop, and I just couldn’t focus. My whole shift, I just felt like I would see that man again. Anytime someone walked in with a hood on, it made my heart race. I messed up orders all day, giving people the wrong coffee or overcharging customers. My manager had to pull me off the register and have me just take inventory in the back. It was just one of those work days that you just want to go home and cry. 
+It didn’t help that we spent our free time watching satirical horror videos or staying up late playing scary games. We fed into our paranoia, willingly or not.
 
-When I got home around 7 p.m., all I could think about was taking a hot shower and curling up in bed. And that’s where it all started. While I was washing my hair, I heard a faint knocking. I jumped a bit but figured it was just my A/c kicking on. It always makes a loud knocking sound.
+The house was old and creaky, with wooden panels lining the exterior and matching walls inside. It was big–big enough for my aunt and me to deem ‘hide-and-seek’ worthy, even at our age. We did a lot of childish stuff like that.
 
-Then I heard it again. I paused and listened closer, and that’s when it happened. The sound became louder and more rapid. Someone was banging on my door so hard I thought it was going to bust down. I was so scared I almost fell out of the shower. I jumped out, threw on my robe, and grabbed my bat. 
+The night it all started, we were up late, as usual. It was around 2 AM. We had been binging storytime videos on YouTube and were in the middle of an ‘adult coloring sheet contest.’ Then, that feeling crept in–the kind that makes your blood run cold, the hairs on your arms stand.
 
-Tears running down my face, I pressed up against my door and said, “LEAVE ME ALONE. I HAVE A GUN, AND I WILL USE IT!” But they just kept banging and kicking my door. 
+It felt as if we were being watched.
 
-Now I know what you all are going to say: I should have called the police right away. Unfortunately, I wasn’t thinking straight, and everything was happening so fast. Out of panic, I called the one person in the world who always kept me safe: Anthony. 
+Figuring it was only paranoia stemming from playing Until Dawn earlier that night, we brushed it off. Maybe that was all it was, but no matter how much we reasoned with ourselves, we couldn’t shake the feeling.
 
-The phone dialed, and all I was thinking was, "Pick up, pick up, pick up." But there was no answer, but something strange did happen. In all the panic, for a split second, I thought I heard my boyfriend’s ringtone through the door…. But as soon as I heard it, his phone went to voicemail. Then, all of a sudden, the banging had stopped.
+Sitting at the rounded table, with my aunt directly beside me, I quickly glanced at the vent behind me.
 
-I was in hysterical and in tears. I thought that man would have busted my door and done god knows what to me. I called the police, and they came as soon as they could. They did the same thing, looked around, asked the neighbors if they saw anything, and looked for any clue on who it could have been. But nothing, just like the night before. They told me again if I was in any physical or immediate danger, to call them first, not my boyfriend. 
+“I feel like someone’s watching us.. From the vent.”
 
-I shook my head, too tired and scared to talk anymore. I just wanted this all to be over. There was one thing I couldn’t shake…. Did I really hear my boyfriend’s ringtone? 
+My aunt snapped her head toward me, her voice exasperated. “Bro, WHY would you say that?” The color drained from her face.
 
-It couldn’t be that he was gone for work, and I would’ve noticed his car if he had returned. Could he be pecking me? If he is, that’s fucked, and I don’t think I can stay with someone that can be so cruel. 
+Tossing all rationality out the window, we decided the best course of action was to start taping our coloring sheets over the upstairs vents. 
 
-I’m freaking out now, guys, and I don’t know what to do anymore. I don’t want to leave my home. Even if this man knows where I live, I still feel safer than if I were staying at a hotel. At least now my neighbors know to keep an eye out. If I were to get a hotel, I would truly be alone. 
+Then, just like that, the feeling lifted–like we had somehow sealed away whatever was watching us. The coloring sheets stayed up for days until my dad found them and took them down, thinking we were just being goofy.
 
-It’s late, and I need to sleep. I’ll keep all of you updated if anything else happens. 
+By then, the strange feeling had faded, and life went back to normal.
+
+Or so we had led ourselves to believe.
+
+–
+
+The next occurrence was while playing hide and seek.
+
+The house was full of good hiding spots like small nooks and crawl spaces–just big enough to squeeze into if you tried hard enough.
+
+It was my turn to hide. I went downstairs to the pantry closet. My usual spot was on a large wooden pantry shelf, where I’d stack cans in front of myself to stay hidden. But I wanted to change it up. We had played so many times that my usual hiding places were too predictable.
+
+That's when I saw it.
+
+A medium-sized air vent behind one of the shelves. It had just enough space that I could crawl in–maybe even some room to spare.
+
+It’s probably worth mentioning that we would only play hide-and-seek in the dark.
+
+Unlatching the vent, I crawled in, carefully replacing the cover behind me. The space was cramped but manageable. I felt a surge of pride. There was no way she would find me here. To add on–it was pitch black inside, making it even easier to stay hidden. I held my breath and listened.
+
+The countdown ended. Footsteps echoed through the house, doors opening and closing. Then the sound drew closer.
+
+I stayed perfectly still.
+
+A soft glow trickled through the cracks of the door as she peered in. I could just barely see her eyes scanning the room. 
+
+She stood there momentarily, directly in front of me–the vent. And from my curled up position, she looked taller than usual–looming. As she turned to leave I could see her hesitate.
+
+Slowly, she knelt down and snapped the vent latch shut.
+
+I held my breath.
+
+A wave of panic hit me. Was she messing with me? Did she actually not know I was in here?
+
+She walked away and I let out a shaky exhale.
+
+I stayed curled up in the vent, convinced she was bluffing. But then it dawned on me–it had been over twenty minutes. A terrible realization sank in.
+
+She wasn’t coming back.
+
+She didn’t know I was in here.
+
+I pressed my palms flat against the vent, pushing on the metal. There was no give. As I tried to maneuver myself around, I quickly discovered it was impossible to exert enough strength to make it budge.
+
+And then I felt it.
+
+A presence.
+
+Something watching–staring at me.
+
+Every bit of air left my lungs. My stomach twisted into tight knots. Slowly, I shifted my eyes to the side.
+
+Darkness.
+
+I craned my neck, looking over my shoulder. More darkness.
+
+Except for a faint glint–light reflecting off of *something’s* eyes.
+
+They shifted rapidly, darting from side to side.
+
+Panic surged through me as I frantically clawed and shoved against the vent, throwing my weight into it with all my strength. But I was wedged in too tightly. My body screamed at me to push harder, but no matter how much I struggled, it wouldn’t budge.
+
+A breath–warm and slow–pools out, dense and damp, creeping around my neck like unseen fingers that linger too long.
+
+A shrill cry tore from my throat. 
+
+My limbs burned, metal biting into my skin as I clawed frantically, “Help! The vent–pantry–I’m stuck!” 
+
+A skittering shuffle closed in behind me. The thing shifted, creeping closer. Its presence coiled around me, suffocating–its breath, hotter than before, tinged with the stench of rot.
+
+Suddenly, the door flung open. I could see the silhouette of my aunt as she knelt down, fumbling with the vent latch.
+
+And then–light, feathered footsteps scurried away, retreating deeper into the vents, carrying its putrid scent with it.
+
+I bolted out, gasping, trembling. “Something–something was in there. It was watching me, breathing–I swear I felt it breathing!” 
+
+She paled, “You’re lying–tell me you’re lying.”
+
+“I’m not.” I gasped out, clutching my chest.
+
+Her face twisted–fear, denial, something desperate clawing at the edges of her expression. She swallowed hard, but it did nothing to steady her shaking hands that she balled into fists.
+
+That night, we covered the pantry vent with coloring sheets and swore never to go near it again.
+
+We tried–desperately–to rationalize it. Maybe the darkness was playing tricks on us. Maybe we had let fear take control, let paranoia consume us. But deep down, we knew the truth.
+
+We never played hide and seek again.
+
+–
+
+A few weeks had passed. Nothing out of the ordinary happened. But I still felt it–watching.
+
+I would wake up multiple times throughout the night, convinced I saw eyes staring at me. I’d force myself to sleep, telling myself it wasn’t real.
+
+Until *that* night.
+
+I woke up needing to use the bathroom. Most nights, we went together–but it was late, and my aunt was fast asleep. Guilt gnawed at me, so I didn’t wake her. 
+
+Instead, I stood in the doorway, staring into the dark, forcing myself to move. I shook my hands at my sides, trying to shake off the nerves, then took a step forward.
+
+The moment my foot passed the threshold, it landed on something.
+
+A crinkle sounded beneath my foot–sharp, sudden. 
+
+I looked down, squinting my eyes to make out the foreign object.
+
+A coloring sheet.
+
+The one from the pantry vent.
+
+I froze.
+
+The hairs on the back of my neck stood, and a cold sweat broke out across my skin, heavy and suffocating. Terror gripped me, paralyzing every muscle as the air seemed to thicken, pressing in around me.
+
+I knew if I looked up, I’d meet its gaze–those eyes, burning into me like a predator’s. In that instant, I knew I was its prey. My body went into fight-or-flight mode, and I squeezed my eyes shut, spinning around and running without a second thought.
+
+Thud.
+
+Then, darkness.
+
+Slowly, my eyes fluttered open, the cold metal biting into my skin. Reluctantly, I raised my head, every muscle in my body taut with fear. The heavy silence loomed around me, suffocating and thick. My breath caught in my throat as I scanned the cramped space.
+
+I was inside the vent.
+
+–
+
+Everything you’re reading–it’s all journal entries. My therapist suggested I start writing things down, a way to process the trauma without having to say it out loud. I didn’t tell her everything and kept most details vague, which more than likely was obvious.
+
+At first, it helped. More than I had initially expected. But then I started writing about that summer. About the thing I saw in the vent.
+
+And that’s when it started again.
+
+Even now, as I write this, I can feel it. Watching. Waiting. 
+
+I’ve gathered all my entries, but I’m not sure what good they’ll truly do–for me, or anyone else. 
+
+I don’t think I have much time left.
+
+So, I decided to leave. I’m burning everything, the journals, the house–every trace of this nightmare. Every word that has acknowledged this creature.
+
+Silence doesn’t mean I’m gone. It means I have a chance to survive.
