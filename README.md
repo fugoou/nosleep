@@ -1,138 +1,254 @@
-# I bought an old doll as a birthday gift. Now it's speaking to me and it knows the truth. (Final Part)
-[Previous](https://www.reddit.com/r/nosleep/comments/1ibl5q2/i_bought_an_old_doll_as_a_birthday_gift_now_its/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+# My best friend is immortal now i am too.
+I’ve known Adrian for years.  
 
-The flames licked at the shelves around Ruby, casting an eerie orange glow across her porcelain face. Her eyes seemed to glow with an inner fire as she stared at me intently. I felt rooted to the spot, unable to look away from her piercing gaze.
+We met in college, bonding over a shared love of bad horror movies and late-night diner runs, and we never really lost touch. Adrian was the kind of friend you could call at 2 a.m. with a stupid question, and he’d answer like it was the most normal thing in the world.  
 
-"Well?" Ruby demanded, her voice echoing in my mind. "I am waiting."
+But lately, something about Adrian seemed... off.  
 
-I glanced frantically at the shopkeeper, hoping she would intervene, but she had backed away to the far corner of the store. Her eyes were wide with fear as she watched the scene unfold.
+It started small. He never seemed to age. While I agonized over new wrinkles in the mirror and my increasingly creaky knees, Adrian stayed the same—smooth skin, bright eyes, the same youthful energy he’d had at twenty-five.  
 
-"I...I don't think that's a good idea," I stammered. "The shopkeeper said you two shouldn't be together. It's dangerous."
+Then there were the stories.  
 
-Ruby's eyes never changed, yet I could feel the barely suppressed anger in them as the flames around her surged higher.
+Adrian always told these wild, detailed tales about places he’d been and things he’d seen—ancient ruins, long-lost cities, wars fought centuries ago. At first, I thought he was just a history buff. But the way he talked about it... it was too vivid, too personal.  
 
-"Dangerous for who? The liars? The ones she knows have the worst intentions? I bet she would say that, she says she knows what is best for us, but she always separates us. She always tells us to sit still to not talk to people, to be patient and someone will come along and take us. Well the last time I did that , she sold Matilda and left me.”
+Like he’d actually been there.  
 
-I knew I had little choice. I nodded shakily, feeling concerned and hopeless in the matter.
+The truth came out during one of our usual late-night hangouts.  
 
-"Okay, okay. I'll take you to Matilda. Just...please don't burn the place down."
+Adrian had invited me over, promising to cook dinner. We’d been joking about something stupid—a meme, maybe—when I asked a throwaway question.  
 
-I glanced at the shopkeeper and she was caught between surveying the damage and looking concerned about Ruby. I caught her eye and she looked grateful, but also a bit helpless as to what to do about the situation.
+“You ever wish you could go back in time?”  
 
-When I looked back at her, Ruby's expression softened slightly, though the flames continued to dance around her.
+He froze, his hand hovering over a wine glass. For a moment, he didn’t answer. Then he let out a short, humorless laugh.  
 
-"Good. You made the right choice. Now pick me up and let's go."
+“I don’t need to,” he said quietly.  
 
-With trembling hands, I reached out and grasped Ruby. Despite the fire surrounding her, she felt cool to the touch. As soon as I lifted her from the shelf, the flames extinguished themselves, leaving behind scorched wood and melted plastic.
+“What do you mean?” I asked, frowning.  
 
-I turned to the shopkeeper, who was still pressed against the far wall.
+Adrian turned to face me, his expression unreadable. “I’ve already been there.”  
 
-"I'm sorry," I said weakly.
+I laughed, thinking it was a joke. But the look on his face stopped me cold.  
 
-She shook her head, a grim expression on her face. "It's not your fault. Just...be careful. And good luck. You're going to need it."
+He wasn’t joking.  
 
-I clutched Ruby tightly as I made my way out of the antique shop, my heart pounding in my chest. The bell above the door jangled discordantly as I pushed it open, stepping out into the crisp morning air. The normalcy of the quiet street felt surreal after what I had just witnessed inside.
+“I’m older than you think,” Adrian said, his voice steady but heavy, like the weight of his words was crushing him. “A lot older.”  
 
-As I walked to my car, I could feel Ruby's presence intensely, like a barely contained inferno. Her porcelain body remained cool, but there was an unnatural warmth radiating from her that made the hairs on my arms stand on end. I fumbled with my keys, nearly dropping them before managing to unlock the car door.
+I stared at him, waiting for the punchline. It never came.  
 
-"Careful now," Ruby's voice echoed in my mind, tinged with amusement. "We wouldn't want any accidents, would we?"
+“How old?” I asked, my voice barely a whisper.  
 
-I placed her gently on the passenger seat, noting how the faded yellow of her dress seemed to be unaffected by the fiery aura she radiated.
+He hesitated, then met my gaze. “About a thousand years.”  
 
-I couldn't help but question how someone could have taken this doll home without realizing there was something strange about her. She seemed like a ticking time bomb, waiting to explode at any moment.
+I laughed again, but this time, it was nervous. “Come on, Adrian. Be serious.”  
 
-After the brief drive, we arrived back at my house and I felt a sense of unease at the thought of bringing these two to each other. I stepped out of the car and helped Ruby out from the passenger seat. The heat that had surrounded her earlier seemed to have dissipated, and I couldn't help but wonder if it was connected to her current mood. As I looked at her face, I noticed that she was now wearing a smile. Despite the hairline crack on her porcelain features, there was a genuine warmth in her expression that made me slightly less uncomfortable around this doll with pyrokinetic abilities.
+“I am.” 
 
-As I approached the front door, Ruby nestled in my arms, I could feel a palpable tension in the air. My hand trembled slightly as I turned the key in the lock, pushing the door open with a creak that seemed unnaturally loud in the quiet morning.
+Over the next few hours, Adrian told me everything.  
 
-The moment we crossed the threshold, a change came over Ruby. Her porcelain body seemed to vibrate with excitement, and I could have sworn I felt a faint warmth emanating from her once more. The air inside the house felt charged, as if filled with static electricity.
+He spoke about walking through the streets of ancient Constantinople, about the scent of spices in bustling markets and the golden mosaics of Hagia Sophia. He described surviving the Black Plague, the sheer terror of watching entire villages wiped out in days.  
 
-"Matilda?" I called out hesitantly, my voice barely above a whisper.
+He told me about loves he’d lost—partners who grew old and died while he stayed the same. Friends who noticed he didn’t age and began to fear him. Townspeople who called him a witch, forcing him to flee in the dead of night.  
 
-Suddenly, a joyous cry echoed through my mind, startling me so much I nearly dropped Ruby. It was Matilda's voice, suffused with an emotion I had never heard from her before - pure, unbridled happiness.
+The more he talked, the more I believed him.  
 
-"Ruby!
+It wasn’t just the stories; it was the way Adrian spoke, the weight of his words. He wasn’t telling me things he’d read in a history book. He was reliving them.  
 
-"Ruby!" Matilda's voice cried out in my mind, filled with joy and excitement. "You're here! You're really here!"
+But as awe gave way to curiosity, I noticed something else: sadness.  
 
-I walked into the living room, where I had left Matilda on the shelf. Her painted face was beaming with the widest smile I had ever seen on her. As I approached, I could feel an intense energy building between the two dolls.
+Adrian’s voice would crack when he spoke about certain events. His eyes would grow distant, haunted, like he was seeing something I couldn’t.  
 
-"Sister!" Ruby's voice rang out in response, equally elated. "I've missed you so much!"
+There was pain in his stories. And guilt.  
 
-I gently set Ruby down next to Matilda on the shelf. The moment they were side by side, a strange sensation washed over me. It felt like the air in the room was vibrating, charged with an otherworldly power. The two dolls seemed to glow faintly, their porcelain bodies emanating a soft light.
+After that night, I started noticing things I’d never paid attention to before.  
 
-Matilda spoke first,
+Adrian never used his real name when we went out. Every few years, he’d pack up and move to a new city, leaving behind friends and jobs like they were disposable.  
 
-"I was afraid I would never see you again. Our friend at the store said we had to be separated for safety, I knew she was not lying. I am so glad that my new friend here trusts us with his safety and is willing to have us both here." Her voice was choked with emotion. I stood there, transfixed, as the space between the dolls seemed to pulse with their combined energy.
+He avoided certain places—graveyards, old churches—and grew visibly uncomfortable when we passed them.  
 
-Ruby’s fiery aura flickered in tandem with Matilda’s serene glow.
+Once, we were walking downtown when Adrian suddenly stopped, his face pale. I followed his gaze to a man sitting on a bench across the street. The man looked ordinary enough, but Adrian grabbed my arm and yanked me into an alley.  
 
-"I won't let anyone separate us again! Not like before." There was a fire in Ruby's tone, one that disturbed me, despite being oddly sentimental. I reminded myself that I did not want to get on their bad side.
+“What are you doing?” I hissed.  
 
-An unsettling chill washed over me as I considered the implications of their bond. I had no idea how to proceed at that point. Ruby spoke again, breaking my contemplation,
+“Quiet,” he whispered, his eyes darting around. “We need to go.”  
 
-"You know," Ruby said, her voice somewhat relaxed now,
+“Why? Who was that?”  
 
-"We need a true friend—someone who will stand by us when the time comes."
+Adrian didn’t answer. He just pulled me along, his grip tight.  
 
-I was concerned by the statement and asked,
+Eventually, I confronted him.  
 
-"What do you mean when the time comes?"
+“Who was that guy on the bench?” I asked one night. “And don’t tell me it’s nothing, because I know you’re lying.”  
 
-Ruby's laughter felt like it echoed through the room, carrying both a sense of joy and warning.
+Adrian sighed, rubbing his temples. “There are people who know what I am,” he said finally. “People who’ve been hunting me for centuries.”  
 
-"When it comes time to decide if we will stay with you. So many others have deceived us and broken our trust. All we ask is for honesty from you – it's as simple as that. And if you are not truthful, the truth will come out like fire, burning away any lies. Now that Matilda is back with me, we will know, we can see, and we will take action."
+“Hunting you? Why?”  
 
-I was speechless and just sat there and nodded. I couldn’t say no, but I guessed that as long as I told the truth and never tried to lie to them I might be okay. Though there prospect of Ruby burning my house down made me wince. My thoughts were interrupted by a loud knocking on my door. The mental discourse of the dolls grew quiet.
+He hesitated, then looked at me with an expression I couldn’t quite read. “Because immortality isn’t free.”  
 
-I went to the door and opened it. It was my neighbor, Glen. His face was twisted in anger as he confronted me, saying,
+“What does that mean?”  
 
-"Have you been talking to my girlfriend? She knew things that she couldn't have known unless someone was spying on me. I figure it's because of our noise complaints; you're always so passive aggressive about it." I was taken aback by his accusations - after all that had happened between us, including him stealing my packages, he had the audacity to blame me for his infidelity and his girlfriend leaving him.
+Adrian didn’t answer right away. When he finally spoke, his voice was low. “It means I’ve made enemies. And some debts don’t go away, no matter how long you run.”  
 
-I stood my ground and retorted,
+The next time I saw the man on the bench, he wasn’t alone.  
 
-"I have never had a conversation with your girlfriend. But maybe she has good reason to distance herself from someone who steals and cheats." My grin may have been sarcastic, but it was clear that I had hit a nerve. He was here for revenge, and he didn't seem to have anything left to lose. It dawned on me that I may have made a mistake in provoking him. His gaze sharpened and he moved closer, clearly angered by my words.
+Adrian and I were sitting at a café when I spotted him across the street, standing with a group of people in dark coats.  
 
-Before I knew what was happening I was on the ground, Glen had punched me in the face and I fell back into my own house and he stepped in. He looked like he was going to crouch down and continue pummeling me, but he saw the dolls on the shelf and laughed,
+“They’re here,” Adrian whispered, his face pale.  
 
-“You collect dolls? Man you are weird.”
+“Who are they?” I asked, panic rising in my chest.  
 
-In that moment, the atmosphere thickened, and a palpable tension crackled in the air like static before a storm. Matilda's porcelain brow was furrowed, her piercing blue eyes locked onto Glen with an intensity that sent shivers up my spine. Ruby, too, seemed to sense the rising threat, her vibrant red hair flickering as if caught in an unseen breeze.
+Adrian grabbed my hand, his grip firm. “We need to leave. Now.”  
 
-“Be careful!” Matilda warned softly yet firmly, her voice barely above a whisper. “He is a bad man, a liar. His actions hurt others and now he has hurt our friend.” I turned to Ruby and her face was in a rictus of anger.
+We didn’t make it far.  
 
-Her mental declaration was instant and forceful,
+As we rounded the corner, one of them stepped into our path. He was tall, with sharp features and eyes that seemed to gleam in the dim light.  
 
-“You!”
+“Adrian,” he said, his voice smooth and cold. “It’s been a long time.”  
 
-I knew this was going to end badly.
+Adrian pushed me behind him, his body tense. “Leave her out of this,” he said.  
 
-She had screamed into my mind and clearly into Glen’s as well. He whirled around in a panic, clearly looking for where the voice had come from.
+The man tilted his head, a cruel smile playing on his lips. “I’m not here for her. I’m here for you.”  
 
-Ruby’s voice echoed again and I felt the air growing hotter around us,
+“What do you want?” Adrian asked, his voice tight.  
 
-“Liars, bad people. Always more, no matter how many are burned the true ugly nature of people is revealed. Let the truth burn bright! He cannot hide from what he is.”
+“You know what I want,” the man said. “It’s time to pay your debt.”  
 
-I looked to Matilda and there was a stern, accepting look on her painted face. She agreed with what Ruby was planning on doing.
+Adrian didn’t respond. His hand trembled at his side, but his voice was steady when he spoke. “I’m not going back.”  
 
-Glen looked back at me, clearly freaked out by the sounds in his head. He was about to speak, when he burst into a fireball!
+The man’s smile widened. “Then I’ll take her instead.”  
 
-After frantically searching for a fire extinguisher in my kitchen, I finally located it and rushed back to the room. But it was too late; Glen had already been turned to ash. I couldn't understand how the fire could have burned so intensely, leaving no trace of his body but also staying contained to where it began. The dolls sat still, their expressions somber and unwavering.
+Before I could process his words, Adrian stepped forward, his face hard with resolve. “No,” he said. “You won’t touch her.”  
 
-Matilda's gentle voice echoed in my mind once again, pleading with me,
+The man’s smile faltered. “You’d sacrifice yourself for this human?”  
 
-"We are deeply sorry for going against your wishes. But he was a deceitful man. He caused harm to you and others. Please don't be too harsh on Ruby. If you give us a chance, perhaps we can all coexist peacefully." I had just witnessed my neighbor being reduced to ashes within seconds by the pyrokinetic doll sitting on my shelf. I couldn't find the words to respond to Matilda's appeal at first. I couldn't believe what I was trying to justify, but I managed to say,
+Adrian didn’t answer. He just turned to me, his eyes soft. “I’m sorry,” he said. “For everything.”  
 
-"It's alright, I understand. I just need some time to process everything."
+Before I could respond, Adrian stepped into the man’s shadow. The darkness seemed to swallow him whole, and just like that, he was gone. 
 
-Her usual sweet response was, "Take all the time you need, friend. We'll be here for you anytime you need our help." I left the room and headed to my kitchen to grab a dustpan and clean up the physical evidence of my neighbor's demise.
+I thought Adrian was gone for good.  
 
-Some time has passed since that fateful encounter, and in the wake of chaos, a strange harmony had settled over our home.
+The café, the shadowy figures, the way he disappeared into nothing—it felt final. For weeks, I kept replaying that night in my head, trying to figure out if there was something I could’ve done differently.  
 
-The police had come to question me about my missing neighbor, and I had told them the truth: I had no idea how he could have vanished without a trace. However, I omitted the details of his disappearance from my statement.
+But then, strange things started happening.  
 
-I've realized that I need to find some positivity in my situation. I may still be unemployed, but I believe that with the dolls by my side, I should pursue a career where liars, grifters and corruption were rife. I want to work in a field where only the most deceitful and corrupt would suffer consequences from the relentless pursuit of truth my loyal companions wholeheartedly support.
+It began with a letter. No return address, no stamps—just my name scrawled across the front in Adrian’s handwriting. Inside was a single line:  
 
-With this in mind, maybe I will need to relocate. Move to somewhere where dishonesty and corruption are the business model. Yes I think will try to seek new career opportunity in Washington DC.
+“Stay away from them. They’ll come for you next.”
 
-With Matilda and Ruby what could go wrong? Stay safe and remember, honesty is the best policy.
+The letter sent a chill down my spine. Who were "they"? The men in coats? The ones hunting Adrian? Or something else entirely?  
+
+I tried to tell myself it wasn’t real, that my grief was making me see things that weren’t there. But that was before the second letter arrived.  
+
+This time, it was a single sentence:  
+
+“You’re part of this now.”  
+
+The first time I saw one of them, I thought I was imagining it.  
+
+I was walking home late one night when I noticed a man in a long black coat standing at the edge of the street. His face was pale, his expression unreadable.  
+
+At first, I thought he was just some random stranger. But as I turned onto my block, I glanced back and saw him again—standing at the corner, watching me.  
+
+The next day, I saw another one. A woman this time, her coat the same shade of black, her eyes cold and unblinking.  
+
+It didn’t take long to realize they were everywhere. On buses. In parks. Outside my apartment.  
+
+They didn’t speak. They didn’t move. They just... watched.  
+
+It was almost midnight when I heard the knock at my door.  
+
+My heart raced as I approached, half-expecting to see one of the Watchers waiting on the other side. Instead, I opened the door to find Adrian.  
+
+He looked different. Tired, like he hadn’t slept in years. His clothes were torn, his hair unkempt, but it was him.  
+
+“Adrian,” I whispered, relief washing over me.  
+
+“I don’t have much time,” he said, stepping inside and locking the door behind him. “They’re coming.”  
+
+“Who are they?” I asked, my voice shaking. “What do they want from me?”  
+
+Adrian hesitated, running a hand through his hair. “They’re part of the price,” he said finally. “The cost of what I am.”  
+
+“I’m not like you,” I said. “I didn’t make a deal. I didn’t ask for anything!”  
+
+“No,” Adrian said softly. “But you’re connected to me now. And that makes you a target.”  
+
+We sat at my kitchen table as Adrian explained.  
+
+“They’re not people,” he said. “Not really. They’re something older, something... hungry. They hunt people like me—people who’ve cheated death. And anyone close to me becomes part of their game.”  
+
+I felt a cold knot of fear in my stomach. “So what happens now? What do I do?”  
+
+Adrian looked at me with an expression I couldn’t quite place—regret, maybe, or sorrow. “You have two choices,” he said. “You can run, but they’ll find you eventually. Or...”  
+
+“Or what?” I pressed.  
+
+Adrian leaned back, his eyes heavy. “Or I can make you like me.”  
+
+The room fell silent.  
+
+“You can’t be serious,” I said.  
+
+“I am,” Adrian replied. “It’s the only way to survive. But if you choose this, there’s no going back. Immortality isn’t what you think it is. It’s not freedom—it’s a prison.”  
+
+Before I could answer, the lights in my apartment flickered. The air grew heavy, and a faint whisper filled the room.  
+
+“They’re here,” Adrian said, standing up abruptly.  
+
+The shadows in the corners of the room seemed to ripple, stretching and twisting until they formed figures—dark, indistinct shapes with glowing eyes.  
+
+Adrian grabbed my arm, pulling me toward the door. “We have to move!”  
+
+We sprinted through the city, the Watchers following close behind. They didn’t run. They didn’t need to. They moved through the shadows like smoke, appearing wherever the light didn’t touch.  
+
+Adrian led me to an abandoned warehouse, slamming the door shut behind us. He turned to face me, his expression grim.  
+
+“This is it,” he said. “You have to choose. If you want to live, you have to trust me.”  
+
+The Watchers were closing in, their whispers growing louder, their forms pressing against the edges of the warehouse.  
+
+“I don’t want this,” I said, my voice trembling. “I don’t want to be like you.”  
+
+Adrian nodded, his face softening. “I know. But it’s the only way.”  
+
+He reached into his coat and pulled out a small vial filled with a dark, swirling liquid.  
+
+“What is that?” I asked.  
+
+“It’s the same thing I took,” Adrian said. “It’ll make you like me. But once you take it, there’s no going back. You’ll live forever, but you’ll never be free.”  
+
+The Watchers were pounding on the walls now, their voices rising to a deafening roar. I didn’t have time to think.  
+
+Adrian handed me the vial, his hand steady. “It’s your choice,” he said.  
+
+I looked at the vial, then at Adrian, then at the shadows creeping closer.  
+
+And I drank it.  
+
+The transformation was instant.  
+
+The moment the liquid hit my tongue, a wave of fire surged through my veins. My vision blurred, my heart pounding as my body seemed to split in two.  
+
+The Watchers stopped. They stepped back, their whispers fading into silence.  
+
+Adrian grabbed my shoulders, his eyes searching mine. “How do you feel?”  
+
+I opened my mouth to answer, but the words wouldn’t come. Instead, I felt something stir inside me—something cold and ancient, something that wasn’t there before.  
+
+Adrian’s expression darkened. “Oh no,” he whispered.  
+
+“What?” I asked, my voice trembling.  
+
+“You didn’t just take immortality,” he said. “You took his place.”  
+
+I stared at him, confused. “Whose place?”  
+
+“The one who comes for us,” Adrian said. “The one who hunts immortals. You’re not like me now. You’re like them.”  
+
+I looked down at my hands, watching as shadows curled around my fingers, sinking into my skin.  
+
+And in that moment, I realized the truth:  
+
+I hadn’t escaped the Watchers.  
+
+I had become one of them.  
