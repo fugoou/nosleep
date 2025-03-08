@@ -1,90 +1,138 @@
-# Ever since my son was born, Something has been watching him
-To start, here's some context. My wife and I had been trying for a kid for a while, we first decided that we wanted kids back during the pandemic, but decided to wait a few years for things to open back up first. We struggled for a long time, which made us a little concerned. We are both still pretty young as far as having a kid goes (Iris and I are both 27) and to our knowledge, neither of us had any medical issues that should be preventing us from having children. Things got a little rocky for a while, we got into a few fights, and I had to stay at my brother's a few times, but we still stuck with each other. 
+# I fucked up a ghost summoning ritual. Now there's a monster in the supermarket and we can't find the exit.
+[Read Part 1](https://www.reddit.com/r/nosleep/comments/1ianrwv/my_friends_roped_me_into_a_ritual_for_summoning/)
 
-Finally though, by some miracle, Iris got pregnant, and a good few months later we found out we were having a baby boy. Things were looking up and quite honestly we were happy just to be having a kid, it felt like those years of stress and arguments had washed away over the past few months. Well, in hindsight that is easy for me to say, I didn't have to go through the hard part of having a kid.  Is that rude to think about? Ah, not important right now and not why im here. We were here for the strange stuff.
+I've heard a lot of people's theories on what happens to your brain when you're about to die. They all seem to conclude the same thing: your life flashes before your eyes, leaving you satisfied or disappointed depending on what kind of life you led.
 
-It started on the day my son was born, I was driving to the hospital from work, racing there after hearing Iris started having contractions. I was working a late shift at my family's restaurant when I got the call, my brother Nate said he'd cover my shift while I drove out and I didn't waste any time, or at least I'd have liked to buy a storm was raging overhead, and I wanted to be alive when i got to the hospital. The rain was hammering on top of the hood of my car. All I could see before me was the road, my headlights and the occasional stop sign emerging from the dark, sometimes I'd get a full view from the light of a thunderstrike. 
+Personally, I say that's a crock of horse shit.
 
-I was probably a good 10 minutes away when my gas tank was nearing empty. It wasn't too far but i didn't wanna risk breaking down in the storm, luckily there was a gas station nearby. I pulled in and stepped out of my car, taking shelter under the overhead while filling up the tank. That was when the first strange occurrence of the night took place. I felt a sudden gust of wind blow through the gas station, nothing out of the ordinary for a storm aside from the sudden change in direction, however, the man who was now standing behind me did catch my attention. 
+When that thing grabbed me by the throat and dragged me deeper into the darkness, the only thing on my mind was finding a way to kill *it* before it could kill *me*. I lashed out in a blind rage, grasping at anything I could get my hands on as whatever had me in its grasp yanked me towards certain death. Before it could pin me down in some dark corner, I somehow managed to latch onto something sharp. There was no time to think - I plunged the business end of the tool in my hand upwards with as much force as I could muster, praying to whatever benevolent godlike figure out there that my attacker had eyes that could be stabbed out.
 
-“Hello,” 
+My prayers were answered. It let out a horrible shuddering cry, one that put nails on a chalkboard to shame, and dropped me on my ass. I could barely make out its silhouette, but it looked like it was clutching at its face.
 
-He said as i turned to look at him. His voice was soft, and slightly accented, Sounded kinda Italian. I was caught a little off guard as I turned to him and without any idea what to say i just replied.
+Before it could wise up to what I'd done, I scrambled backwards on all fours, ducking behind a dusty old coat rack. I vaguely remember thinking "why the fuck is there a coat rack in a grocery store" but that train of thought was cut short by a menacing growl.
 
-“Hello”
+After that it was mostly a blur. I remember flattening myself against the rack and holding my breath until it felt like my lungs would burst. Later Quinn told me he found me hiding in that very same coat rack, clutching a box cutter to my chest and white as a sheet.
 
- That was when I got a good look at him, he was dressed kinda like a cartoon detective, big grey trench coat covering most of his body down to just above his ankles, around which he wore not shoes, but tied-up sacks. He was tall, near towering over me but kept his chin to his chest, using his fedora to obscure most of his face. All I could see was his mouth and part of his neck. The skin was rough, almost like burns, while his mouth and lower face looked almost normal. 
+When I came back to, the store was no longer pitch black. Slits of dim red light traced the outer edges of the carpeting in each aisle, stretching on as far as the eye could see before they trailed off into a shroud of mist. Someone had draped my jacket over my shoulders and taken the box cutter, the closest thing to a weapon I had.
 
-The only notable exception was his cheeks, which seemed to have slits in them, almost as if someone tried to cut a joker smile into him, although it was clean, with no sign of scaring or cuts, just 2 clean slits on either of his cheeks just cutting off about a cm away from the edges of his mouth. 
+Helpless with no sign of my friends and no weapon to defend myself, I surveyed my surroundings. I was propped up against a wall near the restrooms, which should've been right next to the entrance, but something was off - the sliding doors were completely dark. Not even the solid foot of snow that coated the outside world was visible through them. I waved my hand in front of one. It didn't move. I couldn't even see my hand's reflection in the glass. Granted there wasn't much light, but there should've been enough to see by.
 
-We stood in silence for a moment, my attention only breaking from his when I realised I was still pumping gas into my car, and made sure to stop that before going over. I was half expecting to look back and see the man gone but he was still there. Hadnt moved. I looked at him and simply asked. 
+This had to be a nightmare, right? Even if ghosts or demons or whatever these creatures were supposed to be did exist, what were the odds of the four of us running into them? I should've been deeper in denial, hell, I was the skeptic to Frankie's believer, I had always refused to believe there was any evidence of an invisible world alongside our own.
 
-“Can I help you” 
+A flicker of movement in my peripheral vision made me whip my head around. The spot where that thing grabbed me burned and stretched painfully with the movement, like its handprint had been seared into my flesh. When I finally managed to blink the stars out of my eyes, an unfamiliar silhouette loomed over me. Cursing under my breath, I curled my hands into fists, raising my arms in a feeble attempt to block the blow I knew was coming.
 
-“No”. 
+Instead, my would-be attacker spoke: "There's nowhere to run, we have you surrounded. Your safety will depend entirely on whether or not you choose to cooperate. If you understand, put your hands down. No sudden moves or you'll regret it."
 
-We went to silence again. I then went to go pay the gas station attendant for the gas but he placed a hand on my shoulder to stop me, his fingers were long, or at least they felt that way, as when I turned to brush him off his hands had already moved and been placed in his pockets. 
+The voice was low and feminine; it never once wavered as it ordered me around. In it, I could hear a subtle venom, the kind you only found in people who were at the end of their rope and had very little left to lose. I scrambled to comply with its owner's instructions.
 
-“Look im kind of in a hurry so if you dont mind im gonna go pay for my gas and get going” 
+"Good. I want you to answer some questions for me. Don't say a word, either shake your head no or nod yes. Do you understand?"
 
-I'd blurt out. The man seemed unphased as he shook his pocket, the sound of coins jingling inside them. 
+I nodded.
 
-“You should get going, your wife needs you”. 
+Two more shadowy figures stepped forward. One was tall and muscular, the other short and round. I craned my neck to see if I could see any others, but the mist obscured everything beyond the checkout lanes. The figure in front of me, the same one who'd spoken, knelt down across from me. She was too far away for me to get a good look at her face, but I could tell she was brandishing something big and sharp, and if I hadn't already decided to comply, that was more than enough convincing.
 
-I was taken aback. His odd appearance notwithstanding I felt some mix of fear, but also anger. I questioned how he knew in my head, but the words that came out betrayed me as I simply said 
+"Are you human?"
 
-“Is she ok?” 
+I nodded again. The figure sat in skeptical silence for a few moments before she continued her interrogation.
 
-He simply nodded, before pointing over to the car, the line of questioning already started I continued 
+"Did you come here alone?"
 
-“And my son?”. 
+I shook my head. She shifted and I realized she was glancing over her shoulder to share a look with her companions.
 
-The figure once again gestured to the car saying. 
+"So you got separated from your group?"
 
-“He will be well.” 
+Another nod.
 
-Im not too sure what was with me at that moment, I know how I felt, but my words and body were betraying me, I acted in a sense of false comfort despite feeling far from comfortable. I did what it said though, Even though it didn't tell me to do anything I sort of just knew, as I got in my car, and turned on the gas. Before I drove off it tossed a coin into my car through the cracked open window, and simply said before I drove off. 
+I'm not gonna lie, this method of communication had started to wear thin on me. I opened my mouth to speak and would've done just that if she hadn't shifted her weapon so that it was level with my skull.
 
-“Safe Travels”.
+Fine. Fine! She could take all night with her questions, it wasn't like three of my friends were missing in a haunted supermarket.
 
-I was 5 minutes down the road when whatever calming effect it had on me wore off, and I felt the anxiety slowly creep back in. It was only then I realised I dont think I saw their lips move. I kept driving. Once I arrived at the hospital, there seemed to be chaos all around, Doctors and Nurses running from place to place. I knew there was a storm but this wants a big hospital and our town is rather out of the way, so it did strike me with some concern when a nurse approached me with a panicked look. 
+At the very least, some of the tension in her posture seemed to relax with each question I answered. This time when she spoke, there was a slight quiver in her voice, a hint of desperation in the question: "Do you have any idea what's happening?"
 
-“Are you here for your wife?” 
+I hesitated. She must've been able to see it in my body language that I knew something, because she grabbed me by the shirt and jabbed her weapon up under my chin.
 
-she asked assertively, to which I replied honestly with a yes. Gave her my wife's name and she looked at me with what looked to be a sigh of relief as she led me to the room my wife was in. 
+"If you and your friends had anything to do with this, I swear to *god*\-"
 
-I'll spare you the gory details but Iris was ok and our son Luke was healthy, 8lbs 12oz. More than I can say for the other mothers there that night. I feel blessed but somehow also guilty. The news didn't report on it long and just passed it off as a tragic 1 in a million occurrence. 146 babies were born that night, all to mothers within 80 miles of the hospital. Even some who weren't due for another few months, some even more. A good number didn't make it. 
+The smell of burnt wiring filled the air as the fluorescent emergency lights popped and crackled to life. The sound surprised her enough to let go, and I quickly moved back out of range.
 
-Iris and I tried to focus on the positives, even with that story hanging over our heads, we had a son, a beautiful baby boy. At the time I had so many dreams of what future he could have, so many possibilities. I still do, but now… once we brought him home things seemed to cheer up. Most of the stuff people had warned me about when it came to having kids just didn't phase me, My mom gave me a few months of work to spend time with my son, while Iris was still on maternity leave while recovering. 
+The girl in a cashier's uniform brandished a garden shovel like she was a Roman gladiator readying her prized spear. She didn't need it, of course; she would've been able to pin me to the spot with the sharpness of her gaze alone. Her face and pinstriped green apron were caked with dirt and blood, neither of which seemed to bother her all that much. Her nametag read 'Katherine.'
 
-When they are still newborns there's not a lot to do with them any way other than keep an eye on them and make sure they are fed and changed. I was already used to late nights at work so I. 
+"Easy, Kat," said the muscular figure, resting a tentative hand on her shoulder. "Why don't we let him tell his side of the story before we start pointing fingers?"
 
-Sorry, I thought it was at the window again. I should probably explain that. Things started getting weird about 2 weeks after we brought Luke Home. The storm had been raging for a long while and had only just cleared the night before. The First thing we noticed was Luke staring out our back windows. Always the back ones facing our backyard. At first, we thought he liked the colour of our fence, it was a bright blue colour and stood out against the gloomy environment, over time tho i realised his gaze was a lot more focused, One day I decided to sit with him as he was just laying there looking outside. I lay down beside him and looked out the window myself and that's when i spotted it. He wasn't looking at our fence, or anything in the yard for that matter he was looking into the trees behind it. 
+The cashier looked like she wanted to say something, maybe tell him off, but her eyes fell on the mark around my neck. She pursed her lips sympathetically and motioned for me to talk.
 
-I didn't know how he spotted it, especially since newborns are supposed to have horrible eyesight but now that I was looking I could see it too. A Bird. The greyish brown feathers were shrouded by the shade of the trees and the gloomy remnants of the past storm, the details of its silhouette now so clear to me but previously obscured by the shrubs and bushes. It was right there. I couldn't pin the kind of bird, not that I know a lot about them anyway but something seemed off, its beak withered and chipped in places, and its feathers while coloured pristinely were ruffled with some looking to have fallen out, mange-riddled skin flickering through the gaps. 
+I'll admit it, I did a double take the first time I looked at her companion. He was an absolute behemoth of a man, at least half a head taller than Casey with camo patterned cargo pants and a military buzz cut to boot. Between the two of them, I'd expect him to have the worse temper.
 
-Its stare was the worst part, it was unwavering, almost human with the intensity with which it looked at us, or rather looked at my son. I closed the curtains my son just idly stared at them. This was 2 weeks ago now, and since then I've not seen it move, I've gone outside to try and chase it away but every time I step outside it seems to just disappear. Part of me still believes it's just a strange animal, acting out some odd behaviour. 
+The third figure I'd seen, the shortest of the bunch, was revealed to be a portly businesswoman. She looked the least disheveled out of everyone - hair slicked back in a tightly tied bun, not a speck of dust on her skirt, tights, or jacket. The only thing about her that looked out of place was her shoeless feet. When she noticed me staring, she clicked her tongue disapprovingly and turned away.
 
-I've not told Iris. She has enough on her plate right now and I'd rather not have her worry about the strange animal that seems to be stalking our son. I know for sure it's watching him now, i never see it move between spots but it does change its perch when my son is taken to other rooms. Always in places where it can see through the window. I once called in animal control, they searched our entire yard, but not a trace. I even asked my brother if he could bring his dog over, which he did but the dog didn't find anything. 
+I tried to suppress a smile at the mental image of the fiery cashier chewing her out for running around the store in noisy high heels. Judging by Kat's scowl, I failed.
 
-Earlier today, I think it got into the house. Im assuming it was the bird at least. Iris was out with her friends on a much-deserved night off from parenting, meanwhile, I was home looking after Luke. It was about feeding time for him, not that it was scheduled or anything, more that he was crying a lot and I'd already worked through all the other options. I was in the kitchen, trying to work quickly so he wasn't left hungry for much longer. I had the baby monitor with me, I could hear him crying as I was screwing the cap onto his bottle.
+"Fine, I'll ask him nicely. What the hell did you do?"
 
-In hindsight leaving my child unattended in this situation was a stupid move, but I guess at the time I was so used to having Iris around to watch him It didn't occur to me that he hadn't been on his own until now. I was just about to walk back to our room where his crib was before I heard him stop crying, slowing my pace after a brief pause before heading into a casual walk as I heard him cooing. My relief that my son finally felt at peace for a moment was quickly snuffed out by what I heard next.
+I reluctantly explained the turn of events that led up to tonight's unfortunate ghostly incident. The man, a soft-spoken navy vet named Arnold, listened thoughtfully as I walked them through the rules, the legend of Red-Robed Sadie, and the botched summoning ritual. Vivian, the businesswoman, stayed quiet through most of it. I think she was deeper in denial about the whole situation than the rest of us. She kept staring at her watch like if she concentrated hard enough, she'd wake up to find herself safe in bed.
 
-A woman's voice came through the baby monitor, soft and melodic however with a slight creak to it that comes with age. It said words in a language I dont understand, something like 
+Kat on the other hand took every pause as an opportunity to scoff and seethe at my stupidity. "Really? Your friend said 'hey, let's summon a ghost in a crowded store' and you just went along with it?"
 
-“Kimisu tora pedi moo”
+"Technically she's a spirit," I muttered. "Look, we- I didn't think it would actually work, okay? Even on the off chance it did, Frankie said Sadie was supposed to be benevolent. Grant us a reward or lead us to treasure or something. If you're asking me why a monster showed up, your guess is as good as mine."
 
-. I bolted down the hall to the other side of the house, throwing open my bedroom door to see the window slid wide open, my son in his crib and something looming over him. Looking at it hurt, like starting at one of those checkered moving image illusions, I could see what was in front of me but it left a deep sense of discomfort in my eyes. 
+Kat pinched the bridge of her nose and let loose a long suffering sigh. The dark circles under her eyes seemed to deepen with the exhale of breath. A nagging, guilty voice in the back of my head made me wonder if I'd ruined any chance she had of getting a full night of sleep. How many times had she worked the graveyard shift this week?
 
-It lurched forward, feathered limbs stretching out toward me in a flash, elongating… or moving closer to me to reach me. I could only concretely understand a few details, it was vaguely bird-like, with brown… or blue feathers, its stomach as engorged and swollen, it stared at me with human eyes as its fingered wings coiled themselves around my neck as it threw me out the door. My shoulder still hurts from the hard impact on the drywall. The thing looked down at my son once more, its elongated face mere inches from his as it spoke once more, whispering this time, before turning to me once more. The eyes on either side of its face… faces? Whatever it was looking right at me with human eyes. Finally, it spoke English, its finger extending out as it pointed directly at me… with an accented voice it said 
+"Alright. You said you didn't do this on purpose and I want to believe you. I don't want you to take this the wrong way, but I'm too tired to think of a nicer way to ask: do you know anything useful? Like who or- or *what* else is in here with us, or how to leave?"
 
-“You are believing a lie, and have yet to acknowledge the truth”. 
+I frowned, turning to look behind me. "Weren't the doors right-?"
 
-It took a step towards me, its form shifting as it stepped into the doorway. It put its bleeding mess of a face up to me, my head pounding just from looking at it from a distance, but now I was up close it felt like my eyes were on fire and my brain felt as if the mere image of this thing was trying to tear its way out of my skull, I wanted to fight back, throw a punch, charge it but I couldn't even twitch a finger. 
+Where the entrance had been a minute ago, there was only a blank expanse of painted bricks. Disbelieving, I stretched out my hand, certain that what I was seeing couldn't possibly be real. My fingers stopped short of where the door had been, splaying out against the endless white wall.
 
-Then Crack! I snapped back to reality as I heard the sound of rumbling from the clouds above, a flash of light coming from outside as I felt the earth itself rumble. Even with the snap to my senses, I could feel my heart beating out of my chest. he beast's head snapped back, its body rotating with it shortly after before it began to scurry out of my house, its large body snapping in places as it slipped through the window.  Once I saw it leave I clambered to my feet and charged in, slamming the window shut, latching it up as I saw the being return to the woods behind my house. 
+Kat's voice snapped me out of my stupor. "We don't have time for this. Like you said, we're stuck in this shithole with the monster that did that to you-" she pointed at my throat - "which means the longer we stay here, the greater chance we have of running into it. Plus, I find it hard to believe your friends are the only other people trapped in here," she added darkly.
 
-It's been a few hours since then, and I've not left Luke's side. I've texted Iris, She is on her way back home now. Once she gets here we take Luke and head to my mom's place. I told her it was a break-in, and that I dont feel safe in my own home. I dont think she’d believe the truth. 
+Guilt made my stomach churn. I hadn't even thought about that.
 
-It came back to the window a few times since. It doesn't seem to be able to enter the house, kinda like a vampire. It's gone now tho, I've not seen it in a couple of hours. No sign of it in the treeline either. I'll keep you guys updated if anything happens but for now, im just gonna try and get away from here. 
+As it turned out, Kat's instincts were right. We navigated the maze of aisles, walking until the passage of time lost all meaning and then some. Although we weren't confident in our ability to fight off otherworldly monsters by any means, we thought we had at least some idea of what to expect. That expectation was shattered when we stumbled upon a room sitting in the middle of nowhere. "BREAK ROOM" read bold white letters on the plaque hung above the entrance, an open archway into the otherwise closed off space with no windows or doors.
+
+The break room's interior was a lot nicer than I expected. Don't get me wrong, it wasn't anything fancy, but it wasn't the worn out, grimy mess I thought it'd be. The furniture was in a style I can only describe as IKEA chic; modern and simple with a polished wood finish. The cushions had this weird abstract pattern on them, the kind you'd see on the seats of those big overnight buses.
+
+A kid who looked to be about twelve lay draped across the sofa, curled inwards and facing away from us. He looked cold but fortunately not injured. Reclining in a chair at the far corner of the room was an old man, eyes closed and head tilted back as he let loose a full-throated snore. There were no tangible signs of danger. In fact, there was a small cursive sign sitting on an end table that read "Take a break!"
+
+I locked eyes with Arnold and knew we'd had the same exact thought: this had to be some kind of trap. If this place functioned like the labyrinths in Greek and Roman myths, it was a living, breathing, and most importantly, a *constantly changing* maze. What proof did we have that the arch wouldn't disappear the moment we set foot inside, or that a monster wouldn't come along to corner us in the one area with no avenues for escape?
+
+The answer was 'none.'
+
+"You go on ahead," he told Kat, rapping the wall lightly with his knuckles. The gesture brought to mind that old superstitious phrase, 'knocking on wood.' "Get some rest if you can. I'll keep watch."
+
+I don't know how long we sat there on the floor, glancing dubiously at our newfound companions. Somewhere between no time at all and half an eternity, if I had to guess. But with each minute that crept past, the next seemed to double in length. Time dilation warped our minds and confused our senses like this whole experience was nothing more than a bad trip. Something about the air in there gave me a headache. It started as a mild but incessant throbbing and crescendoed into what I can only describe as the sensation of an ice pick being driven into my skull.
+
+I wanted to stand and pace but my legs wouldn't move.
+
+I made to grab onto the wall for leverage but my hands were too clumsy.
+
+I tried to say something, anything, but my tongue sat heavy in my mouth.
+
+Every fiber of my being was screaming, begging me to lie down and rest. What harm could a short nap possibly do? The thought made me clench my teeth as soon as it crossed my mind. Something wanted to keep me here, and in order to do that, it needed me too tired to fight back. I cursed myself for letting my guard down. I knew this was probably a trap set by some unseen force and even so, still walked willingly into its clutches. By some stroke of luck, the businesswoman - Vivian? - glanced over at me before my eyes grew too tired to stay open. I blinked as hard and as rapidly as I could, wracking my brain to remember what little morse code I knew.
+
+"What's wrong with him?" Vivian pointed at me, drawing the cashier's attention. "He's all... twitchy."
+
+Kat's brow furrowed in confusion. "Jamie? Are you alright?"
+
+I couldn't answer her, but I think she got the message because she bolted to her feet, calling for Arnold. Large hands wrapped around me as he hoisted me over his shoulder. Absurdly, part of me wondered if this is what it felt like to be a sack of potatoes. I couldn't see much from where I was since I couldn't move my head, but I saw Vivian move out of my line of sight over by where I knew the old man should be. A beat passed before she gasped, stumbling back into view.
+
+"H-He's... he's too cold. He's breathing, but his lips are blue and I tried to wake him but he's- he's *stiff."*
+
+That got Arnold's attention. He turned to look at the older man, shifting enough that I had a straight line of sight to the boy on the couch. With every step that brought us closer to them, the air around us grew more frigid. Webs of frost had begun to gather on every surface in the room. When we'd reached the old man, or what was left of him, I was close enough to get a good look at the boy's face.
+
+I wish I hadn't looked. I really wish I hadn't. Because the image of the grey flesh of that kid's face pressed into the cushions, oozing a steady drip of rotten blood and decaying into bone at a snail's pace, is going to stay with me forever. His chest rose and fell, hair fluttering with each breath that left him, but he was already dead. He had to be. Nobody comes apart like that if they've still got any life left in them.
+
+The pattern on the cushions became clearer to me, too. It wasn't abstract squiggles and dots - when you looked at them up close, you could see they were faces. Some were contorted in despair, others sagged in defeat, but all of them were misshapen, like they'd melted into each other. The nostrils of one face's nose became the eyes for another like some kind of fucked up Rorschach test that left the identities of the room's victims up to the imagination of the beholder. They moved aimlessly to and fro, sometimes bulging against the constraints of the fabric like blisters or boils swell forth from diseased skin, floating in a two-dimensional sea of endless suffering.
+
+I wanted to scream but nothing came out. The muscles in my throat didn't even tense. The others were talking in hushed whispers, planning an escape even as the doorway seemed to stretch further away with each second that passed. I couldn't focus on anything. It felt like I'd started floating, too.
+
+With the last ounce of control I had over my body, I screwed my eyes shut and waited for somebody else to save me.
+
+I'm ashamed to say in that moment, what scared me the most was I didn't know if I'd ever be able to move again. I should've been scared that my newfound companions wouldn't make it out of here alive, or even feel fear on behalf of the victims it had already claimed. But my only thoughts were a resounding chorus of '*I don't want to die. Please don't let me die here.'*
+
+Had I always been this selfish?
+
+Fighting the instincts that screamed at me to keep them shut, I pried my eyes open. I was going to find a way to help them whether this room liked it or not. There were symbols on the sign that sat propped up on the table that hadn't been there before - they looked like they didn't belong to our alphabet. '*Evagrius Ponticus*,' was the English translation when I looked it up, and don't ask me how, but the moment I first saw those symbols I just knew it was a name. The name of someone very important to this place who might just be the key to how it worked.
+
+That's the last thing I remember before Kat bolted from the room and back into the mist, Arnold hot on her heels. None of us knew what that room was, but we were smart enough to understand at least one thing: it sure as hell wasn't a good place to rest.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1immav8/i_think_i_opened_a_portal_to_hell_in_the/)
