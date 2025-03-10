@@ -1,20 +1,102 @@
-# The Package at Work
-Last week, something weird happened at my job. I work in a small tech company, mostly dealing with web development and cybersecurity projects. Nothing too crazy, just your usual office job. But one afternoon, I received a mysterious package delivered to the office. It wasn’t anything like the usual mail we get. The box was plain, no return address, just a simple black label with a strange symbol that looked like a mix of a circuit board and an eye. It was taped up securely, and it gave off this eerie vibe.
+# I Wake Up in a Different Reality Every Time I Sleep
 
-Curious, I opened it, thinking it might be a new piece of tech we had ordered or maybe a promo item from a security company. Inside, there was nothing but a small, sleek device and a note. The device was just a small black box with no buttons or markings. The note, written in plain text, simply said, "For your next project. You'll find it useful."
+I don’t know where else to post this. Maybe I just need to get it all down before I lose my mind. Or maybe, just maybe, someone out there is going through the same thing.
 
-I didn’t think much of it at the time, but later that night, when I was working late, I decided to take a look at it. I connected it to my computer, and immediately, it powered on, displaying a cryptic string of numbers and letters on the screen. It looked like a standard encryption key, but it didn’t match anything I recognized. I ran a quick scan to make sure it wasn’t a virus, but my security software flagged it as “unknown threat.” Weird, right? Still, I couldn’t resist trying to crack it.
 
-After a few attempts, the encryption key decrypted into a strange file labeled "Project DarkNet." I thought it was just some kind of test file, maybe from a colleague or a company I had worked with in the past. But as I opened it, I immediately regretted it. The file was a deep web chat log. It contained conversations from various users discussing a series of hacking activities, breaches, and methods I’d never seen before. There were mentions of government agencies, encrypted services, and even more unsettling, a specific location: my office.
 
-As I kept reading, I found messages that made my blood run cold. Someone was monitoring my work. They knew where I sat, when I took breaks, and even details about my personal life. The scariest part? One of the messages said, "You’re next. Don’t trust the package."
+I don’t know when it started. The first time I noticed something was off, it was small. Tiny details I could ignore if I tried hard enough. Like how my favorite brand of cereal had a slightly different logo, or how my coworker’s last name changed overnight.
 
-I froze. What the hell was this? Was this some sort of sick joke? A hacker who had somehow infiltrated our system and was messing with me? I wasn’t sure, but I didn’t want to find out. I disconnected the device, threw it in the trash, and deleted the file from my computer.
+At first, I figured I was just misremembering things. We all do that, right? The Mandela Effect. The brain playing tricks, making us swear something was different than it actually was. I shrugged it off.
 
-But the weirdest thing happened the next morning. When I arrived at the office, the package was back on my desk. No one had touched it, and there was no sign of how it got there. I checked the security cameras, but the footage was corrupted. The only thing I could see was a shadow passing by the office door, and then the package appearing on my desk. That’s when I started to panic.
+But it kept happening.
 
-I don’t know if this is just some stupid prank or if it’s something much darker, but I can’t shake the feeling that whoever or whatever is behind this is watching me. The conversations in the dark web logs mentioned a “final step” that involved someone with my job title, and the last message I saw before I shut everything down said, "It’s too late now."
+Every time I went to sleep, the world around me changed. It wasn’t obvious at first, just enough to make me doubt myself. The streets in my neighborhood weren’t quite in the right place. A movie I knew I had seen before suddenly didn’t exist. My mom’s birthday moved by a day.
 
-I don’t know what to do. I’m seriously thinking of leaving my job for a while, but at the same time, I’m terrified that they could find me anywhere. I don’t know if this is a hacker pulling some elaborate stunt, or if it’s something much worse. All I know is that I can’t trust anything anymore.
+Still, I didn’t panic. I figured I was just stressed, or maybe my sleep was being affected by something. I made excuses, tried to rationalize. Until the day I woke up and found my brother sitting on my couch, controller in hand, playing Call of Duty like he used to.
 
-I’m just hoping this isn’t a sign that I’m getting too deep into something I shouldn’t be messing with. I can’t help but feel like something far worse is out there, waiting for me to make the wrong move.
+My brother has been dead for six years.
+
+I froze. I couldn't even breathe. I just stood there, watching him, waiting for my brain to catch up and make sense of what I was seeing.
+
+"Yo," he said without looking up. "Finally up? You were out cold, man."
+
+My stomach twisted. My brother, had died in a car accident when he was twenty. I went to his funeral. I saw his body in the casket. I grieved for him. And yet, here he was, acting like nothing had ever happened.
+
+I forced myself to speak. "Bro…"
+
+That was when he finally looked at me, his brows furrowing in confusion. "What?"
+
+It was him. His voice, his stupid lopsided grin, the scar above his eyebrow from when he fell off his skateboard as a kid. I felt like I was going insane.
+
+I had to get out of there. I muttered something about needing air and stumbled outside, my legs barely carrying me. My hands were shaking. My breathing was erratic. I leaned against a tree, trying to force my brain to work.
+
+In this world, he never got in that car. Maybe I never called him that night. Maybe something I had done in my original world changed, and that one tiny thing was enough to keep him alive here.
+
+That was when I knew for sure: this wasn’t just in my head.
+
+I was shifting realities.
+
+
+
+After that, the changes became more drastic.
+
+One morning, I woke up and saw a notification pop up on my phone: President Kanye West to hold emergency press conference.
+
+I thought it was a joke. A deepfake, an internet prank. But when I turned on the news, there he was, at the White House, talking about foreign policy like it was just another day.
+
+The next time, the moon was gone.
+
+I don’t mean it was hidden behind clouds. I mean it literally didn’t exist. I asked people about it, and they all looked at me like I was crazy. The tides still moved, the nights were still dark, but no one remembered there ever being a moon in the sky.
+
+I tried to figure it out. I started keeping a journal, writing down everything I could remember before I went to sleep. I experimented—stayed up for days at a time, used caffeine to keep myself awake, but it never mattered. The moment I finally gave in to exhaustion and slept, I woke up somewhere new.
+
+No matter what I did, I couldn’t stay in one place.
+
+Then, just as I was starting to accept my fate, things got worse.
+
+It started following me.
+
+
+
+I first noticed it in a reality that seemed almost normal. The only difference I could find was that all the traffic lights were blue instead of red and green. That was it. No dead brothers, no missing moon, just… blue traffic lights.
+
+Then, out of the corner of my eye, I saw it.
+
+It was tall, too tall. Its body twisted in ways that made my stomach turn. It didn’t have a face, at least not one that made sense to my brain. Every time I blinked, it seemed to shift, like it wasn’t bound by the same laws of reality as everything else.
+
+No one else saw it.
+
+I tested it. I asked a stranger if they saw anything weird standing at the end of the street. They just looked at me funny and walked away.
+
+That’s when I knew: whatever it was, it was here for me.
+
+The next time I fell asleep, I woke up in a new reality. And it was there.
+
+It doesn’t speak. It doesn’t run. It just stands there, watching. Always just far enough away that I can pretend I’m imagining it, but I know better.
+
+Every single time I shift, it finds me again.
+
+I don’t know what it wants. Maybe it’s hunting me. Maybe it’s the will of the universe itself, sent to fix the mistake of me. Because let’s be honest—something like this isn’t supposed to happen. I shouldn’t be slipping between worlds like a glitch in a broken video game.
+
+I’ve been using my ability to run. Every time I see it, I force myself to sleep, hoping I’ll land somewhere safe.
+
+But the truth is, I don’t think I’ll ever find a safe place.
+
+I don’t think I can keep running forever.
+
+Eventually, I’m going to wake up in a world that kills me first. Or the thing—whatever it is—will finally catch me.
+
+And the worst part?
+
+I have no reason to believe there’s a reality out there with the answers I need.
+
+I’ve already accepted I’m never going home.
+
+So I’m posting this here, because maybe someone else has seen the signs. Maybe you’ve noticed little changes, things you can’t quite explain.
+
+If you have… don’t ignore them.
+
+I’m going to sleep now.
+
+I just hope that wherever I wake up next… isn’t worse than here.
+
