@@ -1,102 +1,18 @@
-# I Wake Up in a Different Reality Every Time I Sleep
+# i'm scared of my nephew
+I always thought of my nephew as just a nice, harmless kid. He’s 16, quiet, polite, never gets angry, never raises his voice. He doesn’t play sports, he doesn’t act tough, he just smiles that calm, unobtrusive smile. I’ve made fun of him for being so passive and so sweet. Then last night, it happened.
 
-I don’t know where else to post this. Maybe I just need to get it all down before I lose my mind. Or maybe, just maybe, someone out there is going through the same thing.
+We were walking home when a man came out of an alley. He was holding a knife. He asked me to hand him my bag. I froze. My nephew didn’t do that.
 
+I didn’t even see him move. One second, he was beside me, hands in his pockets. The next, the man was on the ground, making these horrible, cracking sounds. His knife was gone. His arm was twisted at a disgusting angle. My nephew put his knee on the man’s chest, and looked at him calmly, so calm
 
+The man pleaded. My nephew let go of me, stood as if nothing had happened, and watched the man walk away, groaning. Then he turned to me and said : “Are you okay?
 
-I don’t know when it started. The first time I noticed something was off, it was small. Tiny details I could ignore if I tried hard enough. Like how my favorite brand of cereal had a slightly different logo, or how my coworker’s last name changed overnight.
+I nodded, but I couldn’t stop looking at him. He wasn’t angry. He wasn’t shaking. It was like it didn’t mean anything to him. Like it wasn’t even an effort. I should have felt safe. He had just saved me. But all I felt was this terrible fear creeping up in the pit of my stomach. I had known him his entire life. I had watched him grow. I had held him as a baby. I had taught him things. And yet, as I stood there with him, I realized that I didn’t know him at all. I kept replaying it in my mind how fast he was, how easy he looked, how he didn’t even seem bothered by what he had done. It wasn’t self-defense in the way that normal people do. It was something else . Something I didn’t understand.
 
-At first, I figured I was just misremembering things. We all do that, right? The Mandela Effect. The brain playing tricks, making us swear something was different than it actually was. I shrugged it off.
+Then a worse thought occurred to me.
 
-But it kept happening.
+What if he got angry one day? He had never shown any aggression, never been violent. But now I know he doesn’t need to. He could do something before I even know it’s happening. If he can break a grown man that easily, what could he do to me? Or anyone else? I don’t want to believe he could hurt me. We’ve always been close. I love him. But I also can’t stop thinking about how cold he was at that moment.
 
-Every time I went to sleep, the world around me changed. It wasn’t obvious at first, just enough to make me doubt myself. The streets in my neighborhood weren’t quite in the right place. A movie I knew I had seen before suddenly didn’t exist. My mom’s birthday moved by a day.
+I told him I wanted to eat something, just to see how he would react, to see if I could get rid of this horrible feeling. We went to a small restaurant, sat across from each other as if nothing had happened. He ate as usual, talked as usual, and smiled as usual As if nothing had ever happened. I kept waiting for him to bring it up. To acknowledge it. He never did. He just laughed at a joke on his phone, and asked me if I wanted more fries.
 
-Still, I didn’t panic. I figured I was just stressed, or maybe my sleep was being affected by something. I made excuses, tried to rationalize. Until the day I woke up and found my brother sitting on my couch, controller in hand, playing Call of Duty like he used to.
-
-My brother has been dead for six years.
-
-I froze. I couldn't even breathe. I just stood there, watching him, waiting for my brain to catch up and make sense of what I was seeing.
-
-"Yo," he said without looking up. "Finally up? You were out cold, man."
-
-My stomach twisted. My brother, had died in a car accident when he was twenty. I went to his funeral. I saw his body in the casket. I grieved for him. And yet, here he was, acting like nothing had ever happened.
-
-I forced myself to speak. "Bro…"
-
-That was when he finally looked at me, his brows furrowing in confusion. "What?"
-
-It was him. His voice, his stupid lopsided grin, the scar above his eyebrow from when he fell off his skateboard as a kid. I felt like I was going insane.
-
-I had to get out of there. I muttered something about needing air and stumbled outside, my legs barely carrying me. My hands were shaking. My breathing was erratic. I leaned against a tree, trying to force my brain to work.
-
-In this world, he never got in that car. Maybe I never called him that night. Maybe something I had done in my original world changed, and that one tiny thing was enough to keep him alive here.
-
-That was when I knew for sure: this wasn’t just in my head.
-
-I was shifting realities.
-
-
-
-After that, the changes became more drastic.
-
-One morning, I woke up and saw a notification pop up on my phone: President Kanye West to hold emergency press conference.
-
-I thought it was a joke. A deepfake, an internet prank. But when I turned on the news, there he was, at the White House, talking about foreign policy like it was just another day.
-
-The next time, the moon was gone.
-
-I don’t mean it was hidden behind clouds. I mean it literally didn’t exist. I asked people about it, and they all looked at me like I was crazy. The tides still moved, the nights were still dark, but no one remembered there ever being a moon in the sky.
-
-I tried to figure it out. I started keeping a journal, writing down everything I could remember before I went to sleep. I experimented—stayed up for days at a time, used caffeine to keep myself awake, but it never mattered. The moment I finally gave in to exhaustion and slept, I woke up somewhere new.
-
-No matter what I did, I couldn’t stay in one place.
-
-Then, just as I was starting to accept my fate, things got worse.
-
-It started following me.
-
-
-
-I first noticed it in a reality that seemed almost normal. The only difference I could find was that all the traffic lights were blue instead of red and green. That was it. No dead brothers, no missing moon, just… blue traffic lights.
-
-Then, out of the corner of my eye, I saw it.
-
-It was tall, too tall. Its body twisted in ways that made my stomach turn. It didn’t have a face, at least not one that made sense to my brain. Every time I blinked, it seemed to shift, like it wasn’t bound by the same laws of reality as everything else.
-
-No one else saw it.
-
-I tested it. I asked a stranger if they saw anything weird standing at the end of the street. They just looked at me funny and walked away.
-
-That’s when I knew: whatever it was, it was here for me.
-
-The next time I fell asleep, I woke up in a new reality. And it was there.
-
-It doesn’t speak. It doesn’t run. It just stands there, watching. Always just far enough away that I can pretend I’m imagining it, but I know better.
-
-Every single time I shift, it finds me again.
-
-I don’t know what it wants. Maybe it’s hunting me. Maybe it’s the will of the universe itself, sent to fix the mistake of me. Because let’s be honest—something like this isn’t supposed to happen. I shouldn’t be slipping between worlds like a glitch in a broken video game.
-
-I’ve been using my ability to run. Every time I see it, I force myself to sleep, hoping I’ll land somewhere safe.
-
-But the truth is, I don’t think I’ll ever find a safe place.
-
-I don’t think I can keep running forever.
-
-Eventually, I’m going to wake up in a world that kills me first. Or the thing—whatever it is—will finally catch me.
-
-And the worst part?
-
-I have no reason to believe there’s a reality out there with the answers I need.
-
-I’ve already accepted I’m never going home.
-
-So I’m posting this here, because maybe someone else has seen the signs. Maybe you’ve noticed little changes, things you can’t quite explain.
-
-If you have… don’t ignore them.
-
-I’m going to sleep now.
-
-I just hope that wherever I wake up next… isn’t worse than here.
-
+And I sat there, staring at him, and realized I didn’t know who he really was. And that terrified me.
