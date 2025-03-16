@@ -1,38 +1,19 @@
-# It Watches Me At 3 AM
-It started a week ago. The first message came at exactly 3:00 AM from an unknown number:
-“Stay awake. When you see me, it’ll be too late.”
+# I need help seeing my wife again
+I'll start off by saying that I'm into horror and have been for most of my life which is why I’m posting here. I met my wife in highschool, and we got married shortly after graduating. Now I'm alone again. My wife was everything to me, and now she's gone. I feel like I'm nothing without her, and I didn't even get to say goodbye before she left. It's been 2 months since she was taken from me and I'm racked with guilt so if any of you have any ideas on what to do so I can see her, I'm all ears. I don't know if there is a God or something, but if there is, I don't want anything to do with him. He let my wife die and I can't forgive that, so unless you know of a God that will let her respond, I respectfully don't want to hear it. As for things I have tried, I tried using a Ouija board a week or two ago along with some so-called professionals that can commune with the dead. It was just a waste of money. None of them could give me our inside jokes, traditions, or confirm how we met. They’d just lie to me, so I don’t trust spiritual mediums.  I did get the Ouija from Hasbro, so I don't know if there's a special ritual or blessing you have to do. Maybe I have to get a new one, or maybe an old one? I'm also open to any safe and/or effective rituals, nothing illegal or dangerous unless it's nearly proven to let you talk to the dead. I'm going to look for more things, but I want something effective.
 
-I sat up, confused. My room was dark, quiet, except for the faint hum of my phone. I stared at the message, half-asleep, convinced it was some prank. I turned off my phone and went back to sleep.
+To give more background to anyone who wants it, my wife fell down our stairs and died a few hours before I found her. I was at work and came home to what was my worst fear. I hate to say it, but looking back, I think I became more codependent than I would have liked. Maybe we were both codependent. We went everywhere together, did everything together, and she has lit up my life every moment she’s been nearby. 
 
-The next morning, my phone felt cold in my hand, like it had been sitting in ice all night. When I looked at the screen, I froze. There were fingerprints on it. Smudges. But they weren’t mine. I live alone.
+My closest friends, my best men at our wedding, live a state away and they have their own lives (I’m pretty sure they don’t use reddit.) I don’t want to call them up just to ruin their day, so I usually stew alone in my home. I've really let myself go over the past painful months. All I do is sit around unless I have to talk to someone or go somewhere. As morbid as it sounds, sometimes I just sit on those stairs and hope my wife will come to haunt me, but the house is always quiet. That's the worst part.
 
-That night, the second message came:
-“I’m watching you.”
+I’m not scared of creepy things. I love horror and feeling creeped out. Especially now that I don’t have my light anymore, so send creepy rituals as well. 
 
-I sat up instantly, heart pounding. I scanned the room. The door was closed. The window shut. Everything looked normal, but the air felt… wrong. Heavy. I checked my phone, but there was no sign of any app or contact associated with the messages. My stomach twisted.
+My wife on the other hand wasn’t as brave. She’d sit through it with me, but She hated every moment of Child’s Play. Instead we would watch romance movies. We would sit on the couch and hold each other and make fun of characters or make comments to each other about our favorite memories together. Those movies used to make me so happy, even if they didn't make sense. I guess the only upside is I can get back to watching creepy stuff alone. It helps having a distraction, but the movies finish, and no matter how terrifying they are, I almost wish I was in them rather than living how I am now. 
 
-Then my phone buzzed again. The camera app opened on its own. My screen showed nothing but darkness. I squinted, leaning closer… and then I saw it. In the corner of the screen, barely visible, was the faint outline of a figure. Still. Silent. Watching.
+My dreams have been getting worse though. I’ve always been a vivid dreamer, but now that she’s gone I only have 3 dreams. 1) I forget she’s dead and dream about having a nice meal with her or watching the sunset or something just to wake up and feel the cold bed and that slight dip where she would lay. 2) I get a few minutes to speak to her spirit. Sometimes she tells me it’s okay and it isn't my fault. Sometimes, when my mind really hates me, I dream she’s angry that I didn’t save her or didn’t make the stairs safer. (I don’t know how to lucid dream, and I don’t think it’s really her.)  3) Sometimes I dream of that moment or some parallel universe where she’s dead in front of me, still lifeless, but in some strange location like a warehouse or a field. I can’t eat, I can’t sleep, and I can’t even play the games I love because like a habit, I always do my best to create a character that resembles her. Too bad I wasn't the artsy one. Maybe then they'd look exactly like her. I also think I see her as I walk around the house. It’s just glances, but I can almost see her in the corner of my eye.
 
-Every night after that, the messages kept coming. Always at 3:00 AM. Each one more unsettling than the last:
-	*	“You’re so still. Are you even breathing?”
-	*	“Hold your breath. I’m listening.”
-	*	“When you close your eyes, I come closer.”
+I just want some ideas, suggestions on what to do now. I’ve tried therapy and I just lie. I say I’m fine but I’m not. I feel like I need to see her again. I need to talk to her one last time, then maybe my nightmares will be over. Before anyone asks, yes, I consider joining her every day, but I made a promise to her. I promised that no matter how hard life got, no matter how far away we were, I’d always remember her, and do my best to be happy and live for her. As mad as she is now- if she’s even mad at me- I know she would be PISSED if I showed up before my time, but she never said I couldn’t contact her.
 
-I barely slept. The house felt colder. Shadows seemed darker. One night, I heard soft scratching at my window. My heart raced as I grabbed my phone, turned on the camera, and pointed it at the glass. The screen showed only blackness… until two pale eyes blinked back at me.
+That’s it, that's my story so far. If you know ANYTHING about how to contact the dead, please tell me. DM, comment, recommend a website, a book, a shaman, anything. I know there are risks, and I don’t care anymore.
 
-The worst part? No one believed me. I showed my friends the messages, the fingerprints, the weird glitches with my phone. They shrugged it off — “a bug,” they said. “Just change your number.” So I did.
+To sum up: my wife was my world and now it’s been shattered so send me your ideas on how to bring her back, or just talk to her… even for a moment.
 
-It didn’t help. The first night with my new number, at 3:00 AM, the messages started again:
-“You can’t get rid of me.”
-
-That was the night I decided to record everything. I left my phone propped up against the wall, camera pointed at my bed. I barely slept, but I kept my eyes shut, pretending to be asleep. In the morning, I checked the footage.
-
-For the first three hours, nothing. Then, at exactly 3:00 AM, the screen flickered. The air seemed to ripple, like the room itself was breathing. And then… it appeared.
-
-A tall, thin figure stepped out of the shadows. Its limbs moved unnaturally, joints bending too far, each step a silent, jerking motion. It stopped at the foot of my bed. I watched as it stood there, unmoving, for the next hour. Then, slowly, it turned its head toward the phone. Its face was pale. Hollow. Eyes black. And as it stared into the camera… it smiled.
-
-The last message came last night. My phone didn’t ring. It just… lit up. The camera turned on by itself.
-
-I saw my reflection… and standing behind me, that thing. Long, thin fingers reached for my shoulder.
-
-I dropped the phone. I didn’t turn around. I still haven’t. But every time I breathe, I feel the cold whisper of someone else’s breath on the back of my neck.
