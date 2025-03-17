@@ -1,19 +1,62 @@
-# I need help seeing my wife again
-I'll start off by saying that I'm into horror and have been for most of my life which is why I’m posting here. I met my wife in highschool, and we got married shortly after graduating. Now I'm alone again. My wife was everything to me, and now she's gone. I feel like I'm nothing without her, and I didn't even get to say goodbye before she left. It's been 2 months since she was taken from me and I'm racked with guilt so if any of you have any ideas on what to do so I can see her, I'm all ears. I don't know if there is a God or something, but if there is, I don't want anything to do with him. He let my wife die and I can't forgive that, so unless you know of a God that will let her respond, I respectfully don't want to hear it. As for things I have tried, I tried using a Ouija board a week or two ago along with some so-called professionals that can commune with the dead. It was just a waste of money. None of them could give me our inside jokes, traditions, or confirm how we met. They’d just lie to me, so I don’t trust spiritual mediums.  I did get the Ouija from Hasbro, so I don't know if there's a special ritual or blessing you have to do. Maybe I have to get a new one, or maybe an old one? I'm also open to any safe and/or effective rituals, nothing illegal or dangerous unless it's nearly proven to let you talk to the dead. I'm going to look for more things, but I want something effective.
+# Do you see the lights?
+I don’t know if I’m the last person on earth, so please someone respond.
 
-To give more background to anyone who wants it, my wife fell down our stairs and died a few hours before I found her. I was at work and came home to what was my worst fear. I hate to say it, but looking back, I think I became more codependent than I would have liked. Maybe we were both codependent. We went everywhere together, did everything together, and she has lit up my life every moment she’s been nearby. 
+ 
 
-My closest friends, my best men at our wedding, live a state away and they have their own lives (I’m pretty sure they don’t use reddit.) I don’t want to call them up just to ruin their day, so I usually stew alone in my home. I've really let myself go over the past painful months. All I do is sit around unless I have to talk to someone or go somewhere. As morbid as it sounds, sometimes I just sit on those stairs and hope my wife will come to haunt me, but the house is always quiet. That's the worst part.
+I’m unemployed at the minute and hadn’t woken up until 1:00. Maybe that’s what saved me initially, though I’ve never been one to open my blinds. It was just a normal day, I got up, took the unlabeled pills and sat at my desk, booting up my PC. Across three apps, over a hundred people and at least four countries, surprisingly no-one was active.
 
-I’m not scared of creepy things. I love horror and feeling creeped out. Especially now that I don’t have my light anymore, so send creepy rituals as well. 
 
-My wife on the other hand wasn’t as brave. She’d sit through it with me, but She hated every moment of Child’s Play. Instead we would watch romance movies. We would sit on the couch and hold each other and make fun of characters or make comments to each other about our favorite memories together. Those movies used to make me so happy, even if they didn't make sense. I guess the only upside is I can get back to watching creepy stuff alone. It helps having a distraction, but the movies finish, and no matter how terrifying they are, I almost wish I was in them rather than living how I am now. 
 
-My dreams have been getting worse though. I’ve always been a vivid dreamer, but now that she’s gone I only have 3 dreams. 1) I forget she’s dead and dream about having a nice meal with her or watching the sunset or something just to wake up and feel the cold bed and that slight dip where she would lay. 2) I get a few minutes to speak to her spirit. Sometimes she tells me it’s okay and it isn't my fault. Sometimes, when my mind really hates me, I dream she’s angry that I didn’t save her or didn’t make the stairs safer. (I don’t know how to lucid dream, and I don’t think it’s really her.)  3) Sometimes I dream of that moment or some parallel universe where she’s dead in front of me, still lifeless, but in some strange location like a warehouse or a field. I can’t eat, I can’t sleep, and I can’t even play the games I love because like a habit, I always do my best to create a character that resembles her. Too bad I wasn't the artsy one. Maybe then they'd look exactly like her. I also think I see her as I walk around the house. It’s just glances, but I can almost see her in the corner of my eye.
+Pretty soon after my home Wi-Fi started bugging out, I shouted down at my mother. We’re not always on good speaking terms, but in that moment, I wanted something. She works from home and even after phoning repeatedly, I got nothing. For a second or two I considered looking out of my window at our drive to see if the car was still there, but a sound from the backdoor alerted me to another presence.
 
-I just want some ideas, suggestions on what to do now. I’ve tried therapy and I just lie. I say I’m fine but I’m not. I feel like I need to see her again. I need to talk to her one last time, then maybe my nightmares will be over. Before anyone asks, yes, I consider joining her every day, but I made a promise to her. I promised that no matter how hard life got, no matter how far away we were, I’d always remember her, and do my best to be happy and live for her. As mad as she is now- if she’s even mad at me- I know she would be PISSED if I showed up before my time, but she never said I couldn’t contact her.
 
-That’s it, that's my story so far. If you know ANYTHING about how to contact the dead, please tell me. DM, comment, recommend a website, a book, a shaman, anything. I know there are risks, and I don’t care anymore.
 
-To sum up: my wife was my world and now it’s been shattered so send me your ideas on how to bring her back, or just talk to her… even for a moment.
+It could have been two, maybe three people all repeatedly knocking on the backdoor. The rhythmic tapping growing louder, to the point that it sounded like they were slamming into the door. Multiple voices asked in an unsettlingly calm manner the same thing.
 
+
+
+‘Come outside, see the lights.’
+
+
+
+Their voices melding with others as more and more added to the chorus of pleas. They begged and begged, each voice piercing deeper into my mind. I wanted to check the ring doorbell camera, but my hysterical mind was already conjuring up a mob of formless creatures, just waiting for me to fold under a tectonic level of pressure. Each ram shook the house as it threatened to collapse, paralleling my own psyche.
+
+
+
+All of a sudden, the voices stopped, and a shallow, almost breathy question trickled through the barely holding backdoor.
+
+
+
+‘The lights are beautiful. You should open the door. Don’t you want to join us, Ryan?’
+
+
+
+The house was surrounded by voices, probably everyone from my street, or even the town. What if I’m all that’s left. What use would there be hiding in this corner. She’s always trying to get me out, maybe for once I should listen.
+
+
+
+My heads spinning, the light from my phone only causing the palpitations to increase. Notifications filling the screen, on the verge of bursting forth and flooding my empty room. Each message parroting the cacophony of echoing voices and their calls drilled deeper.
+
+
+
+Curling into a ball besides my bed, the tsunami was on the horizon. The door isn’t indestructible, and I have no were else to run.
+
+
+
+As I’m writing this, the door buckled and I could hear them rapidly fill the empty house, scurrying around. Their extremely fast footsteps indicated their desire to seek me out and enlighten me as they’d been.
+
+
+
+Hopefully closing my eyes is enough, though the question ringing around my room is almost too enticing.
+
+
+
+With all they’d learnt and their overwhelming need to show us the lights, could I say no?
+
+
+
+If you’re reading this and still hanging on, then hopefully there are more of us barricaded, averting our eyes. Let me know where you are and hopefully, we’ll be able to meet up.
+
+
+
+I feel your fear, but don’t be afraid. You’ll understand when you see the lights.
