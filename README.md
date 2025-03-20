@@ -1,102 +1,30 @@
-# I Wake Up in a Different Reality Every Time I Sleep
+# The Shadow Figures Keep an Eye on Me
+I'm now an adult and haven't had any paranormal experiences in a long time. But as a kid I had multiple Shadow figures that watched me. 
 
-I don’t know where else to post this. Maybe I just need to get it all down before I lose my mind. Or maybe, just maybe, someone out there is going through the same thing.
+The first one was a nondescript, lanky, black void that would stand in the corner of my room and watch me sleep. It was so tall, its legs went halfway up my wall and the only way it fit in my room was bending its shoulders and head down. The feet were on the ground, the head, shoulders, and neck were on the ceiling.
 
+This one was the most common one I saw. I always slept facing my room terrified of what may happen if I turned my back on it. If I got the courage to jump out of bed and turn on the lights it would be gone. I turn them back off, still gone. I go back to bed... still gone. I close my eyes to go to sleep, opened them to check, it was back.
 
+Stuff like that wasn't every night, but fairly common for me. One time I was trying to sleep with my door open, I watched it walk through the living room. Place its massive hand on the top of my door frame, and bed down to peer into my room. This one set me over the edge, I jumped out of bed and ran to turn my light on. Unfortunately this thing was right next to the switch. By the time the light was on it was gone and I went to sleep on the floor of my moms room.
 
-I don’t know when it started. The first time I noticed something was off, it was small. Tiny details I could ignore if I tried hard enough. Like how my favorite brand of cereal had a slightly different logo, or how my coworker’s last name changed overnight.
+I would also see it occasionally in the hallway at night, but most times it was just in the corner of my room.
 
-At first, I figured I was just misremembering things. We all do that, right? The Mandela Effect. The brain playing tricks, making us swear something was different than it actually was. I shrugged it off.
+The next shadow figure I encountered was attached to another person. My father had a lot of issues when I was a child and often only saw him once or twice a year. The first time I ever saw it was over summer break. My grandparents flew me out to their house and I was going to be there for a few weeks. My dad wanted to see me. He sobered up and took a 36 hour train ride from Mexico to see me.
 
-But it kept happening.
+The first few days were normal from what I remember, and all the days after my experience were normal. But that night may have been one the most terrifying things I can think of in my memories. I was going to sleep in the backroom. There was a shadow figure in the corner, but not the one from my moms house.
 
-Every time I went to sleep, the world around me changed. It wasn’t obvious at first, just enough to make me doubt myself. The streets in my neighborhood weren’t quite in the right place. A movie I knew I had seen before suddenly didn’t exist. My mom’s birthday moved by a day.
+This one was smaller, probably taller than an average human, but nothing unnatural like the other one. Except this one was much more detailed, it's hard to explain how a shadow can have detail but I could tell he was well dressed, like a 3 piece suit well dressed, had a goatee, and a massive top hat on. 
 
-Still, I didn’t panic. I figured I was just stressed, or maybe my sleep was being affected by something. I made excuses, tried to rationalize. Until the day I woke up and found my brother sitting on my couch, controller in hand, playing Call of Duty like he used to.
+The presence of this thing set me on edge, but I had seen things before and just tried to go to sleep. As soon as I did I awoke in a dark hallway that stretched on as far as I could make out. After looking around an  ear piercing scream erupted from every direction, a women, dressed in all white with pale skin floated into view far down the hallway. She looked in my direction and flew at me. In what felt like an instant she was in my face then flew straight through me.
 
-My brother has been dead for six years.
+I woke up terrified, jumped out of bed and ran to the living room where my grandma and dad were talking. I stayed up with them until my dad went to bed and had no other incidents.
 
-I froze. I couldn't even breathe. I just stood there, watching him, waiting for my brain to catch up and make sense of what I was seeing.
+Next spring break my dad came to stay at my moms house for a few days to see me because he couldn't afford a hotel. On the last night of his stay he was on the couch in the living room doing stuff on his laptop, I was in my room with the door closed trying to sleep. 
 
-"Yo," he said without looking up. "Finally up? You were out cold, man."
+After some time my office chair, which was facing my bed, had the same hat man as last summer watching me sleep. Terrified by my last memories of him I jumped up and turned on my light. No one was there. Just an empty chair. I tried to lay back down with the light off but he was back. This time I ran out of my room and asked my dad to do his work in bed, I went to the top bunk to sleep. That night I woke up on the bottom bunk looking at my chair.
 
-My stomach twisted. My brother, had died in a car accident when he was twenty. I went to his funeral. I saw his body in the casket. I grieved for him. And yet, here he was, acting like nothing had ever happened.
+He was there. Watching me, a sick and twisted smile strewn across his face. I couldn't move. I watched him remove his hat. As he pulled it up it revealed a set of long horns. He had to lift the hat more than a foot to clear the rim of the hat from the tip of his horns. He placed it in his lap and continued to watch me. I don't know how long this went on, but I woke up on the top bunk in the morning.
 
-I forced myself to speak. "Bro…"
+The next year my dad had gotten sober and I never saw it again. Thinking back on why he did that I can't really say. But maybe that was it's way of saying goodbye, because my dad reverted back to his old issues after a few years but that thing was never around when I saw him.
 
-That was when he finally looked at me, his brows furrowing in confusion. "What?"
-
-It was him. His voice, his stupid lopsided grin, the scar above his eyebrow from when he fell off his skateboard as a kid. I felt like I was going insane.
-
-I had to get out of there. I muttered something about needing air and stumbled outside, my legs barely carrying me. My hands were shaking. My breathing was erratic. I leaned against a tree, trying to force my brain to work.
-
-In this world, he never got in that car. Maybe I never called him that night. Maybe something I had done in my original world changed, and that one tiny thing was enough to keep him alive here.
-
-That was when I knew for sure: this wasn’t just in my head.
-
-I was shifting realities.
-
-
-
-After that, the changes became more drastic.
-
-One morning, I woke up and saw a notification pop up on my phone: President Kanye West to hold emergency press conference.
-
-I thought it was a joke. A deepfake, an internet prank. But when I turned on the news, there he was, at the White House, talking about foreign policy like it was just another day.
-
-The next time, the moon was gone.
-
-I don’t mean it was hidden behind clouds. I mean it literally didn’t exist. I asked people about it, and they all looked at me like I was crazy. The tides still moved, the nights were still dark, but no one remembered there ever being a moon in the sky.
-
-I tried to figure it out. I started keeping a journal, writing down everything I could remember before I went to sleep. I experimented—stayed up for days at a time, used caffeine to keep myself awake, but it never mattered. The moment I finally gave in to exhaustion and slept, I woke up somewhere new.
-
-No matter what I did, I couldn’t stay in one place.
-
-Then, just as I was starting to accept my fate, things got worse.
-
-It started following me.
-
-
-
-I first noticed it in a reality that seemed almost normal. The only difference I could find was that all the traffic lights were blue instead of red and green. That was it. No dead brothers, no missing moon, just… blue traffic lights.
-
-Then, out of the corner of my eye, I saw it.
-
-It was tall, too tall. Its body twisted in ways that made my stomach turn. It didn’t have a face, at least not one that made sense to my brain. Every time I blinked, it seemed to shift, like it wasn’t bound by the same laws of reality as everything else.
-
-No one else saw it.
-
-I tested it. I asked a stranger if they saw anything weird standing at the end of the street. They just looked at me funny and walked away.
-
-That’s when I knew: whatever it was, it was here for me.
-
-The next time I fell asleep, I woke up in a new reality. And it was there.
-
-It doesn’t speak. It doesn’t run. It just stands there, watching. Always just far enough away that I can pretend I’m imagining it, but I know better.
-
-Every single time I shift, it finds me again.
-
-I don’t know what it wants. Maybe it’s hunting me. Maybe it’s the will of the universe itself, sent to fix the mistake of me. Because let’s be honest—something like this isn’t supposed to happen. I shouldn’t be slipping between worlds like a glitch in a broken video game.
-
-I’ve been using my ability to run. Every time I see it, I force myself to sleep, hoping I’ll land somewhere safe.
-
-But the truth is, I don’t think I’ll ever find a safe place.
-
-I don’t think I can keep running forever.
-
-Eventually, I’m going to wake up in a world that kills me first. Or the thing—whatever it is—will finally catch me.
-
-And the worst part?
-
-I have no reason to believe there’s a reality out there with the answers I need.
-
-I’ve already accepted I’m never going home.
-
-So I’m posting this here, because maybe someone else has seen the signs. Maybe you’ve noticed little changes, things you can’t quite explain.
-
-If you have… don’t ignore them.
-
-I’m going to sleep now.
-
-I just hope that wherever I wake up next… isn’t worse than here.
-
+I have more encounters but these were my two frequent occurrences growing up. And I was happy to leave them in my past. But recently my toddler has been waking up with nightmares and it takes her a long time to calm down. It has got me wondering if the figures that followed me didn't stop watching, but I just couldn't see them anymore.
