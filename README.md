@@ -1,20 +1,196 @@
-# The weight of a feather
-How do I begin this story or rather experience I suffered; there is no place I can find that will house me because she is right behind me when I get a little comfortable. I don’t know who she is but for some reason she had latched herself to me. A while ago I had given her a name Razormouth and went into witness protection but that lasted for a while before the team that was investigating was disbanded and I lost protection. All that time she was the scratching in the walls and the whispers that could be heard when I tried to sleep.
+# I work in the factory where they make cartoon mascots. I've never seen the process. Until now.
+The factory I worked in was huge, with thousands of cube-like machines. 
 
-The disappearances did not stop but they became sporadic as the police were actively looking for her. I tried to reach out to the detective about the appearances but they were dismissed. It was after the lifting of the protection when things became worse for me, the detective disappeared a week after being removed from the case. The policemen who responded to my call also disappeared only their remains were found later but no description on what was found. I feared for my safety so I ran to another town hoping that I could not be followed.
+I pressed buttons.
 
-This town was small and made up of the remains of old lumber workers, it was isolated and I found work at a store. Life seemed to get back to normal but I was still looking over my shoulder and it was good that I did. One winter while walking to a house for a delivery the snow fall was heavy and I could barely see 6 feet in front of me. I was using a flashlight to navigate as the house I was going for delivery was just 2 doors down from where I lived. It was cold and my bones ached from the chill, as I walked, I sensed that someone was staring at me. I tried to stop and look for the source of this feeling but the cold would go from creeping to freezing me if I stopped so I kept moving until I saw the shadow ahead of me.
+White meant ready.
 
-The profile was burned into my memory and I saw the right-hand waving at me like a greeting, I stopped and stared at it. I wanted to run but was frozen in fear, the figure came into view and that was when I finally saw who she was. She looked gaunt and her skin was pale, her gait reminded me of a miner hunched over and her hair was white with red streaks. My body began to shake uncontrollably, and I took an involuntary step back and, in the process, tripped and tumbled down. I tried to keep her in sight but lost it when I fell and hit my head on the pavement. It took a moment for that dizziness to clear but the cold was making things worse as my legs were numb from the cold. I began looking around for her and she was gone, I walked over to where she stood and there was a blood trail leading to the house I was to deliver to. I walked to the house and found the front door open, I pushed the door in and inside just like last time blood was everywhere. I rushed out to throw up and tried to regain control and when I finally looked up I saw her standing at the door. I tried to run but tripped over something in the snow.
+Red: Finished.
 
-She was rushing forward and I saw her smile, the teeth were like metal nails. I used my torch as baton to protect myself and tried to strike at her as she was upon me, I felt it connect with her hand and it was like hitting a tree branch. I recoiled and she used that opportunity to stab me with a spike and I screamed, that scream alerted and I heard a shout. Razormouth heard it too, she brought her face close to mine and I could see that her teeth were sharpened nails and I looked into her dead eyes. The stench of rotten flesh wafted from her mouth I tried to break away, she then slapped me and just as I lifted my hand for protection she took a bite out of arm just below the joint and tore off a chunk of muscle. I screamed and a shot rang out near me, she looked up and bolted from there, the neighbour had heard the commotion and came to see what was happening. Seeing me bleeding on the ground and the blood trail leading to the house he shouted back to his wife to call the sheriff. He came over to me and tried to help me, I told him to stay alert because she could be near.
+Yellow: Eject.
 
-“Who was that, you are bleeding. Look just stay put let me check the house.”
+When the machine was ready, I pressed:
 
-I tried to cover my wound but the pain and cold was making it worse, I almost passed out as I heard more people approach the house. I felt my joints stiffen and I tried to get up but fell again, I was trying to find some place to shelter as most of the people were too interested in the house and its former residents than me. I made it to the neighbour’s porch before passing out from the pain and cold.
+Forward.
 
-I woke up in the clinic bed and found the doctor and sheriff hovering over me. They were trying to talk to me but it was all a haze of words and I passed out again. I finally came to and found a deputy sitting on a chair across the room, he was reading a newspaper when he saw me awake. Rushing out he told me to stay awake and left the room, soon a nurse came in to check followed by the doctor. I was asked a bunch of questions by the doctor and was informed that a good chunk of meat was taken from my arm and it would take a long time to heal. In the process I would loose a lot of strength leading the hand to be all but useless.
+Forward.
 
-The sheriff showed up and he had his barrage of questions which I tried to answer as best as I could, he informed me that the scene in the house looked like a bear had gotten in and basically made a mess of the house. The old couple that lived there were basically chewed up and left to rot, I was lucky to survive the mad woman. I just wanted to leave now as I could feel her eyes on me when no one was around and when I looked out the window I could see a shadow hovering on the other side. Who was she I kept asking myself, for my safety deputies were stationed in my room as the sheriff said the killer might return to finish the job. All the while I kept thinking of what could have happened if I did not scream, my life hung in the balance and that balance was the trigger of a rifle.
+Left.
 
-A week later I was formally released from the clinic and was taken to my lodgings, I was asked to wait as a state trooper went through the house to check. I was finally allowed in and when I walked around I saw something out of place in the kitchen, the refrigerator had a note stuck on it. “I have a taste, now I will finish the meal.”
+Forward.
+
+I waited three minutes, then I hit eject.
+
+It paid well for what I did, which was sit and press buttons. I got the job straight out of high school. 
+
+I did initially want to be a mascot, but apparently, I don't have what it takes. 
+
+However, I was offered a job in maintenance making mascots. 
+
+I had a screen showing me a bird's-eye view of the machines down below, but I didn't actually see the process. 
+
+I figured it was boring, anyway. We were just making costumes. 
+
+The screen displaying the footage was locked. 
+
+Unless there was an emergency, I didn't see anything. 
+
+The music drove me mad.
+
+It was *loud*, especially during processing.
+
+It was always that same tune, *When you wish upon a star*, on repeat. Which was so loud, I started taking my own headphones and laughing to my own music. 
+
+Two weeks ago, I had a headache, so after pressing the usual buttons (forward, forward, forward, left, forward), I reached for my coffee, taking a scorching sip—
+
+Spilling it all over myself, and the control panel.
+
+Pulling out my earbuds, I grabbed a napkin; my gaze glued to the panel which was toast. Right in the middle of processing product#127890. 
+
+I was about to stab the emergency button under my desk when the music… stopped. That constant tune (dah-dah-dah-dah-dahhhh) slamming into my brain came to an abrupt halt, and something else cut through the uneasy silence. I never questioned the music. 
+
+I secretly believed in the conspiracy that the song was played over and over again, to subtly drive workers to work harder. 
+
+But now the music had stopped, something felt wrong. 
+
+Initially, I thought it was a machine acting up—but no. 
+
+Something ice-cold wriggled down my spine. 
+
+*Screams.* 
+
+I could hear agonizing screams. And  because the panel was toast, the mechanics were messing up. 
+
+When the locked screen flashed up, I found myself staring inside Unit 56. 
+
+All I could see was red dripping from the walls, the ceiling, spinning blades slowly descending from every angle, needles and saws inches from a guy. 
+
+Early twenties. I could see where the work had begun on his face, peeling a chunk of flesh from his cheekbones. 
+
+He stood with his arms by his sides, swaying, half lidded eyes glued to oblivion.  But after I stabbed a button with an eye symbol, he jerked suddenly, blinking rapidly, like he was waking up. 
+
+He was awake and aware, *inches* from a frozen saw. 
+
+The boy's lips parted, a guttural cry rattling my skull. 
+
+“What…”  He broke into a sob. “What's going on?” he whispered, straining against metal arms restraining him. 
+
+His cries fell into incomprehensible screams, guttural cries I wanted to block out. Slowly, when my brain was fully registering what I was staring at, my clammy hands slipped from my ears.
+
+Somehow, I thought it was my fault; that I hadn't done my job properly, and a worker had gotten caught inside the machines. 
+
+But the steel restraints wrapped around him were molded for a *human*. 
+
+I found my voice, despite my brain screaming. When you wish upon a wasn't played to help me work. It was played to cover the screams. 
+
+“Calm down, okay?” I crawled over to the panel, stabbing at buttons. 
+
+I was aware I’d puked, thick, acidic sludge running down my chin. “What's your name?”
+
+The boy broke down, and I noticed, my gut twisting, I could see his skull. 
+
+“Sam.” he whispered. He was wearing a an engagement ring. I saw it glittering on his index finger. “I want to go… home.”
+
+I couldn't respond, my hands trembling, tearing at my hair. 
+
+I could barely feel my own fingernails ripping hair from my scalp. 
+
+“Why can't I feel anything?” Sam sobbed. 
+
+I tried every button, but the panel was locked. 
+
+I couldn't lift the metal bars restraining his torso. 
+
+I couldn't save him. 
+
+I was ready to go down there, and free him manually, when my talkie came to life. “Eleanor?” My manager's voice crackled through my talkie. 
+
+“If there's a problem, press the overload button, and soon, please. The entrails need to be disposed of. The cleaner needs to be dispatched.”
+
+I couldn't move.
+
+Couldn't breathe.
+
+“Get him out of there.” I managed to whisper. 
+
+It's like she was completely ignoring me. Like she was used to people disobeying her. “Eleanor?” My manager repeated. “All right, I'll continue processing from my end.”
+
+No.
+
+“No!”
+
+“Please report to my office after your shift. There will be disciplinary actions against you.”
+
+I dived forward, and a guard entered, immediately restraining me, forcing my arms behind my back. 
+
+I screamed, hysterical, but they wouldn't let me go. The control panel lit up bright red, and Sam started screaming again. 
+
+I heard him spluttering out my name. But his cries didn't last long. 
+
+“Sam.” I lunged forward, but the guard violently yanked me back, muffling my screams. 
+
+I just stood there, FORCED to stand there, watching the machine continue, mercilessly slicing through Sam, splitting his bones apart, and stuffing his remnants, including his brain, into a shiny new Flynn Ryder costume. The flaps of skin resembling lips spread into a joyful grin. 
+
+“J-just can't-get my n-n-nose right!”
+
+“Eject the product, Eleanor.”
+
+I managed to shake my head, paralyzed to the spot. 
+
+“No.”
+
+Her sigh crackled through the speaker. “Eject the product, or you are *fired*.”
+
+When I refused again, she did it herself, and then fired me on the spot. 
+
+On the screen, a brand new Flynn Ryder mascot walked out.
+
+And a red haired girl, caught up in a trance, slowly walked in. 
+
+Ariel. 
+
+The screen flashed white, and I had no fucking control over it. 
+
+*Ready*. 
+
+Forward.
+
+Forward.
+
+Left.
+
+Face the spinning blades.
+
+*Forward.*
+
+Before I could stop myself, I lunged forward and stabbed STOP. 
+
+I heard the sound of blades coming to a halt, and that was enough. 
+
+But I couldn't do anything past that. I was dragged out of there. 
+
+After a sit down with my boss, she made it very clear that if I said anything, my family would be in danger. 
+
+I went home and tried to end it. I stood in front of my bathroom mirror and I couldn't stand kneeling the truth about those things. I keep seeing Sam. 
+
+I keep wondering who he was–if he had a family, a significant other, or siblings. 
+
+In my head, I go back to that slaughterhouse. I'm back in my office, during the processing. 
+
+And this time I managed to stop it. I take Sam home. 
+
+Instead, I just stood there, fucking hopeless. I  couldn't save them– and to Sam’s family, I am so fucking sorry I let you down. 
+
+Look, I've spoken to my therapist, and she suggested writing things down. 
+
+So, I am. I'm writing everything I can remember. 
+
+But I'm BEGGING you. When you get the chance, please just take a second look at the Disney mascots. 
+
+There's a human inside. Even if they're twisted beyond recognition. 
+
+And I'm sure, somewhere deep down, whatever left of them is screaming to be let out.
+
+Just don't ask for its real name. Walk away and don't look back.
+
+Or, like me, you will go insane.
