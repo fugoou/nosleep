@@ -1,275 +1,88 @@
-# My Friends and I Found an Abandoned Oil Rig (Part Two)
-[Link to Part One](https://www.reddit.com/r/nosleep/s/iRNUBSBRbh)
+# Mom Always Kept the Lights On
+It started on my 8th birthday. That’s when Mom began to be afraid of the dark. After my party, we cleaned up together. I was still a kid, but I’d started to realize just how hard life had been for her. I didn’t know the details, I barely even knew the broad overview of the story, but I knew she’d been through a lot. I pitched in where I could, doing little things like cleaning up to try and make life a bit easier for her. We were almost done cleaning when it happened for the first time. She walked into my bedroom to put some of the gifts in there. The lights were off. 
 
-As the doors to the lander sealed behind us, I sat down nervously on the pristine metal seat directly across the interior. The bulky box was robust, and although serviceable, its design far favored utility over comfort. 
+I still remember her shriek. It remains nestled deep within my mind, permanently hidden in some forgotten crevice. It sounded like an animal caught in a trap, desperate and pleading. I was in the kitchen, putting away the dishes and getting ready to take out the trash. It pierced through the whole of my being and left me firmly planted there. A part of me wanted to run to help her. She was my mom and I cared about her more than anything else. 
 
-We sat in the dark for only a brief second, as the overhead lights buzzed on. As they did, I turned to look over to Maria, who sat between Julian and I. Fearful tears ran down her face as she trembled.
+But most of me was too afraid to do anything. My mom was the strongest, bravest person I knew. If something scared her, I wasn’t sure I wanted to find out what it was. For about a minute, I was standing right where I was. Her shrieks kept reverberating in my ears, the only sound I could hear. I’m unsure if my brain was just repeating that initial cry out of shock or if she’d kept screaming over there, but it was all I could hear. 
 
-It hadn’t taken much deliberation for us to decide we all should go down. The lander was clearly watertight, and if we got down to the bottom and decided that we weren’t in a position to go on further, a control panel mounted to the door guaranteed we had the option to return to the surface at any time. Mark had suggested that maybe only a couple of us descended into the depths, but Savannah had pointed out that splitting up in an unknown situation like this was a far worse idea. It’s not like we had long to deliberate anyhow, the voice on the broadcast had told us we didn’t have any time to lose.
+Eventually, I snapped out of my shock and ran towards her voice. The door to my room was slightly ajar and her silhouette was just barely visible in the dim lighting of the hallway. I burst into the room, grabbed my mom’s hand, and yanked her out. I didn’t look inside, I’m not sure if that was a conscious decision or just an oversight in the rush. 
 
-A rumble. I felt the taut cord holding us up slack for a moment, dropping us maybe a few centimeters before I felt us begin to slowly lower. Maria let out a whimper, gripping Julian’s arm as though she never intended to let go. Mark only winced, while Savannah seemed to almost be enjoying herself. 
+At the start, I was leading her, but within moments, she was in front of me sprinting and almost dragging me along. Her screaming had stopped at some point. We ran out of the front door and sat outside by a street light. I looked down at my wrist, bruises dotted across it from how hard she’d gripped onto me. She called the police, frantically explaining that someone had broken into our house. I was too young to understand how frightening that thought was, too naive to fully grasp her fear. 
 
-After a few seconds, the cold rattle surrounding us stopped, and I felt the metal wall I’d rested my back against slowly turn cold to the touch. We had descended below the surface.
+The night blurred together after that, the mixture of my drowsiness and shock resulting in a deep confusion as to what was happening around me. I was surrounded by the red and white lights of police vehicles. They took statements from my mom and me, and, after sweeping the house, let us go back inside. My mom was terrified of returning, but she put on a brave face for me. Even back then, I could tell that she wasn’t really smiling. That she didn’t mean it when she said everything was ok. 
 
-No one spoke a word for the duration of the descent. The gravity of our situation wasn’t lost on any of us- we had illegally trespassed on what was evidently some sort of hidden facility. If we had opted to ignore the voice, to choose not to try and help, then we either willingly let someone die to protect ourselves, or risked him surviving just to rat us out for being here, or worse.  For the sake of our own skins and consciences we had to do this, right?
+My mom didn’t let me leave her side after that. She took me to her room and insisted I sleep there. We shared her bed that night, though it was a bit cramped. That was the first night she kept the lights on when we slept. She moved my bed into her room the next day, telling me I was to stay with her from now on. I moved to turn off the lights before going to sleep, and she screamed at me to leave it on. She said that she needed the lights to be on. I jokingly asked her if she was afraid of the dark. She replied with a serious tone and said that she was. She told me that I should be, too. 
 
-After several minutes, another jolt, and the submersible shuddered, groaning as it found a resting place. I felt the floor beneath my feet shift, as external locks docked our pod to some unseen structure below.
+I complained about the sleeping arrangement every night, but my mom didn’t budge. She didn’t allow me to sleep in a different room, and never allowed me to turn off the lights. Every night, I’d ask her why the lights had to stay on. I whined about how hard it was to fall asleep when the room was so bright. After a few weeks, she finally responded. She told me that the darkness was a world of its own. It hosted monsters, creatures that wanted nothing more than to drag me into it. The light would lock them away and keep me safe. I should always keep the lights on, she said. It was the only thing that would protect me.
 
-Suddenly, a voice rang from the small PA speaker mounted in the corner of the room. It was grainy and warped, as before, but the words could still be made out.
+Her warning scared me to my core. Sleeping was near impossible for me after that day. Every night I’d lie down in bed and picture the monsters kept at bay so close to my bed. Hideous shapes, with horns and hooves. Gnarled teeth and long claws. Two heads and uncountable arms. Grotesquely tall and inhumanly large. They absorbed the full size of whatever shadows I encountered. A child’s imagining of what evil looked like. I knew little of what real monsters looked like. 
 
-“Alright, alright perfect! I knew you guys would come! Your capsule is connected to the facilities systems now, so I can wire in and guide you to me without having to depend on the radio transmitter. Here in a few minutes, the docking portal will finish its sealing process and the port hole will open in the middle of the floor in front of you. Careful, the ladder down will be slippery.”
+My imagination kept growing as I grew up with that fear festering inside me. Sometimes I’d see a face come out of the shadows’ edge or a figure take form within them. Clothes in the closet, a chair at a strange angle, a tree outside our window. Anything and everything morphed into nightmarish shape when it came in contact with my terror. 
 
-Mark stood up out of his seat.
+When I turned 10, my mother made me go back into my room to sleep. Friends and relatives had commented on our strange sleeping arrangement and advised her I needed my own space if I was to develop into a functional, independent adult. She told me I would have my own room, but I had to keep the lights on at all times. She didn’t have to remind me, her singular warning from years ago had traumatized me in a way that I’d never forget. There’s something deeply unsettling about seeing fear in your parents. These were the strongest people in your young life, the ones you’d go to for help when you were scared or uncertain. When they give you a warning that grave, with terror in their eyes and desperation in their voice, it etches itself permanently into your memory. 
 
-“Who are you? We’re coming down to help if we can but we need to know what we’re getting into. What is this place?”
+It took me a while to get used to this setup. The first night, I didn’t sleep at all. I was too afraid. I felt like my light grew dimmer as the night went on. That the shadows in the corners of my room were growing stronger and larger. The second night started off as a repeat of the first. I couldn’t sleep and found myself scanning the room with paranoia. At one point, I saw my closet door open, a pale hand wrapped around its wooden frame. I tried to be brave, to convince myself monsters weren’t real. Then I saw the man step out from behind the door, draped in shadows and embodying my every fear in his eyes. I screamed louder than I ever had, my pubescent voice cracking as I forced out every last molecule of air from my lungs. 
 
-There was about thirty seconds of silence from the system, before the voice hummed to life once more.
+My mother was in my room in an instant, not even bothering to check around the room or speak to me. She dragged me out of bed and rushed me outside. We were at the same street lamp outside our home as we were two years ago. The same bruises had bloomed on my wrists, like old scars resurfacing. She called the police and they went into our home, yet again. They told us they found nothing and that we should return now. 
 
-“I should mention, there’s no microphones on your guys end, so I can’t hear a word you’re saying. There’ll be cameras throughout the facility so I can make sure you’re heading the right direction. I’m going to make a… guess, however, and say you’re probably wondering who I am. I’ll be honest, I don’t have a satisfying answer for you yet but I promise to explain everything I can when you get here. Good luck.”
+My uncle visited the next day after my mom insisted. He pulled me aside and sat me down. He told me that my dad had hurt my mom in some really bad ways. The man had left a mark on her that still haunts her to this day. She sees him in places he couldn’t be. She was scared of him and projected him onto everything. She was seeing dad in the shadows when there was nothing there. My uncle told me I was the man of the house now, and I had to keep my mom safe from whatever she was imagining. He said I’d have to show her that there was nothing to be afraid of. I had to be strong for her. 
 
-Julian stood up suddenly. “Nope. No way, no WAY we’re going any further with this weird shit. I didn’t sign up for this, none of us did. I don’t trust whoever the hell is talking to us, and neither should any of you.”
+I nodded and told him I would, lying with enough confidence to convince him. I wanted to be strong, of course I did. But how could I? I was scared, too. I saw something the night prior and it terrified me. It didn’t matter if no one else saw it, I did. 
 
-He moved to press the button that would return us to the surface, but before he could, an aperture opened in the middle of the room, trickling water slowly down into  a hatch with a ladder.
+My uncle and a few cousins stayed over that night. Some of them slept in the living room and others in my room. For the first time in many, many months, I felt safe as I slept. With so many people around me, I knew nothing could get to me. 
 
-Julian rolled his eyes, and pressed the button anyways. A buzzer beeped, and an automated voice rang out from the PA above. 
+My mom’s shriek pierced through my peaceful sleep and abruptly woke me. I heard countless footsteps move as my cousins and uncle ran into her room. Once the sounds of running had died down, there was silence for a bit. And then yelling. Indecipherable, but clearly argumentative. After a few minutes of my uncle and mom screaming at each other, silence finally returned. My uncle visited my room to speak to me again. 
 
-“WARNING: UNABLE TO RETURN TO SURFACE AT THIS TIME. PLEASE DETACH FROM DOCK AT SUBLEVEL 01. SURFACING WILL THEN COMMENCE AFTER DEPRESSURIZATION PROCESS COMPLETES. ESTIMATED TIME TO DEPRESSURIZATION: TWENTY-EIGHT HOURS.”
+He said that my mom claimed to see my dad in the closet. When he went into her room and searched inside, there was nothing but an old coat. She was just seeing things in the dark. She was hysterical, my uncle said. She was losing it and she was too stubborn to get real help. He told me that I’d have to take care of her, to show her that there was nothing to be afraid of. They all left the next morning, leaving only me to take care of my mom.
 
-Savannah stood up out of her chair. 
+She would wake me with her screams maybe once a month and I’d go over to her room to nervously investigate. There was never anything there. Some days it was a coat, other days a pair of boots or a chair. But it was never what she claimed to see. Every false alarm helped reinforce the idea that it had all been in our heads. It took me a while, but I slowly grew past my fear. I still kept the lights on, but it felt like more of a habit than a fear response. I had finally begun to sleep soundly. 
 
-“Wait, 28 hours? It took us 5 minutes to get down here, what do you mean 28 hours?!”
+Eventually, I convinced her to see a psychiatrist. She was making real progress there. I was proud of her. She was moving past some really deep seated trauma and working through the horrific damage my dad had caused her. She apologized to me frequently for scaring me like that as a kid. I always told her it was OK, that I didn’t hold anything against her and that I loved her. 
 
-I winced. “It’s… it’s the pressure,” I muttered. “The deeper we go, the more time our bodies need to adjust before coming back up. I—fuck, I should’ve thought of this before.”
+It was almost my 17th birthday when we began to grow comfortable with the dark again. It’d been over a year since her last episode. She was smiling again. We’d stay up some nights and watch movies together. I’d still see her eyeing the dark corners and occasionally sleep with the lights on, but it was never anything beyond that. Nothing I deemed alarming. At least until the morning of my birthday. I got out of bed at noon and was lazing around in the living room when I realized I hadn’t seen my mom yet. I walked into her room to see what she was up to. 
 
-“So what, we just wait?” Savannah snapped.
+It was chaos. Pure entropy. It was wholly unlike her to leave the room this messy. It made no sense. Everything was out of place. It looked like there’d been an earthquake or something. That’s when I realized something critically important. She wasn’t here. I scoured every last inch of the apartment before calling her. She didn’t pick up once. I called everyone I could–friends, family, neighbors, co workers–no one had any idea where she could be. I called the police and I filed a missing persons report. They came by and searched our house and took notes. I always expected her to return at some point. She never did. 
 
-“If we go up too fast…” I swallowed. “Our blood starts to boil.”
+Everyone told me she’d run away. Even her psychiatrist told me she likely had a strong episode and decided to leave as a fear response. I guess I believed them. My uncle became my legal guardian, though he didn’t really involve himself much. What I inherited from my mother was enough to finance me and he didn’t mind me staying at my old home. He was nice enough about everything and often asked me to live with him, but he understood that I couldn’t just leave this place behind. Leaving here would feel like cutting all ties with my mother. It would be like admitting she was gone, accepting that she wouldn’t come back. I couldn’t bring myself to do it. 
 
-Mark turned to me. “That’s a pretty big deal to just forget, man. If it’s going to take a whole day and change just to go back up, that only leaves us ten hours to go and get this guy and come back before the pilot swings back around. We definitely don’t have enough food and water to last the extra week before his next try ‘round.”
+I think that’s why I stayed even when the darkness started to ripple and flow. It became fluid; a liquid black that flooded the home every night. Living alone had reignited my fear of it on an instinctual level. I was leaving all the lights on out of fear again. I felt like a caveman, huddling around a fire to keep mythical beasts at bay. It got bad one night, I saw monsters in the shadows again. I was too old to be seeing this, mere months away from graduating high school. I was ashamed of myself, reduced to little more than that 8 year old boy who had to sleep next to his mother. 
 
-Maria stood out of her seat, and quickly walked over to the ladder to begin her descent. We all sat looking at her for a moment before she spoke. 
+I awoke in the middle of the night and was certain I saw a figure at the foot of my bed. I did my best to hold in my scream, to conquer my fear. It might have come out as a choked gag or choppy gasps, but it didn’t come out as a scream. It felt as if the figure vanished at my awareness of it, the noise frightening it back into the void it came from. I turned on my phone’s flashlight and scanned my room. There was nothing. Of course there was nothing. But I was still scared. 
 
-“Well, if we only have 10 hours, we’d better hurry. Come on!”
+Though it's embarrassing to admit, I walked over to my mother’s room that night. I hadn’t been in there much since she’d left, it was a painful reminder. But I hadn’t gotten rid of her stuff either. It was in the same state the police crew had left it in. A confusing mess, much like my own emotions about her disappearance. I lied down on the left side of the bed, the half I’d slept on about a decade ago. She always insisted that she needed to sleep on the right side, that it was her half. I slept peacefully that night, dreaming of her, of our family. 
 
-We each made the descent into the chamber at the bottom of the ladder. I was the last one down, and as I reached the floor below our feet, I examined our surroundings. We seemed to be at the end of a circular hallway. At the end, a set of stairs descended about five feet where a platform sat, and a bulkhead door waited for us. 
+When I woke up, my back ached. I thought I must’ve slept wrong or turned weird or something. As I slowly got out of bed, I realized what it was. There was a lump in the mattress. A lump right under the very spot I was sleeping under. I pulled back the sheets and uncovered a deep cut made into the mattress with a wooden box stuffed into it. I pulled out the box and opened it. It only contained two things–a journal and a gag. 
 
-Mark, Savannah, and Maria had already begun to walk down the hall. As Julian turned to follow them, I grabbed his shoulder with my hand.
+What the fuck? 
 
-“Hey, Jule, we need to talk real quick.”
+I opened the journal and was immediately horrified. Every entry was an account of an episode. Fears and visions and self-assurance. She never stopped seeing him. The episodes continued, she’d just forced herself to be quiet. She gagged herself to keep the screams at bay. She was worried that she might be considered insane. That she might lose custody of me. She’d tortured herself to keep me from worrying. To keep everyone from worrying. She kept it all to herself and then she just vanished. 
 
-“Now? We don’t exactly have a lot of time, make it quick.”
+I cried for hours that day. It was a mix of guilt and loneliness and shame. And fear. The fear came at the tail-end of it all. When I stumbled across an earlier entry, I found her describing her vision in detail. She must’ve stopped doing it later to help avoid the visions. She described what she saw as a crooked exaggeration of my father, a man I’d never seen. She described his tall figure and skinny frame. She talked of angry eyes and a permanent scowl. She feared his silent rage, the scars it had left her and some of the new ones that the visions did. Some nights, her hallucinations grew stronger. There were nights he’d strike her through the shadows. Her mind went so far as to even imagine the bruises and pain the next morning. I felt my gut wrench at that revelation.
 
-I let his shoulder go, and he turned to face me, his expression full of annoyance.
+I knew those bruises. I saw them on her, too. She’d told me they were the result of vitamin deficiencies and blood conditions and whatnot. I’d believed her, why wouldn’t I? She was my mom, after all. But why did she lie to me? Why did she go on thinking that she was hallucinating them if I saw them, too? Did she think she was imagining me asking? That she’d imagined me caring? I spent hours in that bed, confused and afraid. Attempting to piece it all together. 
 
-“Look I don’t think any of us want to be down here. This was supposed to be a fun trip, and now we’re actually in some real potential danger.”
+I didn’t even notice that night had fallen already. I hadn’t left the bed all day. I put the box on the night stand and decided to lie down, rolling over to her half of the bed. I didn’t even have the mental energy to worry about the darkness. I was too caught up with concern for my mother. Too wracked with guilt for even fear to take root. But fear finds a way.
 
-“Yeah no shit dude, I didn’t know that any of this was here. I’m in the same boat as you, I thought this was a normal rig like the one I was on.”
+I woke up in the middle of the night. Cold and sudden. Afraid. My hair stood up and goosebumps spread like wildfire across my skin. Void rippled and broke, and I saw him slither out of it. Tall and lanky and cloaked in shadow. I saw him walk across the edge of the room, where the black was strongest. I saw him take his first step out of it, his first step towards me. He stopped right there, just a stride closer to me. His eyes looked at me, studied me, before he stepped back into the dark and left. 
 
-“I know you do. That’s why we brought you here, remember? You were only allowed to come because you were useful, because you’d be able to pull your weight. But we’re not in your territory anymore, so you have a different job now.”
+I was nothing more than a child again, longing for my mother’s guiding hand. I read her journal, desperately scouring for any advice she may have left me. But it seems she didn’t know much more than I did. The only shield she had ever used was the light. A single lamp being her only defense against whatever that creature was. I was unsure if this would work, but it seemed I had no other options. 
 
-“Oh yeah, what’s that, asshole?”
+I left all the lights on that night, and it seemed to have done the trick. He didn’t show himself. I thought I was safe, I convinced myself that the light was enough. The lie was reinforced by my continued success. He didn’t return for the first few days. I found myself wondering if maybe I had just hallucinated it, too. If my mom’s paranoia and the trauma of her absence had blossomed into this delirium. There was no such thing as monsters and ghosts, I was just being childish. 
 
-“As long as we are down here, keeping Maria safe is your only priority. If shit hits the fan and I’m not able to protect her, I need you to swear with your life that you’ll put her first.”
+But he returned about a month later, walking through the light like it was nothing. The lamp flickered with each step and the shadows grew longer. He had come a few steps closer to my bed before retreating back into the black. I knew then that my mom had lied. The light had never been enough to protect us, it had just helped her feel safe. I was afraid again. The fear had returned to me and it was greater than ever. I couldn’t bring myself to brave another night in that accursed place. 
 
-He softened, the anger on his face slowly washing away. 
+So I hit the road. 
 
-“Yeah, man.. of course. Same goes to you though-“
+I went to a new hotel every night, endlessly on the move. Too cowardly to ever stay in one place. He’d never know where I was sleeping, right? So how could he ever find me? I was so sure it would work, maybe it was just my desperation that fueled that confidence. But it did work for a while. Almost a full year. However, I guess that initial doubt never left me. My fears of him remained, maybe even grew as he kept his distance. 
 
-“Of course. I’m glad we have an understanding.”
+He visited me in my dreams last week with the faintest smile on his lips. I saw him for the first time the next night, little more than a tiny shadow in the very edges of my room. He’s been getting closer since then. Getting stronger every night. Moving didn’t make a difference anymore, I think he caught on to that trick. I went as far as I could, I even took a flight. I tried prayer and pleading, confession and ritual. I turned to every deity and faith, desperate for any way at all to keep him away. None of it mattered. 
 
-We quickly caught up to the rest of the group, who had made their way down the stairs and had opened the bulkhead door separating us from the rest of the facility.
+Tonight, he's actually made it to my bed. He’s lying down on the other side. I can feel his weight on the mattress, now. 
 
-As we passed through, the overhead lights buzzed softly, casting long, flickering shadows. The air smelled old, damp, metallic. Somewhere deeper in the structure, I could hear the low hum of machinery, the steady churn of something big operating beneath our feet.
+It’s just a hallucination, right? My mind playing tricks on me? 
 
-We stood at the bottom of the access stairs, just past the bulkhead door. The passage ahead waited eagerly for us. 
+He’s not real. 
 
-Mark turned in a slow circle, his flashlight sweeping over the walls. “Okay, there’s no way that generator up top is running all this.”
+He can’t be. 
 
-Julian frowned, listening. “Yeah. No chance.”
-
-Maria glanced between them. “Wait—what do you mean?”
-
-Julian exhaled, shifting his pack. “I mean, what we got running last night should’ve barely been enough for emergency light and heat. That thing’s been sitting for years.”
-
-Mark crossed his arms. “We figured it was a long shot, that even if we got it on, we weren’t sure how long it’d last. Offshore rigs usually run on diesel, which doesn’t go bad the same way gas does, so we hoped there was a chance the reserves would last long enough for our trip. Thought we got lucky.” He gestured vaguely at the hall ahead. “This? This is way beyond that.”
-
-Maria blinked. “But… then where’s the power coming from?”
-
-Savannah raised an eyebrow. “I’m gonna go out on a limb and say something down here.”
-
-Julian exhaled through his nose, looking down the corridor. “Has to be something bigger. Another power source.”
-
-Something bigger. That phrase sat heavy in the air.
-
-Maria hesitated, then took a small step closer to me. “So… is that bad?”
-
-Nobody answered.
-
-Savannah grinned, sharp. “Only one way to find out.”
-
-She turned and kept walking. The rest of us hesitated, then followed.
-
-We walked for maybe a hundred feet or so before a fork appeared in our path. The passageway opened into a larger chamber, where three hallways split off in different directions. A rusted sign bolted to the wall labeled them:
-	
-SUBLEVEL MAINTENANCE (Left)
-PRIMARY RESEARCH WING (Right)
-HABITATION & OFFICES (Straight)
-
-“Where to, mystery man?” Julian muttered, looking around for a speaker or intercom.
-
-As if in response, an intercom in the corner of the room sputtered to life. The words were harder to make out than before, distorted and echoing. Whatever he was saying, it sounded intense, as though his message was urgent.
-
-Savannah tilted her head.
-
-“Do any of you understand what he’s saying? I can’t make it out.”
-
-The garbled speech cut out intermittently, and we stood puzzled, waiting for clarity on our direction.
-
-Amidst the static nonsense, my ear caught just one word. 
-
-Right.
-
-“You guys heard that too? Sounded like he said to go Right.”
-
-Mark furrowed his brow, and peered down the corridor leading to our right. 
-
-“Primary research huh? Wonder if the poor bastard got stuck monitoring data.”
-
-Maria lit up suddenly, and pointed towards the floor leading into the research wing. “Look, guys, footprints!” 
-
-Savannah pulled a flashlight out of her bag and illuminated the ground ahead. Indeed, tracks of briny water were faintly visible on the floor. They were difficult to make out in the dim lighting, but it appeared that whoever left them had been rushed, as several amorphous tracks weaved in and out of each other. As the we traced the trail of water out of the hall, the path curved around, ending abruptly against the wall next to the hallway entrance. 
-
-“Shit, looks like maybe he’s been here recently?” Julian shone his own flashlight, peering down each of the hallways.
-
-I sighed. “All of his tracks seem to be coming or going from Research, plus he said ‘right’, right?” 
-
-“Yeah, I think so.”
-
-“So right we go.”
-
-The research wing stretched out ahead, a dim, branching corridor lined with rusted pipes and corroded archways. The lights flickered more erratically than before, casting our warped shadows across the walls. The air was damp and stale, and something faint reeked the further we went in.
-
-We followed the water trail cautiously, our footsteps echoing against the steel floor. Somewhere behind the walls machinery groaned and hummed, a constant torrent of noise that assaulted my ears and tightened our pace. 
-
-“Anyone else feel like we’re walking into a damn haunted house?” Julian muttered.
-
-“Yeah,” Mark said. “Except you’re not actually in danger inside a haunted house.”
-
-Savannah snorted. “Tell that to the idiot in a clown mask who accidentally punched me last year.”
-
-Maria said nothing, her eyes darting nervously between the bolted doors we passed. The research wing had the feel of something abandoned hastily - in the few open doors, we could see chairs knocked over, papers scattered on the floor, monitors flickering and displaying readouts I couldn’t even begin to understand. 
-
-A burst of static crackled through a nearby intercom, making all of us jump. The voice was still completely unintelligible— static and the growing sound of rushing water still drowning out meaningful speech. But the emotion behind it was far stronger, more desperate than before. Panic.
-
-“—Ri… ru—ay—DO NOT—”
-
-As it cut once more, we all exchanged glances.
-
-“What’s he trying to say?” Maria whispered.
-
-“No clue. Is he hurt?” Mark asked.
-
-Savannah shook her head. “I don’t know. He sounded frantic, scared.”
-
-I swallowed, my throat dry. “He said something about ‘right’ before, but now he’s saying—”
-
-“‘Do not,’” Julian finished. His voice was tight.
-
-Silence stretched between us, thick and suffocating. The air felt heavier now, pressing in on my skin, making it harder to breathe.
-
-Mark pointed ahead. “Looks like the water tracks continue up ahead, into that big door. Let’s at least check it out before we decide to turn back.”
-
-I wasn’t sure we even had the option to turn back at this point, so onwards we went.
-
-It took three of us to open the massive door at the end of the hallway. As we breached its threshold, we found ourselves in an enormous, cavernous room. 
-
-It looked like a central hub for the research wing, a vast circular chamber with multiple exits leading off in different directions. The ceiling stretched at least fifty feet above us, lined with hanging cables and pipes. The walls were filled with observation decks, consoles, and what looked like vats, filled with an inky blue ichor. The entire room had a sickly rotting smell to it, the odor causing me to cover my nose upon entry. Condensation dripped from the ceiling, and the entirety of the floor was slippery with water. By far though, most striking feature was the pit in the center of the room. 
-
-Taking up almost the entirety of the floor, a gaping maw descended impossibly deep, only muted darkness  visible further down. Its sides weren’t plated steel, but solid, jagged rock. It dawned on me that this level of the facility must be mounted to the ocean floor, this cavernous hole bored directly into the seabed. The pit was surrounded entirely by robust guardrails, and snaking coils and wires rose from the darkness below, feeding into sensors and monitors all around the central rotunda. Hundreds of clear, pulsating tubes appeared to be siphoning the same blue liquid from the depths, slowly filling the vats in the room with the stuff. 
-
-Mark whistled. “Jesus.”
-
-Maria inched closer to the pit’s edge, peering down. “How deep do you think it goes?”
-
-Julian shook his head. “No idea, but I don’t like that we can’t see the bottom. Whatever’s down there absolutely stinks, though.”
-
-I moved toward the railing, gripping the cold metal, and squinted into the void. There was something about the way the cables draped into the abyss, like fishing lines waiting to pull something up.
-
-I stood staring into the void, and out of the corner of my eye I saw Maria, Julian, and Mark step away, 
-
-“We’ll check this side of the room,” Mark called. “See if there’s anything useful in those offices.”
-
-It made me nervous to split up, but they were only on the other side of the pit. 
-
-“Guess that leaves us the left,” Savannah said, nudging my arm. “Come on.”
-
-I hesitated, my gaze lingering on the pit. A part of me wanted to walk away from it, to ignore the gnawing sense of unease clawing at my chest.
-
-As I let go of the rail and turned to follow Savannah, something caught my eye. A movement in the depths.
-
-At first, I thought my eyes were playing tricks on me. The darkness down there was thick, suffocating, shifting slightly like fog over still water. But as I stared, I realized there was something in it. Something moving.
-
-Something rising.
-
-A shape, massive and sinuous, uncoiled from the depths like a snake. My breath caught in my throat as it breached the surface - a colossal, inky-black limb, studded with glistening malformed sores and riddled with thick, pulsating tubes, sucking the blue substance from its mottled veins.
-
-A tentacle, writhing and frantic. 
-
-And it was reaching for Maria.
-
-I opened my mouth to scream, but the noise barely escaped my throat. My body locked in place, frozen in horror as the thing lashed forward. She barely had time to react. 
-
-As she started to turn, eyes wide, mouth parting—then the tentacle struck. It coiled around her torso, squeezing tight with an awful wet crunch before yanking her off her feet. The air escaping her body warped her final scream, twisting it into a lifeless groan.
-
-The sound echoed, sharp and raw, as she was dragged beneath the pit’s edge. Julian lunged forward, grabbing her outstretched arm, but the force was too strong. His fingers slipped, and she was pulled into the abyss.
-
-There was only silence, and she was gone. 
-
-I stumbled back, heart hammering. My pulse roared in my ears, drowning out the horrified shouts of the others. Savannah gripped my arm in a vice-like hold.
-
-Then, as suddenly as the tentacle had appeared, a blue flash filled the room, arising from the pit below. The whole chamber was flooded with it, a pulsing glow that lasted less than a second. It wasn’t light, not exactly. More like a ripple in the air, a distortion that moved through the room. The air shimmered, thickening like a pressure wave before vanishing.
-
-The flash was the least of my focus however, and I began to run, tears uncontrollably streaming down my face as I struggled to make haste towards where Julian and Mark were. 
-
-“YOU PROMISED ME YOU’D PROTECT HER, I’LL KILL YOU, I SWEAR I’LL KILL YOU.”
-
-I approached the other side of the pit, stopping to wipe my eyes between sobs. As I looked towards the two of them with clarity in my vision, they stood, gawking at me as though I was crazy. Between them, Maria was back, standing exactly where she had been a moment before.
-
-“Dude, what the hell are you on about? Calm down.”
-
-I stumbled forward, gasping for air, my mind reeling. I had just seen her die. I had seen her dragged into the depths. I had heard the breath squeezed out of her lungs. But here she was, alive.
-
-“Eli?” Maria frowned at me. “What’s wrong?”
-
-I stared at her, chest heaving. “You— you were—”
-
-A deep, hollow sound rumbled from the pit, and I saw Julian’s eyes widen.
-
-I whipped around just in time to see the tentacle rise again, exactly as before. But this time, all of our eyes were locked on it. 
-
-Exactly as before, the limb writhed with malice, before curling its slimy end and extending towards my sister. Before it could reach her though, Julian braced himself, shoving her out of its path. As she fell to the side, the appendage recalculated, grabbing Julian instead.
-
-His strangled cry tore through the room as the thing yanked him off the ground, squeezing his chest with enough force I heard his ribs crunch under the pressure.
-
-His eyes bulged, locked onto mine as the tentacle ripped him away, disappearing like lightning into the dark.
-
-In the panic, I realized that Mark and Savannah had already taken off, attempting to run to the door and slipping in their step on the wetted floor. 
-
-I stooped down, reaching to pick up Maria who was dazed on the ground. She was soaked in the salty, slime-tinged water covering the floor. As I got her to her feet, the others had made it to the door, and were holding it open, screaming for us to hurry up and make it through.
-
-Through Maria’s wails, I managed to put her arm over my shoulders and helped her stumble towards the door. Mark and Savannah had crossed back into the hallway, and I shoved Maria through the doorway before I went through. As I rushed to close the door behind me, another blue flash shot through the room. 
-I turned, just in time to see Julian standing in the exact same spot as he had before, now alone - his expression one of sheer terror as the tentacle reached for him again.
-
-The door slammed shut between us, and the last thing I heard was his scream cut off with a blood-curdling snap.
-
-Mark held Savannah in his arms as she trembled, and Maria sat collapsed, inconsolable heap on the floor. We didn’t have time to wait though, we could stop when we’d made it to safety. 
-
-I pulled her up, and we began to run back through the hallway from which we’d came. It only took a few minutes before we reached the junction from earlier, and we let ourselves stop. Savannah hyperventilated as Mark ran his fingers through her hair, his eyes wide as he stared blankly into the research hall. Maria sat against a wall, choking with every breath as tears streamed between sobs. 
-
-The intercom crackled to life, the words finally audible again. 
-
-“NO, NO NO NO NO NO, I TOLD YOU NOT TO GO RIGHT, I TOLD YOU NOT TO GO THAT WAY!”
-
-I drowned out the incessant noise from the speaker, and collapsed with my back against the wall. I stared blankly at the trail of water which had led us into the research wing, the trail that curled towards the wall and ended in the spot where my sister now sat crying.
-
-[Link to Part Three](https://www.reddit.com/r/nosleep/s/QIXjDLBZNL)
+Please, don’t be real.
