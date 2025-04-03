@@ -1,163 +1,136 @@
-# My Estranged Father is Dying. He’s Been Ranting Incoherently
+# At first, the neighbours just stared. Now they’ve started to dress like me.
+Immaculate front lawns. Pristine white houses. No picket fences, because who the fuck has those in 2025? But still. A gorgeous neighbourhood. A suburban heaven.
 
-Have you ever been having the perfect dream, one where the world feels safe and kind for a moment, only to be jarred awake at the pinnacle of happiness by an alarm. You wake up melancholy, mourning a life you never lived. Then, back to the mental labor farm. Spiders paying the flies to build their webs. 
+That’s what the developers had promised when we checked out the new build. “This could be our forever home,” Ronin had beamed, as we walked away from the 4-bed, 2-bathroom, 1,490 square foot living accommodation spread over two floors with a converted attic, double glazed windows, private parking in the form of a spacious garage, and a south facing garden with patio from where you could sit and watch the sun set over a forested backdrop on a warm summer evening with your designated partner in life as your hypothetical 2.4 children play in said south facing garden with a joy and abandonment that most people can only dream of.
 
-That’s how it felt when I received the phone call. I’m an introvert and maybe not the best socially because of that. I stay to myself and keep only those I feel comfortable around in my life. That’s why I was filled with dread receiving a call from the ICF my father is in.
+I know, disgusting, right? But you know, look, we were at that stage of our lives. As was everybody else I knew. So, I just did what any decent millennial would do went along with it.
 
- I didn’t know much of my father, mostly just what my mother had to say. With the alcohol wearing her down to a shell of a human in my teens, she was practically lobotomised by the pain she felt. I wasn’t understanding or mature enough at the time to rationalize what she was going through. Talking of my father was a hair trigger for a gun that only fired at its wielder, in my mother’s case. His decline broke her. I suppose that’s why she never let me visit him. He never was a father. He was an anomalous entity floating in the ether of my young imagination as a what if. He was more akin to Santa or the devil in belief and presence in my life than a tangible parent.
+Fast forward 6 months, I’m sat in the passenger seat of a moving van, dressed in my comfy dungarees and favourite Fleetwood Mac t-shirt; my denim jacket is draped over the headrest. Ronin’s driving, still wearing that stupid grin he had when we first checked out the property – that stupid grin he always seems to have – and a plaid shirt and chinos; his sports jacket draped over his headrest (I know, horrendous outfit, right? I didn’t marry him for his dress-sense.
 
- Now that she’s gone and I’m an adult, the reemergence of my father’s existence weighed on me like a cancer diagnosis the same day as a pregnancy announcement. It wasn’t fear per say, but to say I was nauseous would be an understatement. I felt as if a parasitic worm had burrowed its way through my intestines one inch at a time laying eggs as it navigates my digestive tract. 
+Ronin’s recently gotten into easy listening; “Tonight You Belong To Me” is playing on the radio. It’s creepy AF and reminds me of the film “Jeepers Creepers”, and the old song that plays during it.
 
-I barely remember the phone call. Only snippets and blurs. I remember feelings and my automatic reactions to words but not saying or hearing anything. Vaguely, it went something along the lines of: 
+My Converse-ed feet are up on the dashboard, my head resting against the window; I’m contemplating all my disastrous past and future life choices.
 
-“Hi, is this Ryan?”
+We’ve navigated half a dozen of these suburban-dream streets with their lovely little white homes to get to our own. It’s quite apparent that the developers have delivered on what they’d promised. It’s no different from the brochures and the aforementioned model home we’d visited, with two exceptions.
 
-“Yes, this is him.”
+First, there’s a brilliant, red leafed bush sprouting from the middle of the front yard. Ours seems to be the only house that has one.
 
-“I’m your father’s primary Direct Support Professional. My name is Julie. Your father has taken a bit of a downturn in health recently. You may not be his guardian in a legal sense, but you are his next of kin. He requested you by name. He says a lot, mostly incomplete scattered thoughts. Although, he was very clear and adamant in regards to saying your name.”
+The second exception? The neighbours.
 
-From there, I shut off. Mostly “mhms” and “yeahs” escaped my mouth like death row prisoners scurrying past the guards only to be caught shortly after. I nodded a few times and had to clarify vocally that I understood because I forgot she couldn’t see me. The words were masks for anxiety and apprehension, but all amounted to acknowledgments and yeses to her ears. I was too caught off guard to say anything else. The call ended.  
+We pull up outside our house and that’s when I spot them. An old man and an old woman standing outside the house directly opposite ours. They’re quite some distance away – it’s a wide street – so I can’t make out much of the way in features, but the fact that they’re wearing all white makes them stand out. They stand side by side and seem to be just staring into the distance. Suddenly, they turn and make eye contact, startling me. I do what I think is polite, and give them a wave. But they don’t wave back. So, I just look away, unnerved. I think back to that day we visited the model home – we were the only ones there – well, the only prospective buyers. It was just us, and the developer, on his lonesome. Superficially charming, wearing a perma-grin, dressed in all white. I’d thought nothing of it at the time, it was a warm day, so why not?
 
-“11 AM Saturday?” I whispered to myself, questioning how I managed to set a day and time without being consciously present. I may not know him other than slurred insults and teary eyed shouting from my mother’s recounting, but he was….is…my father. If he doesn’t have much time left, I might as well honor his request. 
+“Ah!” Ronin exclaims, turning off the ignition. “Home sweet home! Let’s check it out, my lovely.”
 
-Since leaving school and graduating, time moved like reruns of a tv show out of order. Sure I recognize the characters, but now I don’t know where we are or what happened the last few months. You go to bed January first and wake up to hear it’s already the end of April. Then, its Halloween, and you have no plans. Oops, Christmas came, and you’re behind on gifts. Oh, back to January first. Wait was it still January this whole time? No, the year changed. One year older and still the same pay. 
+An hour later, we are in the living room. Boxes, books and clothes are scattered around the room. I’ve changed into a hooded top and pyjama bottoms, and chucked my denim jacket on to the sofa, next to Ronin’s hideous sports jacket. I take out a large framed photo from one of the boxes – its of myself and Ronin on our wedding day. I stare at it for a few seconds before placing it on the mantelpiece. I turn to look out the front window – I can see the house opposite, and outside it once again, that old man and old woman. Except this time, he’s wearing Ronin’s chinos and plaid shirt. And the woman – she’s wearing dungarees, just like mine. And they’ve now been joined by another old woman, but she’s in all white, just like they were earlier. They’re staring ahead into space, just like earlier. And just like before, they suddenly turn their heads in sync to look straight at me. I gasp, and reach out for the curtains and yank them across.
 
-That encapsulates the week leading up to seeing him. I worked and made small talk about my coworker’s kids or their new grill. I couldn’t tell you much else. I woke up, and it was Saturday at 7 AM. I usually don’t wake up until later, but sleep eluded me like the exit to a  never ending hallway. I was too anxious to eat, so my stomach grumbled yelling at me to have some food. My throat filled with liquid fear, telling me anything I tried to eat would be promptly used to choke me with vomit. I sat there for hours not knowing what to do to pass the time.
+I wonder if I’m just seeing things. Or, just not seeing the right things. The street is pretty wide, and those old people are far away. But I dare not pull the curtains back to have a peek. Not yet.
 
- 7:22
+Instead, I busy myself with more unpacking. An hour later, I’m feeling all that dust in my hair and up in my sinuses so I go upstairs to take a shower. The bathroom gets all steamed up and I open the window – and there they are, the three of them, staring ahead. The other two are dressed as before, but now the third lady – she’s wearing my hooded top and pyjama bottoms.
 
- Wait? 22 minutes? That’s how the next few hours remained as I cycle through apps on my phone only to instinctively reopen them to the same posts seconds later upon closing the app. I needed some water. My mouth was bone, and my tongue was sandpaper. The fridge was empty besides some expired milk. Had I forgotten to get groceries? This week really did fly by.
+“Ronin!” I yell. “Ronin!”
 
- The tap water came out brown at first. Not risking that. Better tell maintenance. Oh well, right? Not so bad. Almost time. I’ll grab a water from the vending machine when I head out. 
+The elderly gang look up and at me. I slam the window shut. Enter Ronin.
 
-8:15 AM
+“What’s up my lovely?” Then he senses something’s up. “Hey. You ok?” he asks.
 
- I guess I’ll just lay here and close my eyes. Thoughts were both too fast all at once and too slow to get to the point before my brain shifted to a new thought.
+I gesture to the window. “Just…look. Open it!”
 
- 9 AM
+He frowns. Complies. Peers out.
 
-I’ll just go early. Visiting hours aren’t until 11, but it’s an hour drive. I get down to the lobby of my complex and go to the vending machine for a bottle of water. The fluorescent light from the vending machine gave me a headache in the dimly lit, charcoal room. “Card Reader out of ORDER,” said the folded over, poorly taped index card attatched to the machine. I take the few crumpled bills I have out of my wallet. Each one is spit out. My dollar bills were discarded like bones from a constrictor’s last meal. 
+“Umm. What – what am I looking at, exactly, my lovely?” he asks.
 
-The outside was an overcast day just as gray as prison walls but above every person who decided to look up. I had a standoff with a car that couldn’t decide if it wanted to let me cross or not. The traffic behind them honked and decided for them. I ended waiting on the entire line of cars before I could walk to our parking lot across the street. Orange vests and cones brightened up the scenery with their loud machinery and yelling working away at the potholes in the lot. They gave me dirty looks before I got into my beat up car and pulled past them without reciprocating a look. 
+I take a look. The streets are empty. I slam the window shut.
 
-The hour drive dragged on as I tried to navigate unfamiliar roads a leading to a winding, complex parking lot. As I pulled in, I ignored the woman at the front desk and fast tracked towards the water cooler. Fuck, I forgot to take my pills. The feeling of the heavy gulp and strained swallowing reminded me. 
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
 
-I let her know who I’d be visiting and she gave my a smile so artificial you could preserve eggs for a year  with it. “Oh, really?” She squinted, “I’m sure he’ll be delighted to see you.” 
+Dinner time. Ronin makes a mess and a lot of noise when he’s eating; he loves it. But I’ve no appetite. The fuck are those people? Am I losing my mind?
 
-Eventually, I was outside in a common room with tables, games, chairs, and a few televisions. Some heavier set and older patients strolled around in walkers. Most seemed to be in their rooms, though. A woman in scrubs came out of a room with a few empty plastic cups. Her brown hair folded around the back of her neck like arches in the way it curled. She was probably in her mid or early thirties and had a smile I could actually believe. “Ryan? I’m Julie, one of your father’s DSPs. Just so you know, I think I’m his favorite staff,” she smirked and paused briefly. “You look just like him, the nose and everything.” She tilted her head slightly to the side. 
+The street’s wide and they aren’t close. Maybe I just need to get a proper look at them. So, my heads down, my dinners untouched and I’m on my phone. Amazon – let’s get some binoculars.
 
-I broke my nose getting knocked over by a Great Dane and smacking my face on a brick wall when I was 9. My mom didn’t like going to the doctor, so I never got it formally checked out. I snore pretty badly now. I told everyone at school that I broke it by fighting a 15 year old. I won that fight. Well, that’s what word around school would have been if I had friends to share the story. 
+But scrolling’s been a bone of contention in our marriage for quite some time. The chewing stops, the clash of cutlery on crockery stops. I can feel Ronin’s eyes on my scalp. I look up. His eyes lock onto mine, and narrow.
 
-Julie’s dark eyes bordered on black with an azure tint  swirling in them like the color in a magic 8 ball. I felt… safe. Reassured at the very least. I’d hope that someone in this line of work would have that effect. 
+“Didn’t we talk about phones during dinner, my lovely?” he asks.
 
-We talked, and she settled me down by asking me to sit at one of the circular tables in the middle of the room. It was covered in Uno cards with two hands of cards laying scattered. Looks like someone was winning by quite a lot. An elderly man in a blue robe and checkered pajama pants scooted closer to her, mumbling just barely to Julie. Certainly not any volume I could understand, but she perked up seeming to register his statement. “Lunch is at 12, Doug. You know this. Go on and get changed for the day, and it’ll be lunch in no time,” he grumbled slightly and spoke what I believed to be “okay” but sounded more like a phlegmy exhale. 
+“Ok, well, I mean – it’s not like you’re saying anything! If you have something to talk about then…” But he’s right and I know he is so I don’t finish that sentence and I put my phone down. We eat in silence for a few seconds until we both try and speak at the same time:
 
-She turned her attention back to me as more staff walked in from the hall, and another exited a bedroom with hands outstretched in gloves and a look of disgust on her face. After throwing the gloves off and vigorously washing her hands, she looked up at a clock ticking the time away with a sigh. For me the clock sounded like the cracking of ice below my feet counting down to the arctic plunge that is my meeting with my father. What I hadn’t noticed before now wouldn’t leave my ears like a gunman in a standoff with police over a hostage.
+“Do you – ” I start; “So, um – ” he begins.
 
- Click, click, chip, chip, crack, “Ryan,” click, click, “Ryan?”
+We both laugh nervously.
 
-“Ryan?” I looked back, honing my attention back to the conversation. “Long night?” I nodded, sucking in my lips to not let more embarrassment slip out of my mouth. “Your father his a sweet man when he’s cognizant. I want you to be aware what you might see when in his room. He slips in and out of awareness and thrashes in bed from time to time. If he’s not present with us mentally while we’re in there, he’ll be saying completely unrelated and detached things. Don’t be worried. His eyesight has been degrading over time and he’s attached to a feeding tube in his stomach. He used to be able to eat, but if he has one of his…episodes while eating it could lead to aspiration. It’s better to be on the safe side. Just talk calmly and ask questions. If he says something rude or out of line, he doesn’t mean it. Does that sound ok?” Her clinical delivery mismatched or initial aura of her comforting tone. 
+“Sorry go ahead,” he says.
 
-“Yeah….that…that’s fine.” 
+“Oh I just…out of curiosity – do you still have those binoculars? The one your brother got you?”
 
-“Great,” she smiled before dropping it to nod her head in acknowledgment with sympathetic eyes. Before I knew it that door was open and she was reassuring me that she’d be right outside the door if he or I needed anything. 
+That stupid grin returns to his face, but it’s taken on some wryness. I’ve been rumbled. And that pisses me off.
 
-I don’t know what I expected when I opened that door. I guess a sunken, hollow set of cheeks with speckled skin, and a balding head. What I saw was indeed hollow physically and emotionally. He stared blankly off into space with his mouth half hung open, his teeth hidden by parched, dry lips. One eye had progressed with a glossy blue-white film further than the other. She wasn’t kidding about his nose. It was freckled and drooping in age but curved to the left at the bridge like a meandering stream. Just an aged up version of mine. I looked at him with a grim admiration before being brought back down to earth with the sharp vibrations of his voice rattling my ear drums like the warning of a venomous snake. His voice was deeper than I assumed it’d be. “Juuuu….lie?”
+“Look, Ronin, it’s not funny!”
 
-I felt disappointed, sad, and anxious to face this at all. As I was about to speak, I was interrupted. “My son. Rine. Is Rine coming?” He couldn’t fully articulate my name, but the desperation and hope was evident in his voice. 
+He points at me, finger quavering. “I…see…dead people!” he whispers.
 
-“It’s me, Dad. It’s Ryan.” He pulled his blanket higher up under his chin and shifted his lost gaze back and forth, caught off guard by my unfamiliar voice. “Julie called me and said you wanted to see me.”
+“I mean if they appear and disappear, then they have to be ghosts!” I yell. I’m pissed off, and then immediately embarrassed as soon as I say my ridiculous theory out loud.
 
-He settled and looked past me. I sat in the chair placed by his bedside. “Rine, oh Rine, they told me to tell you. They told me to tell you. Oh, tell you…tell you,” he trailed off. He seemed saddened by his inability to remember. His demeanor shifted to solemnity. “I don’t remember. It was important.” He looked like a disappointed child not being able to remember the fun fact he learned at school he was sure his parents never could have known about dinosaurs.
+I try to speak a bit more calmly: “Aren’t you worried about someone watching us?” I figure it’s probably best not to mention they also appear to be dressing like us.
 
-“It’s ok, Dad. Take your time. I’m sure you’ll remember. I’ll be here as long as you need me.” I don’t know if I was being honest or pretending to be kind. My mother’s influence rubbed off on me, warping my perception like taffy in summer heat. 
+“Watching!” he shrieks in a high pitch whisper (I think its Gollum he’s going for). “They’re watching me!”
 
-“How are the Johnsons? Is their boy gonna be a pilot still. He loved his airplanes.”
+I push my plate away and stand up. It’s not lost on Ronin.
 
-“I don’t know who they-“
+“Oh, Stevie my lovely,” he stammers. “I’m sorr – ”
 
-“Your mother didn’t let you see me.” The stark shift in the air around his words cut like a butcher into meat. Fast, hard, and deadly. “I didn’t do anything. It’s not my fault. Cough, cough.” He looked like an old, worn down man. He wasn’t much older than my mother was. They may have had me later in life, but no man in his 50s should look this evaporated, this weak. 
+I storm out before he can apologise and try and explain himself. I head for the living room and slam the door behind me. I lean against it, close my eyes and take a deep breath in. All my disastrous life choices, past and future, appear before me like a slideshow from hell.
 
-At this stage, I wasn’t seeing the limiting factor or reasons for her hatred, her need for total separation. He just seemed like a sick man whose body has been degraded by illness. That was what I saw at first. Then, he froze. 
+I breathe out. I open my eyes. The room’s still a mess from unpacking. I glance at the window, then up at the wedding photo up on the mantel piece, Ronin in his 3-piece suit, me in my white dress. We do look good. Well, we did. On that day.
 
-His body became like snapshots of still images playing in succession. It was like trying to catch the light moving frame by frame as you hit the switch to turn it on. He was a marionette moving in staccato, jarring spasms. His mouth hung open, and the blind eyes rolled back to hide any color that may have been left at that point. He started speaking. 
+My eyes shift back to the window. I march over to it, determined. Determined to do what? I don’t know, but for a few seconds I feel determined. I yank the curtains open. To look down upon…
 
-His voice was strained and stretched thin around the environment around him like a glove that wouldn’t quite fit. A black echo of death and wetness enveloped my ears. 
+…an empty street. No elderly gang. No neighbours. Nobody.
 
-“Elaine….Elaaaaa….The trees…..the fire…RUN…ignore….don’t look……can’t…save…. ABOVE!”
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
 
-“Not….Animal….Not….ALIVE….Mo-”
+The next day I’m sat on the toilet, knickers round my ankles, bare foot, scrolling through Reddit. AMA? AITA? All the acronymised fun it can offer. Suddenly, my phone rings – a rare occurrence these days. I answer it.
 
-“SAVIOR…CONQ-”
+“Hello?”
 
-His voice hitched in a high pitch. The breath held on as if it ended, it would never exist again. The lights flickered, afraid of what they illuminated. They returned to normal, as did he.
+“Amazon delivery for you.”
 
- I looked around expecting the world to react the same way my heart had, rushed, frantic, and clumsily. Nothing changed. The birds still chirped. The machines still beeped. No one came in. My father still looked past me. My mother’s name isn’t Elaine. 
+“Ah! Thanks, just leave it by the door?”
 
-“Rine, you look the same as the last day I saw you.” 
+A few seconds later I hear a car pull away. I finish my bathroom business, and make my way down to the front door. I open it – there’s the box on the ground, but it’s clearly been tampered with. I can see the binoculars I ordered last night amongst the pieces of Styrofoam. I pick them up and survey them. The lenses – they’ve been scratched. I can’t see a thing out of them. I don’t dare look across the street, and instead hurry back indoors.
 
-He hadn’t seen me since I was a toddler at most. The years are hazy from a time where memories are more suggestions of fact from another than reality. He still wasn’t even looking AT me. “You got a haircut. Finally shaved that terrible mustache. Still the same. Still my boy.”
+A few hours later, and I’m doing it again. Marching. Determinedly. This time – for the first time – across the street. The cadence of my stiletto-ed heels clip-clopping on the ground indicate determination. I’ve splashed on a bit of make up on. I’ve ditched the baggy clothes for a white cardigan and floral dress. I’m carrying a cake box, and inside this cake box is…
 
-He shot up to 90 degrees with no creak of the bed or shifting of bones. His movement was silent. A vacuum, a void of noise, moving as if incorporeal. He turned his head to the side and began to stand. I was too panicked and stunned by the sight before me to react. He walked with a divine purpose and intent. He could walk through brick and the atoms would bend around him because they would be too afraid to disturb him. 
+…cake. Carrot cake, specifically. It’s time to meet the neighbours.
 
-He walked to a table on the far side of the room, dragging his gastronomy tube and pump with him. The rolling device fell on him without a flinch from him or a shift in demeanor. The tube pulled out of his stomach with an exhale of the balloon and no reaction or wince. Gastric acid and feed lightly bubbled and stained the ground in a yellow-brown rain of disinterest. He systematically moved his limbs as if puppeted by God himself with robotic, surgical precision. He could pick up a grain of rice with boxing gloves. He picked up a sheet of paper and began writing in it while maintaining a forward gaze to not look anywhere lest the world see him back. Upon finishing the writing, his body froze in military order and collapsed like a deflating balloon of meat and bones, a crumpling can in a hydraulic press.
+I’m marching across the street determinedly, but I’m also shitting it just a bit. And I almost completely crap myself when I come to the front yard of the house across the street – it’s got the same brilliant red bush sprouting out of it, just like ours. How is that possible? It hadn’t been there when we moved in; at least I hadn’t seen it – the street is wide but not that wide. I should have been able to see it.
 
-The caretakers and nurses began moving past me as my as my jaw lie on the floor. They maneuvered around it accordingly. I couldn’t hear anything but could feel the vibration of what would be sound if I could comprehend my senses. As they filed out to grab necessary equipment and moved his body to resuscitate him, my trance brought me to the note. My vision was a vignette with borders of my sight blackening to be hyper vigilant of what lie in front of me. 
+I walk up to the front door. Deep breath. I ring the doorbell. No answer. I knock. I wait. No answer. I go over to the window. Knock. No answer. Curtains are drawn. Back to the front door. Hand on the door handle – it opens.
 
-‘READ
+“Hel-hello?” I call out, as I enter the hallway. “It’s, uh – I’m just across from across the road? We just moved in?”
 
-FOLLOW
+A denim jacket and sports jacket – identical to mine and Ronin’s – are hung up on the wall. I reach out to touch them – they feel the same as ours too.
 
- COME’
+I can hear faint music coming from within the house – a tune I’ve heard before. I walk into the living room, and the music’s louder – it’s “Tonight You Belong To Me.”
 
-Below that was a brown, leather-bound journal. I didn’t consider decision making when my arm outstretched and shoved the journal into my pocket. 
+The layout of the living room is identical to ours. But there are no boxes. It’s not far off what we saw when we checked out the model home, but it’s now also well decorated and homely. Some flowers from the bush outside are in a vase on the mantel piece.
 
-Hours idled away sitting in an ill sized lobby chair. Julie came to me, the blue peeking through the black in her eyes had shifted from day to night, snuffing out the sapphire light. “I’m not supposed to be telling you this.” She grasped my arm clinging to it like the railing of a balcony. “We don’t know how this happened. His internal temperature elevated so high that his brain practically deformed and melted. His brain was cooked by his own body all at once. It was-“ she whispered, “it was fucking flash fried in the time it took for him to make it across the room. He didn’t have a fever. It wasn’t slow cooking him or detectable prior to this. It just…HAPPENED.” Her sorrow and disbelief came out in vocal skepticism and an unsteady pitch. 
+And above the mantel piece is our framed wedding photo – except someone has cut out mine and Ronin’s faces. I scream, the cake falls from my hands and I run.
 
-“Did he ever say anybody to you about a journal?” I rushed past comforting her and jumped straight into selfish, gnawing curiosity. Did you know that squirrels gnawing on power lines are responsible for a large portion of power outages? My words cut through, and I saw the lights shut off in her momentarily before warily answering.
+I seem to take an age to sprint across the street; it seems wider than ever. Or maybe it’s because you can’t really sprint in stilettoes, I don’t know. I just need to get inside and away.
 
-“Yes. He used to write in one all the time. Before his sight went, he wrote in it every time after one of his episodes. I didn’t want to invade his privacy, but he usually just mumbled the words he was screaming during the incidents as he wrote. He probably stopped writing in…December? That’s when he lost majority of his sight. So about 5 months ago.”
+I’m inside, gasping for breath. I slam the front door behind me, kick off my stupid shoes, and run to the living room. I close the curtains. I run up the stairs, I’m halfway up when I hear the doorbell. I stop. I try to breathe quietly. I creep up.
 
-“Thank you.” 
+Three LOUD knocks, and I can’t help but scream; and now I’m sobbing. I creep back down to the living room. I stand by the window. I’m crying but resigned to my fate. There’s a very gentle knock-knock-knock on the window. I slowly open the curtains. Outside, on the front lawn stand half a dozen men and women. Some are wearing my outfits – the dungarees, the floral dress, the cardigan; some are in Ronin’s. All of them are wearing masks – cut outs of either mine or Ronin’s face from the wedding photo.
 
-The drive home was longer than prior. I don’t remember any of it. so it might as well not have existed. I can’t recall one second of it, not one car, red light, or any traffic. I only remember sitting in my lot. The construction workers were gone. Now that I think of it, I don’t think I saw anyone out either. In the car, I flipped through the journal. Each page was all dated. Many pages were filled with scratchy writing that was hard to make out but legible. 
+And then I can hear it again – “Tonight You Belong To Me.” I turn. Ronin’s in the living room, cake box in one hand, flowers from the red bush in the other. He’s wearing a mask too, the cut out of his own face. Or is he? I can’t tell.
 
-These weren’t personal thoughts or a means to release emotions. They were all stories. These stories couldn’t be his own given what little I know about him. I flipped through further, and something caught my eye. The dates stemmed back years, but that wasn’t the full extent of it. I got to December. It was only halfway through the journal. After that, the writing was clearer. Perfect penmanship. Perfectly spaced. Impeccable.  The only clear distinction was that it only began after December. 
+“Hello my lovely,” he says. “What’s wrong?”
 
-I’m gonna read the entries when I have more time. I’ll share what I can in case anyone has a better idea or insight than I can provide. For now, I need some time to think. I need to share these thoughts with anyone who will listen. I can’t shake the urge to write them down since I’ve gotten home. 
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
 
+Over the course of the next few weeks, half a dozen men and women became several dozen became hundreds, all wearing masks of Ronin and me, all dressed in dungarees, plaid shirts, chinos, t-shirts of bands he never listens to, Roman sandals, that dress I bought in Bali…hundreds of them. Out in the front yard, across and then down the street. Just staring at us – well just me, because Ronin can’t see them, and I’m not sure they can see him.
 
+So, one day, I let them in. It was getting pretty crowded out there.
 
+The day I let them in, they just kind of…drifted into the house. Into our 4-bed, 2-bathroom, 1,490 square foot living accommodation spread over two floors. And every day they stand around, wearing those masks. Dressed in our clothes. Presumably, watching us. In the converted attic, and the spacious garage, whilst Ronin and I go about our day. Watching as we eat, watching as we sleep, watching as we shit and piss. Watching as we fuck. I tried ignoring them. I yelled at them a few times. Once, I hit one of them. They never respond, never speak, never hit back.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+10 years later, and they’re still with us. There must be millions of them now, drifting around Ronin and I and our 2.4 children. They’re here right now. As we watch the sun set. As our 2.4 children play in the south facing garden. With a joy and abandonment. That most people can only dream of.
