@@ -1,136 +1,132 @@
-# At first, the neighbours just stared. Now they’ve started to dress like me.
-Immaculate front lawns. Pristine white houses. No picket fences, because who the fuck has those in 2025? But still. A gorgeous neighbourhood. A suburban heaven.
+# I heard a ghost story about me
+True Internet Ghost Stories wasn’t my favorite pod, but i had nothing else to listen to. The gym demanded something to distract myself from the constant pain I was in on my quest to become the quadfather, so TIGS is was. I don’t think they used that acronym, by the way, but how could I avoid it? It sounded adorable. 
 
-That’s what the developers had promised when we checked out the new build. “This could be our forever home,” Ronin had beamed, as we walked away from the 4-bed, 2-bathroom, 1,490 square foot living accommodation spread over two floors with a converted attic, double glazed windows, private parking in the form of a spacious garage, and a south facing garden with patio from where you could sit and watch the sun set over a forested backdrop on a warm summer evening with your designated partner in life as your hypothetical 2.4 children play in said south facing garden with a joy and abandonment that most people can only dream of.
+The pod followed a basic formula: the host found an allegedly true scary story online and read it. He would add asides, comments like, did this really happen? He’d say, without any irony, so far this sounds so very true, but let’s see where it goes, listeners. He called everyone listeners, except for his co-host, whom he called Fellow Traveler. She only talked in the beginning and end of the episodes and they seemed to have some sort of complicated history, although I doubted it was romantic: their chemistry was terrible. 
 
-I know, disgusting, right? But you know, look, we were at that stage of our lives. As was everybody else I knew. So, I just did what any decent millennial would do went along with it.
+So after the first five minutes of discussing their respective weekends and plugging their patreon, they began to read the post. 
 
-Fast forward 6 months, I’m sat in the passenger seat of a moving van, dressed in my comfy dungarees and favourite Fleetwood Mac t-shirt; my denim jacket is draped over the headrest. Ronin’s driving, still wearing that stupid grin he had when we first checked out the property – that stupid grin he always seems to have – and a plaid shirt and chinos; his sports jacket draped over his headrest (I know, horrendous outfit, right? I didn’t marry him for his dress-sense.
+I was on my second set of split squats when I started noticing something strange about the story they were reading. It seemed oddly familiar. As it continued, the details kept amassing, to a point where I was unable to was a coincidence. It was describing something that happened to me, something I had never told anyone and had only gone through with one other person. 
 
-Ronin’s recently gotten into easy listening; “Tonight You Belong To Me” is playing on the radio. It’s creepy AF and reminds me of the film “Jeepers Creepers”, and the old song that plays during it.
+But everything it was saying was wrong. 
 
-My Converse-ed feet are up on the dashboard, my head resting against the window; I’m contemplating all my disastrous past and future life choices.
+I finished my exercises early, skipped the showers and drove home in a rush. I listened to it again when I got back to the apartment, the story echoing around the walls from my smart speaker. When it finished, I listened again. Halfway through I began to google key phrases, trying to see where they had found this story. 
 
-We’ve navigated half a dozen of these suburban-dream streets with their lovely little white homes to get to our own. It’s quite apparent that the developers have delivered on what they’d promised. It’s no different from the brochures and the aforementioned model home we’d visited, with two exceptions.
+Nothing, nowhere, no hits. It wasn’t online anywhere, or if it was, I couldn’t find it. In the middle of a clawing, desperate anxiety this drove me insane for some reason. Wasn’t this allegedly from the internet? If it was, there should be some kind of trace somewhere. But instead it was all dead ends. 
 
-First, there’s a brilliant, red leafed bush sprouting from the middle of the front yard. Ours seems to be the only house that has one.
+I googled the pod and found an email where you could send comments about the show or submit a story. It could have been submitted, but then I thought of the host saying this story was brand new. There was no way this was just submitted because the only other person other than me who knew this story, the person whose viewpoint the whole story was from, they couldn’t have sent the email in. 
 
-The second exception? The neighbours.
+My email to the pod was insane, partially capslocked, sent unedited in the context of an ever escalating panic attack. I demanded information about where they got the story, who sent it in, their contact info, anything.  I was surprised to get a response, although I guess the people who run a paranormal podcast are probably used to getting unhinged emails. They said they couldn’t provide me any personal info but thanked me for being a fan and linked their patreon. They said we are together on the roads I read the email as the episode kept playing. It was entitled A Long Drive Home and I listened again. 
 
-We pull up outside our house and that’s when I spot them. An old man and an old woman standing outside the house directly opposite ours. They’re quite some distance away – it’s a wide street – so I can’t make out much of the way in features, but the fact that they’re wearing all white makes them stand out. They stand side by side and seem to be just staring into the distance. Suddenly, they turn and make eye contact, startling me. I do what I think is polite, and give them a wave. But they don’t wave back. So, I just look away, unnerved. I think back to that day we visited the model home – we were the only ones there – well, the only prospective buyers. It was just us, and the developer, on his lonesome. Superficially charming, wearing a perma-grin, dressed in all white. I’d thought nothing of it at the time, it was a warm day, so why not?
+“I was in college, out of state, and I made friends with a guy in my dorm who, it turned out, was from around where I had grown up. I don’t want to give details. I’m sorry if this is vague. But I’m not comfortable with it. 
 
-“Ah!” Ronin exclaims, turning off the ignition. “Home sweet home! Let’s check it out, my lovely.”
+For thanksgiving break I was going to fly home, but he told me a few weeks before he was going to drive back and asked if I wanted a ride. The flight was expensive, and this seemed a much  better option. We both got along, lived on the same floor, saw each other pretty regularly. The ride was only five hours, not super long. We would split gas and avoid the airport lines. It felt  like a win-win. 
 
-An hour later, we are in the living room. Boxes, books and clothes are scattered around the room. I’ve changed into a hooded top and pyjama bottoms, and chucked my denim jacket on to the sofa, next to Ronin’s hideous sports jacket. I take out a large framed photo from one of the boxes – its of myself and Ronin on our wedding day. I stare at it for a few seconds before placing it on the mantelpiece. I turn to look out the front window – I can see the house opposite, and outside it once again, that old man and old woman. Except this time, he’s wearing Ronin’s chinos and plaid shirt. And the woman – she’s wearing dungarees, just like mine. And they’ve now been joined by another old woman, but she’s in all white, just like they were earlier. They’re staring ahead into space, just like earlier. And just like before, they suddenly turn their heads in sync to look straight at me. I gasp, and reach out for the curtains and yank them across.
+Our last classes were at noon on Tuesday, so we decided to leave then. We’d make it back by 6 or seven at the latest, depending on how often we stopped. I meet up in his room and we walked to the student parking lot. We had hung out a bunch as a group, but only a few times without anyone else. I was worried it would be awkward but everything felt normal.
 
-I wonder if I’m just seeing things. Or, just not seeing the right things. The street is pretty wide, and those old people are far away. But I dare not pull the curtains back to have a peek. Not yet.
+We drove off, getting onto the interstate after twenty minutes of driving. We had eaten before leaving, hoping to save some time.  The drive was uneventful for the beginning, listening to some playlist, then he put on a podcast.
 
-Instead, I busy myself with more unpacking. An hour later, I’m feeling all that dust in my hair and up in my sinuses so I go upstairs to take a shower. The bathroom gets all steamed up and I open the window – and there they are, the three of them, staring ahead. The other two are dressed as before, but now the third lady – she’s wearing my hooded top and pyjama bottoms.
+The pod was kind of weird. Some guy talking about how there are patterns in the world, and he travels back and forth looking for them. After a few minutes i asked if we could listen to music again and he said, just wanted to hear two more minutes.
 
-“Ronin!” I yell. “Ronin!”
+Even though it was cold outside the car had started to feel warm. The sun was coming through the windows and I was getting that overwhelmed, too hot in the car feeling. Vaguely nauseous, headache. The droning voice over the speaker didn’t help. I remember the guy saying  you know you are on the path when the world outside the path begins to vanish. The signs you are seeking are seeking you. 
 
-The elderly gang look up and at me. I slam the window shut. Enter Ronin.
+That’s when he turned it off. Indie pop filled the car again, but there was too much treble. I chugged some water and coughed. He asked if I was okay at the same time we passed a sign for a rest stop in two miles. I said I was fine, but wondered if we could stop there. Sure, he said, no problem.
 
-“What’s up my lovely?” Then he senses something’s up. “Hey. You ok?” he asks.
+Two minutes later we were there. The rest stop was desolate. One car parked at the far left of the lot. No one else. We pulled in next to the handicapped parking area and got out. I had been hoping the fresh air would make me feel better, but no go. I still felt overheated and anxious.
 
-I gesture to the window. “Just…look. Open it!”
+He said he had to use the bathroom and walked over to the desolate looking building. It had a low roof and was the grey bruised color of storm clouds. Behind it, an overwhelming forest loomed. Something about the unending aspect of the trees began to overwhelm me. How could I tell if they were even real? There would be no way to tell if they  just repeating images, one section of forest glitched, repeating infinitely.”
 
-He frowns. Complies. Peers out.
+When they walked out of the bathroom they went straight back to the car. I thought they would come over, say hi, be normal, but they didn’t. I took one last look at the trees, hoping they would stop looking like, well, the way they were. But they still seemed eerie. Turning to walk away, I happened to glance at the park bench and see there was a drawing on it.”
 
-“Umm. What – what am I looking at, exactly, my lovely?” he asks.
+A long red line, an arrow with points on both ends.  Across the top, strange words, Latin I think. Quisque suos patimur manes.
 
-I take a look. The streets are empty. I slam the window shut.
+I should have seen that before, i remember thinking, I had been right here. I would have noticed a drawing. But I hadn’t.”
 
-\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+Because there wasn’t anything there, I thought.”
 
-Dinner time. Ronin makes a mess and a lot of noise when he’s eating; he loves it. But I’ve no appetite. The fuck are those people? Am I losing my mind?
+But that was crazy. Things don’t just appear.”
 
-The street’s wide and they aren’t close. Maybe I just need to get a proper look at them. So, my heads down, my dinners untouched and I’m on my phone. Amazon – let’s get some binoculars.
+Do they?”
 
-But scrolling’s been a bone of contention in our marriage for quite some time. The chewing stops, the clash of cutlery on crockery stops. I can feel Ronin’s eyes on my scalp. I look up. His eyes lock onto mine, and narrow.
+He honked the car and I jumped. I looked back and I could only see his shadow behind the wheel.
 
-“Didn’t we talk about phones during dinner, my lovely?” he asks.
+Stay calm, I thought, as I trudged across the grass, away from the trees and picnic bench. You’re just weirding out. This is a normal day. Stop freaking out.”
 
-“Ok, well, I mean – it’s not like you’re saying anything! If you have something to talk about then…” But he’s right and I know he is so I don’t finish that sentence and I put my phone down. We eat in silence for a few seconds until we both try and speak at the same time:
+I got in the car and we started to drive. The podcast was back on and I didn’t say anything. He was completely silent, staring straight ahead. I closed my eyes, tried to relax. I hadn’t gotten a lot of sleep the past few days because of midterms. Maybe I just needed a nap.
+I’d fell better, I thought. As I drifted off to sleep I listened to the podcast. When we travel the roads, we think we are searching for answers, but what we must realize is that there are others who have been there before us, who are still there. When we go into the dark they are waiting for us, and it is they who ride down the long roads. We are passengers. We are spectators. We are hosts. 
 
-“Do you – ” I start; “So, um – ” he begins.
+The words faded as I slipped into sleep. Weird dreams, confusing images. A graveyard where people buried themselves. A school where secret doors contained passages into strange wooded areas filled with wolves and what looked like vampires. An ancient lighthouse where I waited for the end of the world to come in from the sea. 
 
-We both laugh nervously.
+The car jerked to a halt and I woke up suddenly. My mouth was fuzzy and i was disoriented.
 
-“Sorry go ahead,” he says.
+Where are we, I asked. A rest stop, he answered. I needed to take a break. 
 
-“Oh I just…out of curiosity – do you still have those binoculars? The one your brother got you?”
+Okay, I said, yawning. He opened the door and walked out. I blinked and then saw where we were.
 
-That stupid grin returns to his face, but it’s taken on some wryness. I’ve been rumbled. And that pisses me off.
+A low slung rest stop off the highway. One car in the distance. A picnic table. Never ending woods.
 
-“Look, Ronin, it’s not funny!”
+No, no, no, no, I started muttering, panic in my voice. This isn’t happening. This isn’t real. It’s a dream. Wake up, wake up, wake up. I screwed my hands into fists and banged my legs with them, scratched my palms with my fingernails. I had to do something to stop sleeping, stop dreaming. 
 
-He points at me, finger quavering. “I…see…dead people!” he whispers.
+The podcast was still talking, even though the car was off. 
 
-“I mean if they appear and disappear, then they have to be ghosts!” I yell. I’m pissed off, and then immediately embarrassed as soon as I say my ridiculous theory out loud.
+There are two worlds we know of, it said. The living and the dead. There are some who are in one or the other. Some are in both. We can move in each, but we must be careful. There are debts. 
 
-I try to speak a bit more calmly: “Aren’t you worried about someone watching us?” I figure it’s probably best not to mention they also appear to be dressing like us.
+I jumped out of the car. I didn’t run to the trees. I didn’t run to the building. Instead I jogged  across the parking lot, to the car at the other end of the lot. The sun was low in the sky and it seemed to white, giving off a dull shining glow, like silver. Was it even the sun? It didn’t feel like the sun. 
 
-“Watching!” he shrieks in a high pitch whisper (I think its Gollum he’s going for). “They’re watching me!”
+The other car was a black SUV with black windows. I saw myself reflected as I ran to it, but something about me looked wrong. I felt sick, suddenly nauseous. I stopped moving and waited. That’s when I saw him come out of the bathroom. His shadow wasn’t — I don’t know how to explain it. The sun was above and in front of him, so his shadow should have been behind him. But it wasn’t. It was in front of him, and it was stretching out across the pavement, long and skinny and strange, like black tape, getting closer to me while he stood, watching. 
 
-I push my plate away and stand up. It’s not lost on Ronin.
+My heart bursting, I ran to the other car, slammed my hands against the windows, screamed for help. 
 
-“Oh, Stevie my lovely,” he stammers. “I’m sorr – ”
+The car started. There was a whirring noise. The window came down. 
 
-I storm out before he can apologise and try and explain himself. I head for the living room and slam the door behind me. I lean against it, close my eyes and take a deep breath in. All my disastrous life choices, past and future, appear before me like a slideshow from hell.
+I was in the car, in the driver seat. It was the car I had driven there in. The me in the car looked at me and whispered “I’m sorry” and then the window closed and I fell down to the ground. 
 
-I breathe out. I open my eyes. The room’s still a mess from unpacking. I glance at the window, then up at the wedding photo up on the mantel piece, Ronin in his 3-piece suit, me in my white dress. We do look good. Well, we did. On that day.
+I don’t know what happened next, or how it happened but I was back at home. My mom said she ran out to the grocery store and when she got back I was there, on the couch. I didn’t ask any questions. I told her I was sock and went to my room. 
 
-My eyes shift back to the window. I march over to it, determined. Determined to do what? I don’t know, but for a few seconds I feel determined. I yank the curtains open. To look down upon…
+My phone was there, and there were a million texts and notifications. I started reading through them, they were asking if I was okay, if I had heard. 
 
-…an empty street. No elderly gang. No neighbours. Nobody.
+They said the guy I had driven back home with had posted a suicide note and killed himself. 
 
-\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+I don’t know what to do. That’s why I emailed this. Because I don’t think the person who died was really the person who drove me here. I don’t think I’m the person I was, or maybe there’s another me somewhere. I could swear I heard my voice downstairs a few minutes ago, talking to my mother.”
 
-The next day I’m sat on the toilet, knickers round my ankles, bare foot, scrolling through Reddit. AMA? AITA? All the acronymised fun it can offer. Suddenly, my phone rings – a rare occurrence these days. I answer it.
 
-“Hello?”
+That’s how the podcast ends. All of it was wrong. 
 
-“Amazon delivery for you.”
+First off, they were driving. I didn’t have a car at school freshmen year. They lived on my hall and when we found out we lived close to each other, they offered me a ride home. And there was no podcast. We had a shared playlist we played the whole there. 
 
-“Ah! Thanks, just leave it by the door?”
+And when only stopped once. We both used the bathroom and I got out first. I do remember looking at the tees. I remember thinking they also y looked like they repeated. But I didn’t say that to them at all. I don’t understand how they were saying that. 
 
-A few seconds later I hear a car pull away. I finish my bathroom business, and make my way down to the front door. I open it – there’s the box on the ground, but it’s clearly been tampered with. I can see the binoculars I ordered last night amongst the pieces of Styrofoam. I pick them up and survey them. The lenses – they’ve been scratched. I can’t see a thing out of them. I don’t dare look across the street, and instead hurry back indoors.
+The Latin phrase. I googled it. Quisque suos patimur manes. It’s from the Aenid. It means “we all suffer the same ghosts.”
 
-A few hours later, and I’m doing it again. Marching. Determinedly. This time – for the first time – across the street. The cadence of my stiletto-ed heels clip-clopping on the ground indicate determination. I’ve splashed on a bit of make up on. I’ve ditched the baggy clothes for a white cardigan and floral dress. I’m carrying a cake box, and inside this cake box is…
+I don’t know what any of this means. The whole ride with them was weird. At some point I fell asleep and it seemed like it was too long. I had these strange dreams, although I forgot them until now. I had seen myself myself in a car, driving with sunglasses on. I walked over to the car and the me in the car took the sunglasses off. They had no eyes. Above me the whole sky was white and the clouds were blue and the sun was a silver coin that stole all the heat from me. 
 
-…cake. Carrot cake, specifically. It’s time to meet the neighbours.
+The ending is all messed up. I’m alive. I didn’t die. I woke up in the car and we were in front of my house. Well, here you are, they said. End of the road. 
 
-I’m marching across the street determinedly, but I’m also shitting it just a bit. And I almost completely crap myself when I come to the front yard of the house across the street – it’s got the same brilliant red bush sprouting out of it, just like ours. How is that possible? It hadn’t been there when we moved in; at least I hadn’t seen it – the street is wide but not that wide. I should have been able to see it.
+What about you, I asked. Are you close? 
 
-I walk up to the front door. Deep breath. I ring the doorbell. No answer. I knock. I wait. No answer. I go over to the window. Knock. No answer. Curtains are drawn. Back to the front door. Hand on the door handle – it opens.
+No, they said. I have a long way to go. 
 
-“Hel-hello?” I call out, as I enter the hallway. “It’s, uh – I’m just across from across the road? We just moved in?”
+They drove off and I went inside.  I thought everything was done. I said hi to my parents, played with the dog. My dad asked me if I made good time and I said decent and then he asked me if I could move the car into the garage. 
 
-A denim jacket and sports jacket – identical to mine and Ronin’s – are hung up on the wall. I reach out to touch them – they feel the same as ours too.
+I went out, thinking he wanted me to move his car, but I was surprised to see the car I had just been in, out there on the curb. 
 
-I can hear faint music coming from within the house – a tune I’ve heard before. I walk into the living room, and the music’s louder – it’s “Tonight You Belong To Me.”
+I walked over and saw no one in the drivers seat.  Maybe for a second I thought I saw them, or a shadow, but then the clouds moved and I saw there was nothing. No one. I was holding a key fob, and when I clicked the button the doors opened. I slid in. Checked the glove compartment. Registration and insurance card with my name. 
 
-The layout of the living room is identical to ours. But there are no boxes. It’s not far off what we saw when we checked out the model home, but it’s now also well decorated and homely. Some flowers from the bush outside are in a vase on the mantel piece.
+I grabbed my phone and saw our texts were gone. We weren’t friends on social media. They were gone. Nowhere. 
 
-And above the mantel piece is our framed wedding photo – except someone has cut out mine and Ronin’s faces. I scream, the cake falls from my hands and I run.
+The next few days were crazy. I thought I had gone nuts. People don’t disappear. Cars don’t just appear. All my memories weren’t fake. They were real. I met them. I knew them. 
 
-I seem to take an age to sprint across the street; it seems wider than ever. Or maybe it’s because you can’t really sprint in stilettoes, I don’t know. I just need to get inside and away.
+But no one else did. 
 
-I’m inside, gasping for breath. I slam the front door behind me, kick off my stupid shoes, and run to the living room. I close the curtains. I run up the stairs, I’m halfway up when I hear the doorbell. I stop. I try to breathe quietly. I creep up.
+This was years ago and I had finally sort of given up thinking about it, and then I heard this podcast. 
 
-Three LOUD knocks, and I can’t help but scream; and now I’m sobbing. I creep back down to the living room. I stand by the window. I’m crying but resigned to my fate. There’s a very gentle knock-knock-knock on the window. I slowly open the curtains. Outside, on the front lawn stand half a dozen men and women. Some are wearing my outfits – the dungarees, the floral dress, the cardigan; some are in Ronin’s. All of them are wearing masks – cut outs of either mine or Ronin’s face from the wedding photo.
+Everything they said was wrong, but I think they might have been telling the truth. I don’t know what happened to them. I don’t know what happened to me. But I don’t know if I’m me. I keep thinking of those dreams, and what they said about the two worlds. I think I was in the other one. 
 
-And then I can hear it again – “Tonight You Belong To Me.” I turn. Ronin’s in the living room, cake box in one hand, flowers from the red bush in the other. He’s wearing a mask too, the cut out of his own face. Or is he? I can’t tell.
+My car is outside and I can see someone in it. They’re in the driver seat. I think they look like me. Maybe it’s a shadow. A reflection. Maybe it’s nothing. But maybe we’re all only shadows, visible in some kinds of daylight, but not in others. 
 
-“Hello my lovely,” he says. “What’s wrong?”
 
-\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
 
-Over the course of the next few weeks, half a dozen men and women became several dozen became hundreds, all wearing masks of Ronin and me, all dressed in dungarees, plaid shirts, chinos, t-shirts of bands he never listens to, Roman sandals, that dress I bought in Bali…hundreds of them. Out in the front yard, across and then down the street. Just staring at us – well just me, because Ronin can’t see them, and I’m not sure they can see him.
 
-So, one day, I let them in. It was getting pretty crowded out there.
 
-The day I let them in, they just kind of…drifted into the house. Into our 4-bed, 2-bathroom, 1,490 square foot living accommodation spread over two floors. And every day they stand around, wearing those masks. Dressed in our clothes. Presumably, watching us. In the converted attic, and the spacious garage, whilst Ronin and I go about our day. Watching as we eat, watching as we sleep, watching as we shit and piss. Watching as we fuck. I tried ignoring them. I yelled at them a few times. Once, I hit one of them. They never respond, never speak, never hit back.
 
-10 years later, and they’re still with us. There must be millions of them now, drifting around Ronin and I and our 2.4 children. They’re here right now. As we watch the sun set. As our 2.4 children play in the south facing garden. With a joy and abandonment. That most people can only dream of.
+
+￼
