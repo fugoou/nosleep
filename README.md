@@ -1,83 +1,25 @@
-# Can’t turn left.
-I don’t know when I first noticed him. 
+# I saw an eye in the sky during the eclipse
+The partial sun eclipse reached its peak on Saturday at about 2 pm. Our eldest son had talked about it in school (seems to be a big deal in second grade) and then infected our two younger boys with his enthusiasm. They were ecstatic to see it. Even persuaded me to get them some of these paper glasses with extra-thick dark foil, after they had learned that it would be dangerous to stare into the sun without protection. Admittedly, I was a little excited as well. I mean, it’s nothing spectacular per se, but it would be cool to see. So far, I had only ever seen the sun in its usual round shape.
 
-Maybe I was ten, maybe a bit older. But he was always there. A speck in the distance, far enough away that I could barely make out his twisted form—a hunched, decrepit man with long, greasy hair hanging over a face so sinister it made my skin prickle. His presence was like a black hole in my vision, a stain in the fabric of reality that nobody else seemed to see.
+Checking the weather for the day right after waking up, I learned that we would indeed have a chance at a good look.  
+The time of the eclipse came and there were only very few clouds to be seen. Pretty good conditions. The boys and I climbed up the stairs of our apartment building – the top floor has a type of viewing platform. While we stepped out, the daylight seemed to fade a little. It was noticeable even without having to look directly into the sun. We put on our cheap glasses and checked it out. At that moment, I absolutely forgave my boys for more or less forcing me to buy them. It was spectacular. Mesmerizing to see change in something that has been a constant throughout all of your life. I mean, it was still *just* the sun, but... well, just different.
 
-He never moved. Never got closer. At least…
-not until I turned left.
+Anyway, I was fascinated as I first saw it. My boys as well. They were just staring, mouths open. After a few seconds had passed, my youngest pulled at my shirt. “It looks weird, dad.” “That’s the point. It’s something that doesn’t happen very often. It looks weird, because we are witnessing something the sun usually doesn’t do", I replied.
 
-It took me years to figure it out. At first, he just felt like a bad dream, a lingering shadow in the periphery of my life. Then, one day, I noticed it—every time I turned left, he edged just a little closer. Just a step. Just a breath. At first, I could ignore it. But as the years passed, as I aged from a clueless teenager into a deeply paranoid adult, the distance between us dwindled.
+His brothers had explained the science behind it all morning; we now knew all about solar eclipses, lunar eclipses, partial and annular eclipses and whatever else you could wish for.  
+“No, I mean the eye. Can’t you see it?” He sounded freaked out. Now he had my attention. I took off the glasses and looked at him. He wasn’t staring at the sun anymore, but in an entirely different direction. “But Mark, you’re missing out on it.” I gently grabbed his shoulders and tried to turn him back around. He jerked a little in order to move my hands away. “No. Please look, dad. What is that? It is staring at me!” His voice sounded urgent.  
+Observing the sky in the direction he was facing, I couldn’t see much. A few clouds – no clusters, just individual fluffy chunks. Otherwise, the sky was blue. I didn’t know what he meant. I then looked at my son again and saw him slowly removing the special glasses. He looked pale. He continued to stare into the blue sky for a moment and then informed me: “It is gone now. That’s good. I didn’t like it.” I assured him that everything was fine and that we would continue to watch the eclipse for a few minutes. The enthusiasm that had filled him all morning seemed to be swept away. He quietly sat on the ground and stared at his shoes. “It’s okay if you continue with the eclipse, but I don’t really want to look anymore”, he said.  
+A little bit of color had come back to his face, so I assumed that he would be fine. Kids sometimes make up weird stuff. Their imagination goes crazy, and they somehow manage to scare themselves. I put my glasses back on and decided that we could talk about whatever had scared him as soon as we were back in our apartment. For the moment, I didn’t want to miss the moon revealing what it had covered before.
 
-By the time I was twenty-five, he was across the street. By twenty-eight, I could see the yellow rot of his teeth when he grinned. And now, at thirty-two…
+Then I saw it. It was just a blink of an eye. Literally. I was still facing away from the sun. There was – I don’t know. Like a crack. A vertical crack in the sky. It was enormous.  
+It ripped open further, the two sides sliding away into the blue sky, like upper and lower eyelids do. What was revealed by this motion looked at me. At us. At everyone in our hemisphere, I’d guess. The pupil was dark, but not lifeless. It moved. I could sense its power. For the lack of a better word – it felt *mighty*. I think I stood there just as stunned as my son did moments ago. It looked. Stared. *Observed*.
 
-He’s pressed against me.
+Then it disappeared again. The rip closed back up, as fast as it had opened. Like a blink. The sky turned back to being *just* the sky.
 
-I stopped turning left years ago. Trained myself to only take right turns, even if it meant going in ridiculous loops just to get where I needed to go. But there’s something I can’t control: my sleep.
+I took the glasses off. Mark was fiddling around with his shoelaces. His brothers still staring at the sun. A few seconds passed, while I scanned the sky. Nothing. It was normal. The longer I looked at it, the more I felt like the thing I had seen must have been an illusion or something. The urge to go back inside was strong, nonetheless. My voice was a bit shaky, as I suggested having a sweet treat back in our apartment.
 
-Every night, I toss. I turn. And every morning, I wake up with him closer.
+The sun was pretty much back to normal, and the boys lost interest with every centimeter revealed by the moon. We went back in.
 
-At first, he was just by my bedside, his reeking breath warming my face. Then, he lay beside me. Then, on top of me.
+I put the special glasses into the very back of a junk drawer. And that was it. Mark seemed to have forgotten about whatever we had seen, or maybe he was also intentionally repressing the thoughts about it. I thought about it all day. At times, I managed to nearly convince myself that I must have made that thing up – maybe Mark’s fear had caused me to. But then again... I saw it. It was there. Just for a moment.
 
-Now, he is smudged into my right side, so tight, so agonizingly close, that I can barely breathe. His skin is cold and wet, like raw meat, pressing into mine with unnatural force. When I move, even the slightest twitch, his bones grind against mine, his limbs twisting to match my shape. I can feel his ribs shifting against my ribs, his knees locked with my knees, his teeth clacking against my own.
-
-My girlfriend left months ago. She never saw him, but she knew something was wrong. How could she not? It’s hard to maintain a relationship when your body is permanently entwined with an invisible old man who smells like spoiled milk and wet mud.
-
-But she wasn’t the only one.
-
-Before I learned to keep my mouth shut, I told people. Friends, family, even a doctor once. I tried to explain it—that something was following me, getting closer every time I turned left. That I had to stop, had to find a way to keep him away. They thought I was losing it. They told me it was paranoia, stress, maybe even schizophrenia.
-
-And he was there for all of it.
-
-When my parents sat me down, their voices low and careful, asking if I had “been feeling okay lately,” he stood just behind them, grinning. Closer.
-
-When my friends drifted away, their texts growing less frequent, I saw him in the distance at the bar, standing just outside the light, watching. Closer.
-
-When my boss pulled me aside, concern laced in his tone as he asked if I needed time off, I spotted him in the glass reflection of the office window, just behind my shoulder. Closer.
-
-The worst part was the doctor. The way he nodded, scribbling something in his little notepad. The way he asked me if I’d ever had “delusions” before. The word hit me like a sledgehammer. And just beyond the desk, sitting in the chair meant for family members, was him. Legs crossed, hands folded in his lap. Closer.
-
-I realized then that if I kept talking, they’d lock me up. Medicate me. Institutionalize me.
-
-That thought scared me more than the man himself.
-
-So I stopped. I nodded along. I agreed that maybe it was all stress. Maybe I just needed sleep. I told everyone I was fine, and they believed it. Or at least, they pretended to.
-
-But the damage was done. My family saw me differently. My friends saw me differently. I lost everything. My gym routine, my social life—gone. It was too exhausting to explain why I couldn’t run on the treadmill properly, why I had to take absurd routes to get anywhere. Why I looked so haunted all the time.
-
-And all the while, with every conversation, every lost relationship, every turned back…
-
-He got closer.
-
-So now it’s just me. And him. And I think, very soon… it will only be him.
-
-I tried everything. Strapping myself down at night, surrounding myself with pillows like a fortress. I even considered amputating my ability to turn left entirely. But the truth is… it wouldn’t matter. Because I still move in my sleep. I still shift. And each time, he takes the opportunity.
-
-Each morning, he is pressing harder. I feel like a tube of toothpaste being squeezed from the side, my organs shifting under the relentless pressure of his form. My bones creak. My lungs barely inflate.
-
-The worst part?
-
-Sometimes, the pressure is so unbearable that I have to turn left.
-
-Just a little. Just to relieve it.
-
-And every time I do…
-
-He gets even closer.
-
-I can feel it now. A final shift. A last moment before the inevitable. His cheek is pressed against mine, his fingers interlaced with mine. I can taste the filth of his breath in my mouth, because our lips are now sealed together.
-
-I don’t know what happens when he finally merges with me completely. But I think I’m about to find out.
-
-I’m writing this now because I don’t know how much longer I have. It’s taken everything in me to force my fingers to move, to reach my phone, to even breathe. He’s pressing into me so hard that I can barely see the screen—his forehead is mashed against mine, his eye half-swallowed by my own socket. 
-
-But I need someone to know. I tried everything. If you see someone acting strangely, refusing to turn left, making ridiculous loops just to walk down a street—ask them. Ask them if they see him too. Would be nice to know I’m not alone.
-
-I keep telling myself this post is pointless. That nobody will believe me. That even if they do, it won’t change anything. But I have to try. Maybe someone out there has seen him too. Maybe someone knows how to stop this.
-
-Because I can’t keep living like this.
-
-I don’t know what happens when there’s no space left between us. But the pressure is unbearable now, like my own body is trying to fold in on itself. My ribs feel ready to snap. My jaw aches from clenching against his. My heartbeat is slowing, like there’s no room left in my chest for it to beat.
-
-And I can’t stop thinking about one thing.
-
-What happens if I turn left… just one more time?
+Maybe it is a bit ridiculous, but for the rest of the weekend, we’ve stayed inside. I’ve also avoided looking at the sky. I feel like that’s best for now.
