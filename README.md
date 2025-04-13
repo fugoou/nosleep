@@ -1,25 +1,34 @@
-# I saw an eye in the sky during the eclipse
-The partial sun eclipse reached its peak on Saturday at about 2 pm. Our eldest son had talked about it in school (seems to be a big deal in second grade) and then infected our two younger boys with his enthusiasm. They were ecstatic to see it. Even persuaded me to get them some of these paper glasses with extra-thick dark foil, after they had learned that it would be dangerous to stare into the sun without protection. Admittedly, I was a little excited as well. I mean, it’s nothing spectacular per se, but it would be cool to see. So far, I had only ever seen the sun in its usual round shape.
+# Someone stares back from my peephole, And It's not what I thought (Finale)
+[Part 1](https://www.reddit.com/r/nosleep/s/8ERr4v4p1w)
 
-Checking the weather for the day right after waking up, I learned that we would indeed have a chance at a good look.  
-The time of the eclipse came and there were only very few clouds to be seen. Pretty good conditions. The boys and I climbed up the stairs of our apartment building – the top floor has a type of viewing platform. While we stepped out, the daylight seemed to fade a little. It was noticeable even without having to look directly into the sun. We put on our cheap glasses and checked it out. At that moment, I absolutely forgave my boys for more or less forcing me to buy them. It was spectacular. Mesmerizing to see change in something that has been a constant throughout all of your life. I mean, it was still *just* the sun, but... well, just different.
+My eyes stay tightly shut, but the images still push through the darkness: the woman and the man, their outlines sharp and clear. Something is moving inside me—a slippery sickness crawling through my bones, changing me from the inside out.
 
-Anyway, I was fascinated as I first saw it. My boys as well. They were just staring, mouths open. After a few seconds had passed, my youngest pulled at my shirt. “It looks weird, dad.” “That’s the point. It’s something that doesn’t happen very often. It looks weird, because we are witnessing something the sun usually doesn’t do", I replied.
+The man’s shape becomes clearer—his side view thin and shadowy, though I still can’t fully see his face. It stays just out of reach, teasing me from the dark. The woman remains a shadow, but her edges glow more now, a ghost-like light shining in the emptiness. I don’t know when my eyes will finally open, but until they do, I’m stuck in this frozen moment. No movement. No sound. Only their presence, pressing into my thoughts like a heavy stone.
 
-His brothers had explained the science behind it all morning; we now knew all about solar eclipses, lunar eclipses, partial and annular eclipses and whatever else you could wish for.  
-“No, I mean the eye. Can’t you see it?” He sounded freaked out. Now he had my attention. I took off the glasses and looked at him. He wasn’t staring at the sun anymore, but in an entirely different direction. “But Mark, you’re missing out on it.” I gently grabbed his shoulders and tried to turn him back around. He jerked a little in order to move my hands away. “No. Please look, dad. What is that? It is staring at me!” His voice sounded urgent.  
-Observing the sky in the direction he was facing, I couldn’t see much. A few clouds – no clusters, just individual fluffy chunks. Otherwise, the sky was blue. I didn’t know what he meant. I then looked at my son again and saw him slowly removing the special glasses. He looked pale. He continued to stare into the blue sky for a moment and then informed me: “It is gone now. That’s good. I didn’t like it.” I assured him that everything was fine and that we would continue to watch the eclipse for a few minutes. The enthusiasm that had filled him all morning seemed to be swept away. He quietly sat on the ground and stared at his shoes. “It’s okay if you continue with the eclipse, but I don’t really want to look anymore”, he said.  
-A little bit of color had come back to his face, so I assumed that he would be fine. Kids sometimes make up weird stuff. Their imagination goes crazy, and they somehow manage to scare themselves. I put my glasses back on and decided that we could talk about whatever had scared him as soon as we were back in our apartment. For the moment, I didn’t want to miss the moon revealing what it had covered before.
+Later, my voice breaks as I whisper to Google Assistant, “What time is it?” Its robotic answer—11:30 PM—drops into the silence like a stone in a deep well, sending little ripples through me. I know the bell will ring again tonight, like some ancient switch meant to pry my eyes open. I cling to that weak hope, like a rope slowly falling apart in the dark.
 
-Then I saw it. It was just a blink of an eye. Literally. I was still facing away from the sun. There was – I don’t know. Like a crack. A vertical crack in the sky. It was enormous.  
-It ripped open further, the two sides sliding away into the blue sky, like upper and lower eyelids do. What was revealed by this motion looked at me. At us. At everyone in our hemisphere, I’d guess. The pupil was dark, but not lifeless. It moved. I could sense its power. For the lack of a better word – it felt *mighty*. I think I stood there just as stunned as my son did moments ago. It looked. Stared. *Observed*.
+It’s 11:59 now. I crouch by the door, the damp wood chilling my joints, my breath short and shaky. I need to open my eyes. I can feel it—my other eye aches to show me the truth, its pull pounding at the back of my head. The bell rings—a sharp, sad sound that cuts through the silence. A bit of cold relief slips in as my eyelids rip open with each chime, peeling back like old skin from a sore. The grip is gone.
 
-Then it disappeared again. The rip closed back up, as fast as it had opened. Like a blink. The sky turned back to being *just* the sky.
+I press my eye to the peephole. The cold metal stings my skin, and my breath fogs the glass. Nothing looks back at me—just the elevator doors, dull and faintly shining under the yellow light of the hallway. The bell rang, but nothing’s there. More relief trickles in, shaky and warm. Maybe the curse has left me, loosened its grip from my soul.
 
-I took the glasses off. Mark was fiddling around with his shoelaces. His brothers still staring at the sun. A few seconds passed, while I scanned the sky. Nothing. It was normal. The longer I looked at it, the more I felt like the thing I had seen must have been an illusion or something. The urge to go back inside was strong, nonetheless. My voice was a bit shaky, as I suggested having a sweet treat back in our apartment.
+I stumble to the bathroom, the floor groaning beneath me like tired bones. I just want to wash the night’s stink off my body. But then my eyes betray me—blinking too fast, a wild flutter like flies caught in a web. They slam shut, heavy as tomb doors. The visions come back.
 
-The sun was pretty much back to normal, and the boys lost interest with every centimeter revealed by the moon. We went back in.
+The man’s face appears clearly now, and fear claws its way into my chest. It’s the real estate agent—his skinny frame, his sharp voice still echoing in my head. A shiver runs down my back. The woman steps out of the shadows, and I see her torn dress, its ragged edge swinging. It’s just like mine. The truth hits hard: I’m that woman.
 
-I put the special glasses into the very back of a junk drawer. And that was it. Mark seemed to have forgotten about whatever we had seen, or maybe he was also intentionally repressing the thoughts about it. I thought about it all day. At times, I managed to nearly convince myself that I must have made that thing up – maybe Mark’s fear had caused me to. But then again... I saw it. It was there. Just for a moment.
+Then, with a series of rapid blinks, I’m taken back to the moment I shook hands with the agent before getting into his car. I see an anti–evil eye figurine hanging from the dashboard. I read his lips as he says, *“Do you believe in the evil eye? I do. My mom says our family is cursed by someone’s evil eye. I’m the one tasked with getting rid of it. Haha, moms are funny, you know.”*
 
-Maybe it is a bit ridiculous, but for the rest of the weekend, we’ve stayed inside. I’ve also avoided looking at the sky. I feel like that’s best for now.
+Panic fogs my mind. I try to look at him again, but his face changes—one of his eyes is gone, replaced by a wet, bloody hole. My breath catches. When he showed me this place, both his eyes had been bright—normal, untouched, reflecting sunlight.
+
+The bell sounds again, and my eyes open just in time, wet and shaking. I run to the peephole, heart pounding, but the hallway is still empty—no eye, no shadow, just the soft hum of the elevator chewing through the quiet. I stagger back to the bathroom. The air is thick with a moldy, sour smell. I need water to cool the fire inside my head.
+
+Then I see my reflection in the mirror, like a nightmare burned into the glass. My left eye has turned a deep greenish-black, red and swollen around the edges, dripping and sore. And then, as if recognizing itself, the eye starts to melt—black liquid trailing down my cheek. A scream bursts out, wild and raw, echoing off the tiles.
+
+Horrified, I stumble back to my apartment, slamming the door and locking it with shaky, sweaty hands. A minute—or maybe two—passes, each second dragging heavy and slow.
+
+**Then the bell rings again.**
+
+Trembling, I walk to the kitchen and grab a knife. This time, instead of looking through the peephole, I place a small circular mirror over the peephole. Moments later, I witness the same black liquid finding its way into my apartment.
+
+And then I see him.
+
+Standing just outside, the real estate agent is missing both of his eyes now—his face a sunken mask of pain and purpose. He stares forward blindly, and with a rattling breath, says, *“Only half of the transfer process remained.”* Then he drops to the ground, lifeless.
