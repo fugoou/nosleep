@@ -1,197 +1,97 @@
-# She Said "No Strings Attached" But I Think She Lied. [Part 3]
-[Part 1](https://www.reddit.com/r/nosleep/comments/1jc26po/she_said_no_strings_attached_but_i_think_she_lied/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Part 2](https://www.reddit.com/r/nosleep/comments/1jfqiit/she_said_no_strings_attached_but_i_think_she_lied/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+# I found an ocean in the middle of the Appalachian mountains. We've been drifting for weeks.
+It was spring break, and three of my closest friends and I were going on a road trip. Jason, a red-headed oddball who I've known since I was five years old and never quite managed to shake off, organized the whole thing. He found an ad, advertising an RV return gig. A small company that rented them out had one left in a lot on the east coast, and needed it to be driven back to the main showroom in Montana. With a few clauses, this meant that not only were we getting it for a week for free, but we were also getting paid for the trouble. Or, at least, Jason was. At a push, the amount he was receiving would just about cover fuel, food and alcohol, with a little extra thrown in from the rest of us. 
 
-*My apologies for the wait, I have been a little distracted since my last post. But without further delay. Here is part 3:*
+Jason invited me, of course, Julian, a close enough acquaintance who'd recently come out of a long term relationship and was trying to start a songwriting career off the back of it, and Austin. Austin had only recently shaken off the nickname “Frodo”, which had stuck to his 5’3 stature all the way through highschool. As much as we made fun of him, Austin was a great guy, one of the nicest people I know. With nothing better going on in any of our lives, we all happily agreed to Jason's proposal. With four days' notice, I packed a week's worth of clothes into a duffel bag and dropped my dog, Boxer, and my Elephant Ear Plant off at my girlfriend's apartment. My girlfriend, Kate, lives with two roommates, one of which apparently is deathly allergic to dog hair. I pretended not to hear her as I turned to leave. We said our goodbyes in the hallway, and parted ways for the next week or so. 
 
-Paranoia had taken full hold of me at that point.
+We decided to convene in a shopping mall parking lot, which was near enough for all four of us. I was the first to arrive, and couldn't stop myself from laughing as I walked up to the RV that would be my home for the next week. One of the windows had shattered, and was replaced with a black trash bag duct taped to the seams. It hadn't been cleaned from the last renter's use, and was covered in mud that darkened the white-beige paint job. The panel door swung open and Jason stood there in a bathrobe.
 
-My fingers hovered over my keyboard as I typed out a frantic message to Joshua: “*There’s something in my house!”* But just before I hit send, I hesitated. I didn’t want to worry him, maybe I was just seeing things. 
+“Welcome to the mothership!” He roared. 
 
-Instead, I rewrote the message, keeping it casual: “*Hey, wanna come over and hang out?”*
+“Nice robe” I said as I shrugged past him and into the van. I threw my bag onto one of the two beds, claiming it as my own. 
 
-Thankfully, he responded quickly, saying he could stop by after work. 
+“Thanks, I found it on the bathroom floor” He informed me, gesturing towards the closet that was, apparently, where the toilet stood. I looked at him, and could tell he wasn't joking. 
 
-The waiting alone almost killed me, I was painfully aware of every shifting shadow just outside my periphery.
+We sat and talked about his grand ideas for the trip while we waited for the other two to turn up. As we did, he unfolded a comically large map of the contiguous United States, and laid it out on the tiny folding table. Red pen marked our route from Wilmington to Bozeman, cutting mainly through the Appalachian mountains before heading abruptly north.
 
-For the next hour, I stood with my back pressed against my front door, staring down the hallway, half-expecting one of those bony white legs to poke out from one of the rooms. But nothing came. 
+“It's going to average out at around five hours of driving a day” He told me, chewing on his pen. 
 
-Relief washed over me when I finally heard the familiar sound of Joshua’s car pulling up. Until I heard something else above me. 
+“Should we go in shifts or…?” I asked, leaving the question open-ended. 
 
-A faint, rhythmic tapping, like the muffled clatter of a typewriter, It moved quickly toward the front of the house. 
+At that, Jason waved his hand in front of me dismissively. 
 
-My stomach twisted into a knot. It could’ve been anything. A bird or a squirrel skittering across the roof. But I knew it wasn’t outside. The sound had to have come from the attic above me, I say attic, but it’s more of a crawlspace, crammed with pipes and cobwebs where my grandmother kept her junk.
+“No need, I'll be driving” He said. 
 
-I didn’t wait to dwell on what could be making the sound, so I quickly stepped outside, anxious to greet Joshua, desperate to forget whatever I may or may not have heard. As soon as he turned off his headlights and my eyes adjusted to the dark, I saw something that scattered my thoughts and sent a chill through me.
+“Are you sure?” I responded. 
 
-Hanging from the tree in my front yard were the same strange white fruits I had seen on my way to the waterfall. Only now did I realize they weren’t fruits at all. They were cocoons.
+“Totally,” he continued, “It's the best seat in the house. Besides, Austin still doesn't have his licence and I couldn't put up with Julian complaining about cramps for hours on end.”
 
-The optimist in me wondered, just for a second, what kind of beautiful butterfly or moth might emerge from them. But that thought was fleeting, because that wasn’t what caught my attention.
+We laughed, and almost on cue the door swung open. Austin and Julian entered in a mock three stooges sketch and said their hellos. Jason informed them of the sleeping arrangements, giving Julian the pull-out seating and directing Austin to the floor. After a while, we'd all settled in and Jason slid behind the wheel. He pulled out of the parking lot and onto the open road, determined to cross state lines before midnight. 
 
-At the bottom of the tree, hung an old tire swing. 
+The three of us not shackled to the wheel spent the rest of the evening drinking and playing cards. Julian was halfway through explaining the rules to a card game neither of us had heard before when Jason pulled into a small diner and parked up. We all bundled out of the winnebago and crowded into the small diner, which wore its Americana charm on its sleeve. We ate well and paid, and as we left Jason beckoned me over to him. He handed me an old polaroid camera from his bag and told me to take his picture next to the dented “Welcome to Tennessee” sign.
 
-I turned to look at my house, the same one I had walked into just yesterday. The same house from the photograph. My mind reeled. How could I forget something so obvious? Was the memory loss a delayed symptom of my accident?
+“Are you gonna do this with every state?” I asked him as I took the photo. 
 
-This was worrying me, but then an even more terrifying thought crept in. Was I already experiencing the same slow, heartbreaking decline that my grandmother had? No. That couldn’t be. I was only 25… far too young, even for the rarest cases of early-onset dementia.
+“Absolutely!” He replied, grinning and holding onto the metal pole the sign stood on like his life depended on it. We took another photo, this time he posed with his thumbs up, before boarding the RV. He drove a little further until we found a place to park up for the night. By this point, three out of the four of us were hammered. As we got ready to sleep, Austin kept repeating the word “Winnebago” in a shitty British accent, making a pop culture reference too obscure for any of us to get, drunk or sober. Austin then collapsed onto his makeshift bed of a blow-up mattress, supplied by Jason, on the RV floor. He was positioned right outside the toilet, which I made a formal prediction would come back to bite him at some point. It did, and I was awoken into our second day on the road by the sounds of bird song the howls of Austin as Julian accidentally stood on him. 
 
-My heart pounded in my chest, but I played it off. 
+Today, Jason wanted to see if we could come across some classic roadside attractions. I offered to Google if any were close, but he assured me that it'd be more fun to stop randomly at any we find naturally. Once we finished cooking up camp stove bacon and eggs for breakfast, Jason started driving. We had an hour of playing music and having a good time until the RV started to slow. I looked out the window to see a white, wooden house jutting in from the treeline. A sign over the door read “Aunt Theresa's Chandlery”. We abandoned the camper where it was and all of us, bar Julian, wandered up to the little shop's front door. It opened with a small bell's ring and we found ourselves surrounded by dripping wax and the smell of herbs. The place had a homely, but new-aged feel to it, and I had to keep vigilant so as not to step on one of the cats that swarmed the room. 
 
-“Hey, did you know there was a tire swing here?” I asked, trying to sound casual.
+Jason combed inquisitively through the wide selection of candles on sale, while Austin tried to nurse his sudden headache. Just then, the beaded curtain that separated the first room from the next parted, and in walked a young African-American girl, maybe mid to late teens. She had frizzy hair tied back, thick braces and a purple cardigan. 
 
-Joshua laughed and pointed at his arm. “Dude, don't you remember? I broke my arm on that thing when we were kids.”
+“Oh, hi!” she squeaked, chewing gum. 
 
-I stared at him blankly. I didn’t remember. And then the realization hit me, I couldn’t even recall when or how Joshua and I first met.
+“Hey”, I replied and picked up a hexagonal green-blue candle, “could I buy this?”
 
-I felt my chest tighten, panic setting in, but Joshua’s easygoing reassurance kept me grounded. We went inside, and with his presence, the house felt different. Less cold, less silent.
+“Sure,” she said, “follow me.”
 
-As we cleaned up the broken glass and picture frames, I told him about the photograph I’d found. I hesitated before asking about the two strangers. I left out the part about the house.
+I followed her through the waterfall of beads and into a small front room. She ducked behind the counter in the corner and worked the register. The candle was eighteen bucks, and I realised why they didn't have price tags on anything shortly after buying it. The three of us thanked her and left the store.
 
-“Do you know who these two people are?” I asked, pointing at the unfamiliar faces.
+“Charming” Said Jason, camera hanging around his neck.
 
-Joshua took an uncomfortably long pause before answering.
+“Eighteen bucks of candle?” I blurted out, holding the candle in my hands and studying it. “Is that normal or overpriced? I've never bought scented candles before, I can't tell.”
 
-“Uh… I mean, not exactly. I just always assumed they were your parents. For as long as I’ve known you it’s always just been you and your grandmother. She told me you lost them when you were really young, and… well, I never asked about your parents because it always seemed like a sore topic.”
+This conversation continued all the way back to the RV and half way down the road. The rest of the day was spent looking out for more roadside attractions. By dusk, we'd seen a twenty-foot tall fiberglass chicken, which claimed to be the biggest in the state. If that wasn't enough, we stumbled across a gimmicky museum dedicated to salt and pepper shakers, as well as a plaque for a freak show performer known as the eyeball kid, who was apparently born without a body, whatever that meant. Jason had pictures of them all, and seemed possessed by a child-like wonder whenever we spotted something out of the ordinary. 
 
-I frowned. “I don't even remember them. How could it be a sore topic?”
+We joined up onto the interstate and drove north, passing through Virginia before heading up into the mountainous roads of West Virginia. It was pitch black outside at this point and with our stomachs full of fast food, we found a semi-safe looking area to park up at for the night, which we half hoped, half guessed wasn't on private land.  We hadn't been shot at come dawn, so I assumed we guessed correctly. After a breakfast of leftovers and loose fruit, we started driving again. Julian was laying on my bed at the back of the RV, jotting away in a notebook. Austin and I were playing checkers. Jason, as always, was planted firmly behind the wheel. 
 
-Joshua hesitated. “That's not what it seemed like when we were kids, but I’m glad you’ve moved on.”
+We were driving through a pretty forested, unexceptional rural backwater when it happened. I subconsciously felt the winnebago slow, and noticed as we came to a stop. I glanced out the small window to my left and saw only woodland. Jason undid his belt and slid out of the driver's seat. I watched him as he wordlessly opened the side door and stepped out. I looked back at Austin who just shrugged. We both moved from our cramped seats and followed Jason outside to see what had gotten his attention. We walked to his side, where he was standing, squinting in the sun. A few yards in front of us was the ocean. 
 
-I wasn’t sure what to say to that. Instead, I asked: “This might sound like a stupid question, but how long
+The asphalt road petered out into a beige gradient where it met the sand bank. There was a narrow beach, running as far as I could see in either direction. Beyond it was a vast open sea, with no hint of land on the horizon. I saw waves lap at the shore, but they made no sound. It was like a mirror, reflecting the blue of the sky. The three of us silently stood where we were, taking in the impossible sight. 
 
-have we known each other?”
+“Hey guys, why did we… holy fuck!” Julian muttered as he crept up behind us. 
 
-“Since we were twelve—no, ten. I remember because I had to wear a cast for my eleventh birthday.”
+I saw the trees around us on either side of the road stop abruptly where they met the sand line, like the forest had been cut surgically in half. Our confused group cautiously made their way onto the sandy beach, kicking at it as if to prove its existence. 
 
-“What’s the story behind that?”
+“Is this a lake?” Asked Austin. 
 
-Joshua grinned. “You seriously don't remember breaking your arm?”
+“There wasn't one marked on the map,” replied Jason as he crouched down by the waterside and looked out at its endless horizon, “and I don't think they could miss something like this.”
 
-My eyes shot open. “My arm? I thought you said it was yours?”
+He dipped his hand into the water before bringing it to his nose. I watched in disgust as he brought it down to his mouth, stuck out his tongue and tasted it. 
 
-“Yeah… we both did.”
+“Salt,” He said, spitting onto the asphalt, “it's sea water.”
 
-“How the hell did we manage that?”
+“It's not fucking sea water,” laughed Julian, “it can't be! That makes no sense. None. Anyway, salt water lakes are a thing, right?”
 
-“We wound up the rope as tight as we could, so high we could barely reach the tire. But somehow, we both grabbed onto the tire and spun… and we spun so fast we didn’t even realize at some point we were holding onto each other instead of the tire. The ground reminded us of that, though. We hit it hard, and for the next three months, we sported matching casts. Yours was on your right, and mine on my left.” 
+While the two of them argued, and Austin dug around in the sand with his index finger, I stood and stared. Muttering under my breath, almost to myself, I said “strange how the road just… stops.”
 
-Joshua chuckled. “I remember you tried to sign mine with your left hand, but after failing miserably, you just drew a crooked smiley face instead. You seriously don’t remember any of this?”
+It was some time before we saw it. Julian had gone back onto the RV, but the rest of us refused to move on. Jason, Austin and I wanted to explore the beach further and, eventually, enticed Julian out. The four of us made our way down the strip that ran parallel to the treeline. The beach was populated by the occasional shell, smooth stone or hunk of driftwood. Just after I took Jason's picture, and we decided to head back, a small blur appeared on the ocean’s rim. Austin spotted it first, and we all stopped to look. The blur reflected the sunlight at odd angles, and looked to be drawing nearer. It wasn't that long before we came to the sudden and mutual understanding that it was a boat. 
 
-My mind swam, but nothing he said rang a bell. “Give me another story, Please.” I said, a little too desperately. 
+The boat, which we were now following intently, was coming to shore, and strafing to the right as it did. Our little group kept pace with it, walking what felt like the entire length of the beach. Soon, the boat was near enough to make out the individual ropes and pulleys. I'd only ever been sailing once, and was far from familiar with any nautical terminologies, so pardon me if I make any mistakes. 
 
-Joshua thought for a moment. “Okay, let's see… do you remember the time we hopped the fence into your neighbor’s yard to steal lemons from his tree?”
+As we turned a bend in the shoreline we came across a rickety looking wooden pier that continued out maybe twenty yards into the sea. The white paint that covered the panels had all but flaked off, and the many posts were covered in old rope. Despite Jason's enthusiasm, we didn't walk onto the pier until we saw the sailing boat drift elegantly and stop at the end of the dock. Before any of us could say anything, Jason clambered onto the pier and strutted towards the now still ship. 
 
-The memory came easily, as if it had been waiting just beneath the surface. “Yes! I do. I remember my grandmother needed lemons for a pie she was baking… hell, I even remember the exact amount of lemon juice the recipe called for.”
+First, we called out to anyone who might be in the boat. When we got no reply back, we decided it was safe to explore. Jason was the first on as he eagerly climbed over the ship's railing and onto the deck. Once we made sure that the boat was tied securely to the dock with the thickest length of rope I'd ever seen, we followed him in on. The ship was a medium sized sailboat, clearly abandoned and left to drift. Still, it wasn't in that bad of a condition. The rigging seemed to be intact and the wooden floor seemed subject to only minor weathering. While me and Austin were snooping around the top deck, we heard Julian call us from down below. 
 
-Joshua smiled. “Yeah, your grandmother made the best lemon meringue pie.”
+We passed down the hatch way and into the cramped lounge and sleeping quarters. Julian and Jason were slouched over the table, on which was a plate of half eaten roast chicken and steamed greens, next to a lukewarm cup of coffee. 
 
-“Right! The perfect mix of sweet and sour.”
+“This is so weird!’ Mumbled Jason to himself, with a tone of wonder and amazement. 
 
-For a moment, I felt relieved. Grateful, even. At least Joshua had reminded me of one cherished childhood memory. Maybe I wasn’t losing my mind, not the good parts anyway. And on top of that, Joshua assured me that forgetting pieces of your childhood is normal.
+“Right, I'm going back to the RV” Julian said with a sigh and shrugged past us. 
 
-But then, I told him about the dripping.
+Austin and I stood next to Jason, and prodded the food with the same shared amazement. Our moment was shattered by Julian's scream. We sounded like a wounded animal and the three of us rushed up to the top deck to see what had happened. As soon as I did, I stopped and looked around. There was no land anywhere in sight. None. I turned to my friends and saw the same terrifying realisation plastered on their faces. Surrounding us, from the boat to the horizon, was open water. 
 
-I hesitated before mentioning the things I’d seen, but before I could say anything, he offered to check the crawlspace for leaks.
+“We… we must've got loose… drifted” Jason began to reason with himself. 
 
-“No!” The word came out a little too suddenly.
+This was two weeks ago. The four of us have been drifting since. We've never seen land, felt hunger and we just can't settle on how long it's been. For me, at least, we've been drifting for two weeks. Austin commits to the idea that we've only been on the boat for a few hours, and still busies himself trying to find a way off. Maybe he's right, since my phone, the way I'm getting this message out to you all, still has plenty of juice. Jason sides with me, saying that we've only been here for a few weeks, a month tops. But Julian… Julian now sits in the narrow corner of the cabin. He doesn't move, doesn't speak, but in his glassy eyes I can see the despair of years. 
 
-Joshua froze, confused by my outburst. Then his expression shifted, and with concern in his voice he asked “Hey… are you okay?”
+Please. I have no idea how you can help us, but you must. You must. If you ever find the ocean where it shouldn't be, then you've found us. Please, come searching. You're our only hope. 
 
-I forced a laugh. “Yeah, man. It’s nothing.”
-
-Joshua was my only friend. I couldn’t afford to drag him into this. I knew he wouldn’t believe me, and I knew the kind of person he was. He’d grab a flashlight and crawl right into that shallow attic just to prove me wrong. And I couldn’t risk that.
-
-So instead, I waved him off with some vague assurance, thanked him for coming over, and ushered him out the door. As soon as I was alone again, the silence grew louder. And in that silence, I swore I could hear the faintest tapping above me. 
-
-"Fuck this" I muttered under my breath, my voice low but firm. I grabbed my laptop and rushed down the hallway to my room. Slamming the door behind me and locking it. I had no idea if that thing could use door handles, but I wasn’t about to find out.
-
-That night, I barely slept. At one point, I even considered calling the police, and asking them to check the attic. But what if they found nothing, and fined me for wasting their time? What if they took me back to another hospital or some psychiatric facility? The thought kept me awake, scratching at the edges of my mind like a creature scratching at the door to be let in. These thoughts persisted all throughout the night. 
-
-Morning finally came, but I stayed locked in my room until the afternoon. Then I heard a noise I hadn't heard in weeks… one that sent a strange mix of relief and unease through me.
-
-The sound of someone knocking on my front door. I walked up to my bedroom door and pressed my ear against it. *Who the hell could that be? I thought to myself.*
-
-“Who is it!” I shouted, hoping for the sound to reach the front door so I didn't have to.
-
-A faint voice answered from outside. A woman’s voice. Sweet. Familiar.
-
-*Moira?*
-
-Without a second’s hesitation, I unlocked my bedroom door and bolted towards my front door with complete disregard for my neck brace and aching joints.
-
-I reached for the handle but froze, catching sight of my reflection in the hallway mirror. I looked disheveled, unkempt hair, dark circles under my eyes, a shirt I’d been wearing far too long. I couldn’t let her see me like this. 
-
-“Moira?” my voice was a meek whisper.
-
-"Yeah it’s me, Joshua called me. And he- He’s… worried about you. He asked me to stop by." Her voice sounded unsure, her pauses were a little bit too long. She was either unsure of what to say or choosing her words very carefully.
-
-"I told Joshua I was fine" I said, trying to sound casual, though I knew she could sense the lie in my voice.
-
-“Can I come in?” she asked, her question hanging in the air around me.
-
-I hesitated. If I didn’t let her in, she might disappear for another two weeks. I wasn’t willing to risk that. I looked over at the mirror and straightened out my hair as best as I could. I threw on a coat to cover up my stained shirt and before turning away from the mirror I glanced up at the reflection one last time, instinctively checking the ceiling above me. Nothing. The hallway behind me was clear too. I shook my head. *Don’t be ridiculous,* I thought, forcing myself to act naturally.
-
-I opened the door.
-
-In the bright morning light, Moira looked just as radiant as I remembered, but as she stepped inside, I sensed something different. She seemed… tired. The same dark circles shadowed her eyes too, and her skin wasn’t as smooth as before. Had she been struggling these past few weeks too?
-
-She walked right by me without stopping. She headed straight for the dining room, and sat down on the old chair, almost like she’d done it a hundred times before. I wordlessly traced her footsteps to the dining room and sat down beside her. She looked sad. She asked why I hadn't called and I reminded her I didn't have a phone. I brought up the message I sent but she just shook her head. I already knew she had been offline since our date.
-
-We talked for hours, I spent most of the time apologizing and she asked me how I had been. I didn't give any specifics and just told her I had been having a rough time since I got back from the hospital. She said she could tell and a wave of shame washed over me.
-
-She offered to run me a bath and told me to ask her if I needed help. The wave of shame was now a riptide, pulling me deeper.
-
-I told her it wasn't necessary and she jokingly told me “It’s for my sake and not yours” while playfully waving a hand in front of her nose.
-
-The next thing I knew, I was sitting in warm water, with my back turned to her as she scrubbed my shoulders. This wasn’t how I pictured our third date going. She gently washed my face, carefully avoiding my neck brace. When she finished with the hard-to-reach places, I excused her, insisting I could handle the rest. I wasn’t completely helpless, despite playing the role perfectly.
-
-After I got dressed, the smell of eggs and toast filled the hallway as I stepped out into it. But beneath it lingered something else. A faint, moldy odor. Like something organic was slowly decomposing. I then realized that the ingredients had been in my fridge for more than two weeks. When I sat down at the table I hesitated, staring at the plate. But the smell was gone. Now, all I could smell was breakfast… fresh, warm, and delicious. The first real food I’d had in days.
-
-The rest of the day blurred together. I remember us talking and me telling Moira stories about my life, my childhood, and memories I had to dig for. She seemed genuinely interested, but for me, it was more than just conversation. It was a test, to prove to myself that I did remember things from my childhood. I told her about school. About the adventures Joshua and I had as teenagers.
-
-But now, sitting here the next morning, I can’t recall a single story I told her.
-
-I know I talked about my past, but I have no idea what I actually said.
-
-The only details I can recall from what I told her, are the more recent ones. I remember telling her why I went on the date, about how empty my life felt before I met her. I told her why I jumped off the waterfall, that it wasn’t her fault. She seemed relieved like she needed to hear that from me. 
-
-Moira even asked me about the house and my grandmother, but I don't remember mentioning my grandmother to her. Or maybe I did, my memories are slipping away from me after all, or perhaps Joshua said something to Moira. I am struggling to remember her face, thankfully I still have the picture to remember her by.
-
-Moira spent the night… No, not like that. I was a perfect gentleman. I even made up the bed in my grandmother’s old room. Well, Moira made it. My injury made it impossible to wrestle with a duvet cover. But it didn’t matter, because sometime during the night, I woke to the sensation of someone climbing into bed beside me. It was Moira.
-
-We didn’t speak. We just lay there, facing each other, inches apart. I could feel her skin against mine, but it carried little warmth, unlike her eyes. I stared into those dark brown embers, drawn into their depths, lulled by their quiet glow. I hadn’t thought about the thing in my house since Moira arrived… until now. Until I lay there, staring at the faint glint in her gaze. Somewhere deep within those eyes, something shifted. Only for a second, something rippled beneath the surface… In that moment, though, I realized nothing else mattered. I had never known such peace. Any concerns I had were drowned out by the quiet warmth of sleep.
-
-I don't think I’ll do much more writing these next few days. I’d rather spend my time with Moira.
-
-  
-
-
-It's been a few days since Moira arrived, her bright, warm presence filling the cold, dark corners I once thought were out to get me. Things have been so normal since she came over. However, my memories of the time before we met are growing more distant by the day. But I honestly, don't mind. Those memories are behind me and my life with Moira is all I look forward to. Although I can't help but wonder what my life was like back then, it feels odd reminiscing on memories you don't have. 
-
-My only reminder is a picture I find every time I open the fold of my laptop. Every night I find myself staring holes through the faces in the picture. I remember solving the riddle of the house and the tire swing. But the three strangers beside me remain a mystery.
-
-Over the last week, Moira has grown increasingly frail. I keep telling her to eat some of the delicious food she makes for me, but she refuses. I think she prefers eating alone at night because I always notice her missing from bed in the early mornings. And this morning she didn't return to bed. I haven't seen her all day. Things have been going well, and whatever has been plaguing me seems to stay away when Moira’s here. So last night, I asked her to move in with me.
-
-“I need to leave for a little while…” Moira‘s voice sounded distant even though she was right next to me.
-
-A seed of unease planted itself in my chest. “Why don't you just stay? Move in here with me?” I asked, my voice hesitant.
-
-Her eyes widened, she hadn’t expected me to ask this so soon.
-
-*Had I been too eager? Had her own words about leaving backfired on her?*
-
-For a moment, she stared at me, then her shocked expression softened into a warm smile.
-
-“I would love that!” she said eagerly, like she had been waiting for me to ask.
-
-Then, after a pause, her voice grew more solemn. “But… that doesn’t change the fact that I have to go away for a few days. There are still things I need to take care of…”
-
-“You’re coming back, right?” My desperation cut through her sentence before she could finish.
-
-Her serious expression cracked, giving way to a playful smile as she stifled a laugh. “Sooner than you think!” she said, tilting her head toward me with an assuring smile.
-
-Now that I’m alone in the house again, I’m starting to think she can’t come back soon enough.
-
-I’ve convinced myself that I’m hearing things again… strange, unsettling sounds. And more convincingly, the dripping has returned. 
-
-However, now there appears to be a source: a massive, round, moldy stain on the ceiling right in the middle of the dining room. I finally threw out the shriveled flowers and put the empty vase on the table to try and contain the mess. I don't know why, but I feel like that table has some personal significance to me. More significant than Moira’s flowers.
-
-I need something tangible and rational to explain away my paranoia. I have to go up there. I need to find the source of the dripping. It hasn't rained in weeks, so it has to be a leaky pipe. I will update my findings. It shouldn't be long until my next post.
