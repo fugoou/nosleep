@@ -1,97 +1,258 @@
-# I found an ocean in the middle of the Appalachian mountains. We've been drifting for weeks.
-It was spring break, and three of my closest friends and I were going on a road trip. Jason, a red-headed oddball who I've known since I was five years old and never quite managed to shake off, organized the whole thing. He found an ad, advertising an RV return gig. A small company that rented them out had one left in a lot on the east coast, and needed it to be driven back to the main showroom in Montana. With a few clauses, this meant that not only were we getting it for a week for free, but we were also getting paid for the trouble. Or, at least, Jason was. At a push, the amount he was receiving would just about cover fuel, food and alcohol, with a little extra thrown in from the rest of us. 
+# There's something sinister about my apartment building.
+^(Date: Friday)
 
-Jason invited me, of course, Julian, a close enough acquaintance who'd recently come out of a long term relationship and was trying to start a songwriting career off the back of it, and Austin. Austin had only recently shaken off the nickname “Frodo”, which had stuck to his 5’3 stature all the way through highschool. As much as we made fun of him, Austin was a great guy, one of the nicest people I know. With nothing better going on in any of our lives, we all happily agreed to Jason's proposal. With four days' notice, I packed a week's worth of clothes into a duffel bag and dropped my dog, Boxer, and my Elephant Ear Plant off at my girlfriend's apartment. My girlfriend, Kate, lives with two roommates, one of which apparently is deathly allergic to dog hair. I pretended not to hear her as I turned to leave. We said our goodbyes in the hallway, and parted ways for the next week or so. 
+^(Time: Night)
 
-We decided to convene in a shopping mall parking lot, which was near enough for all four of us. I was the first to arrive, and couldn't stop myself from laughing as I walked up to the RV that would be my home for the next week. One of the windows had shattered, and was replaced with a black trash bag duct taped to the seams. It hadn't been cleaned from the last renter's use, and was covered in mud that darkened the white-beige paint job. The panel door swung open and Jason stood there in a bathrobe.
+I don’t remember anything before moving to this apartment building. Really, I’m serious. I genuinely could not even tell you how long I’ve lived here. I couldn’t even tell you what the name of the building is. I don’t remember signing a lease, touring the place, nothing. I mean, shit. Jesus Christ, this is really a mess, huh? What’s wrong with me? Gotta be mold or some gas. It could be gas. I *have* been occasionally smelling this weird metallic smell, like an old middle school drinking fountain.
 
-“Welcome to the mothership!” He roared. 
+Anyway, I’ve been having some serious memory issues lately. Basic information, names, etc. Entire days missing. That’s why I’m starting this log, so I can look back and read what happened if I lose any more time.
 
-“Nice robe” I said as I shrugged past him and into the van. I threw my bag onto one of the two beds, claiming it as my own. 
+I’m gonna try calling a doctor first thing on Monday morning. Just a few more days. I think… I’m actually not sure what day it is. Wait, it’s Friday. I know it’s Friday because yesterday I talked to what’s-his-name, the hallway guy. That was yesterday, which makes today Friday.
 
-“Thanks, I found it on the bathroom floor” He informed me, gesturing towards the closet that was, apparently, where the toilet stood. I looked at him, and could tell he wasn't joking. 
+^(Date: Saturday)
 
-We sat and talked about his grand ideas for the trip while we waited for the other two to turn up. As we did, he unfolded a comically large map of the contiguous United States, and laid it out on the tiny folding table. Red pen marked our route from Wilmington to Bozeman, cutting mainly through the Appalachian mountains before heading abruptly north.
+^(Time: Morning)
 
-“It's going to average out at around five hours of driving a day” He told me, chewing on his pen. 
+I tried to go for a walk outside today to clear my head. Only problem is, I can’t find the damn stairs. I know, it sounds so stupid. It *is* stupid. How can I not know where the stairs are in my own fucking apartment building? This is getting ridiculous, I need to call a doctor now. Fuck waiting until Monday, this is like, an emergency. Time for action.
 
-“Should we go in shifts or…?” I asked, leaving the question open-ended. 
+^(Date: Saturday)
 
-At that, Jason waved his hand in front of me dismissively. 
+^(Time:)
 
-“No need, I'll be driving” He said. 
+Called the doctor. No answer. The phone just kept ringing. I got pissed and threw the phone. I think it might be broken now. I can’t handle this shit. I need to go for a walk outside, right now. Fresh air. Fresh, without that gross tinny smell. The whole floor reeks of it.
 
-“Are you sure?” I responded. 
+No excuses, I’m going to keep doing fucking laps around the entire floor until I see the stairs.
 
-“Totally,” he continued, “It's the best seat in the house. Besides, Austin still doesn't have his licence and I couldn't put up with Julian complaining about cramps for hours on end.”
+^(Date: Sat ?)
 
-We laughed, and almost on cue the door swung open. Austin and Julian entered in a mock three stooges sketch and said their hellos. Jason informed them of the sleeping arrangements, giving Julian the pull-out seating and directing Austin to the floor. After a while, we'd all settled in and Jason slid behind the wheel. He pulled out of the parking lot and onto the open road, determined to cross state lines before midnight. 
+^(Time:)
 
-The three of us not shackled to the wheel spent the rest of the evening drinking and playing cards. Julian was halfway through explaining the rules to a card game neither of us had heard before when Jason pulled into a small diner and parked up. We all bundled out of the winnebago and crowded into the small diner, which wore its Americana charm on its sleeve. We ate well and paid, and as we left Jason beckoned me over to him. He handed me an old polaroid camera from his bag and told me to take his picture next to the dented “Welcome to Tennessee” sign.
+Where. The. Fuck. Are. The. Stairs.
 
-“Are you gonna do this with every state?” I asked him as I took the photo. 
+I think I’m losing my mind. I must be losing my mind. I almost screamed when I came around the corner after the ice machines and saw the elevator. I had forgotten all about it. Problem is, you need a key for it. I can’t catch a break. What is this? What kind of apartment building has an elevator that you can’t use without a key, and doesn’t give you the key?
 
-“Absolutely!” He replied, grinning and holding onto the metal pole the sign stood on like his life depended on it. We took another photo, this time he posed with his thumbs up, before boarding the RV. He drove a little further until we found a place to park up for the night. By this point, three out of the four of us were hammered. As we got ready to sleep, Austin kept repeating the word “Winnebago” in a shitty British accent, making a pop culture reference too obscure for any of us to get, drunk or sober. Austin then collapsed onto his makeshift bed of a blow-up mattress, supplied by Jason, on the RV floor. He was positioned right outside the toilet, which I made a formal prediction would come back to bite him at some point. It did, and I was awoken into our second day on the road by the sounds of bird song the howls of Austin as Julian accidentally stood on him. 
+I need to get to the bottom of this.
 
-Today, Jason wanted to see if we could come across some classic roadside attractions. I offered to Google if any were close, but he assured me that it'd be more fun to stop randomly at any we find naturally. Once we finished cooking up camp stove bacon and eggs for breakfast, Jason started driving. We had an hour of playing music and having a good time until the RV started to slow. I looked out the window to see a white, wooden house jutting in from the treeline. A sign over the door read “Aunt Theresa's Chandlery”. We abandoned the camper where it was and all of us, bar Julian, wandered up to the little shop's front door. It opened with a small bell's ring and we found ourselves surrounded by dripping wax and the smell of herbs. The place had a homely, but new-aged feel to it, and I had to keep vigilant so as not to step on one of the cats that swarmed the room. 
+^(Date: Thursday)
 
-Jason combed inquisitively through the wide selection of candles on sale, while Austin tried to nurse his sudden headache. Just then, the beaded curtain that separated the first room from the next parted, and in walked a young African-American girl, maybe mid to late teens. She had frizzy hair tied back, thick braces and a purple cardigan. 
+^(Time: Mid-day)
 
-“Oh, hi!” she squeaked, chewing gum. 
+I talked to the guy in the hallway again. I guess that means it’s Thursday. I asked him if he’s ever used the elevator. He said he hasn’t. Didn’t even notice we had an elevator. I told him I didn’t either. I asked him if he knew where the stairs were. He said he didn’t. He did mention the smell, though. He doesn’t know where it’s coming from.
 
-“Hey”, I replied and picked up a hexagonal green-blue candle, “could I buy this?”
+I can’t just sit here. I need to get out and move around. If I can’t leave this floor, then I’ll become the master of this floor. I’m gonna map it out.
 
-“Sure,” she said, “follow me.”
+^(Date: Thursday)
 
-I followed her through the waterfall of beads and into a small front room. She ducked behind the counter in the corner and worked the register. The candle was eighteen bucks, and I realised why they didn't have price tags on anything shortly after buying it. The three of us thanked her and left the store.
+^(Time: Night)
 
-“Charming” Said Jason, camera hanging around his neck.
+I don’t know what happened. I tried to map the place out. I got a pen and paper, and an ashtray as a clipboard, put the wall to my right-side shoulder and just went forward until I hit a corner, then turned and repeated. The problem is… there, I mean how can I put this, it’s like… this place doesn’t *have* a shape. I mean it does, obviously. Everything has a shape. But it isn’t… I turned left at a corner, and then later I turned right at the same exact fucking corner. I wasn’t turned around, I checked the paper. I was going in the exact same direction I was going last time, at the same pace, and the same distance. Instead of turning back ‘in’ towards the rest of the apartment building, it turned ‘out’. It opened up to more, like… more of the apartment building. But it wasn’t there before. I mean, maybe it was, I guess…
 
-“Eighteen bucks of candle?” I blurted out, holding the candle in my hands and studying it. “Is that normal or overpriced? I've never bought scented candles before, I can't tell.”
+I need to take a nap, my fucking head hurts.
 
-This conversation continued all the way back to the RV and half way down the road. The rest of the day was spent looking out for more roadside attractions. By dusk, we'd seen a twenty-foot tall fiberglass chicken, which claimed to be the biggest in the state. If that wasn't enough, we stumbled across a gimmicky museum dedicated to salt and pepper shakers, as well as a plaque for a freak show performer known as the eyeball kid, who was apparently born without a body, whatever that meant. Jason had pictures of them all, and seemed possessed by a child-like wonder whenever we spotted something out of the ordinary. 
+^(Date:)
 
-We joined up onto the interstate and drove north, passing through Virginia before heading up into the mountainous roads of West Virginia. It was pitch black outside at this point and with our stomachs full of fast food, we found a semi-safe looking area to park up at for the night, which we half hoped, half guessed wasn't on private land.  We hadn't been shot at come dawn, so I assumed we guessed correctly. After a breakfast of leftovers and loose fruit, we started driving again. Julian was laying on my bed at the back of the RV, jotting away in a notebook. Austin and I were playing checkers. Jason, as always, was planted firmly behind the wheel. 
+^(Time: mid-day)
 
-We were driving through a pretty forested, unexceptional rural backwater when it happened. I subconsciously felt the winnebago slow, and noticed as we came to a stop. I glanced out the small window to my left and saw only woodland. Jason undid his belt and slid out of the driver's seat. I watched him as he wordlessly opened the side door and stepped out. I looked back at Austin who just shrugged. We both moved from our cramped seats and followed Jason outside to see what had gotten his attention. We walked to his side, where he was standing, squinting in the sun. A few yards in front of us was the ocean. 
+I slept for a really long time. At least, I think I did. I’m now realizing that there isn’t a clock in here. Anyway, I feel like I just woke up from hibernation, so I guess that’s a good thing.
 
-The asphalt road petered out into a beige gradient where it met the sand bank. There was a narrow beach, running as far as I could see in either direction. Beyond it was a vast open sea, with no hint of land on the horizon. I saw waves lap at the shore, but they made no sound. It was like a mirror, reflecting the blue of the sky. The three of us silently stood where we were, taking in the impossible sight. 
+All that bullshit yesterday really messed with my head. What was it, a map? What did I do with that map? I’m gonna go looking for it.
 
-“Hey guys, why did we… holy fuck!” Julian muttered as he crept up behind us. 
+^(Date:) 
 
-I saw the trees around us on either side of the road stop abruptly where they met the sand line, like the forest had been cut surgically in half. Our confused group cautiously made their way onto the sandy beach, kicking at it as if to prove its existence. 
+^(Time:) 
 
-“Is this a lake?” Asked Austin. 
+I don’t know what happened to the map. I don’t even really know *how* it got lost, considering how empty this fucking apartment is. I have bare-minimum furniture and not much in the way of personal possessions, so there isn’t really even anywhere for something to get lost. Oh well, best to not worry about it. Missing things only ever seem to turn up right after you stop looking for them.
 
-“There wasn't one marked on the map,” replied Jason as he crouched down by the waterside and looked out at its endless horizon, “and I don't think they could miss something like this.”
+I’m gonna go for a walk.
 
-He dipped his hand into the water before bringing it to his nose. I watched in disgust as he brought it down to his mouth, stuck out his tongue and tasted it. 
+^(Date:) 
 
-“Salt,” He said, spitting onto the asphalt, “it's sea water.”
+^(Time:) 
 
-“It's not fucking sea water,” laughed Julian, “it can't be! That makes no sense. None. Anyway, salt water lakes are a thing, right?”
+I walked around the floor again. I saw the elevator. Which is weird, because I’m pretty fucking sure I took a different route today than I did yesterday. Plus, I didn’t see the ice machines. They were at the corner right before the elevator. Not today.
 
-While the two of them argued, and Austin dug around in the sand with his index finger, I stood and stared. Muttering under my breath, almost to myself, I said “strange how the road just… stops.”
+My heart is starting to flutter, I’m way too young to be dealing with this kind of stress. My mind is falling apart and I need help. I need to get out of here. I need to find that fucking map
 
-It was some time before we saw it. Julian had gone back onto the RV, but the rest of us refused to move on. Jason, Austin and I wanted to explore the beach further and, eventually, enticed Julian out. The four of us made our way down the strip that ran parallel to the treeline. The beach was populated by the occasional shell, smooth stone or hunk of driftwood. Just after I took Jason's picture, and we decided to head back, a small blur appeared on the ocean’s rim. Austin spotted it first, and we all stopped to look. The blur reflected the sunlight at odd angles, and looked to be drawing nearer. It wasn't that long before we came to the sudden and mutual understanding that it was a boat. 
+^(Date: Thursday?)
 
-The boat, which we were now following intently, was coming to shore, and strafing to the right as it did. Our little group kept pace with it, walking what felt like the entire length of the beach. Soon, the boat was near enough to make out the individual ropes and pulleys. I'd only ever been sailing once, and was far from familiar with any nautical terminologies, so pardon me if I make any mistakes. 
+^(Time: Night)
 
-As we turned a bend in the shoreline we came across a rickety looking wooden pier that continued out maybe twenty yards into the sea. The white paint that covered the panels had all but flaked off, and the many posts were covered in old rope. Despite Jason's enthusiasm, we didn't walk onto the pier until we saw the sailing boat drift elegantly and stop at the end of the dock. Before any of us could say anything, Jason clambered onto the pier and strutted towards the now still ship. 
+I FOUND IT! I found the damn map, finally.
 
-First, we called out to anyone who might be in the boat. When we got no reply back, we decided it was safe to explore. Jason was the first on as he eagerly climbed over the ship's railing and onto the deck. Once we made sure that the boat was tied securely to the dock with the thickest length of rope I'd ever seen, we followed him in on. The ship was a medium sized sailboat, clearly abandoned and left to drift. Still, it wasn't in that bad of a condition. The rigging seemed to be intact and the wooden floor seemed subject to only minor weathering. While me and Austin were snooping around the top deck, we heard Julian call us from down below. 
+I must have been really loud when I yelled in excitement, because the guy from the hallway knocked on my door. It was super strange. I mean, I guess it wasn’t that strange. I was being loud, after all. I opened the door and apologized for the noise, but he didn’t really seem to care about that. To be honest, I’m not really sure what he even knocked on my door for in the first place. I guess he just wanted to talk about… what the hell did we even talk about? It was weird to see him here, I mean - at my door. I feel like I’ve only ever seen him in the hallway by the left-side corner.
 
-We passed down the hatch way and into the cramped lounge and sleeping quarters. Julian and Jason were slouched over the table, on which was a plate of half eaten roast chicken and steamed greens, next to a lukewarm cup of coffee. 
+^(Date:) 
 
-“This is so weird!’ Mumbled Jason to himself, with a tone of wonder and amazement. 
+^(Time: Night)
 
-“Right, I'm going back to the RV” Julian said with a sigh and shrugged past us. 
+I went for another walk with the map and pen, trying to get a lay of the land. It doesn’t make sense. It makes *less* sense, the more I explore and map it out, it somehow gets even *more confusing*. It doesn’t help that my brain isn’t working at full efficiency.
 
-Austin and I stood next to Jason, and prodded the food with the same shared amazement. Our moment was shattered by Julian's scream. We sounded like a wounded animal and the three of us rushed up to the top deck to see what had happened. As soon as I did, I stopped and looked around. There was no land anywhere in sight. None. I turned to my friends and saw the same terrifying realisation plastered on their faces. Surrounding us, from the boat to the horizon, was open water. 
+At this point, I’ve determined that there’s only two possibilities:
 
-“We… we must've got loose… drifted” Jason began to reason with himself. 
+* Possibility One: My mind has been poisoned beyond all reasoning by some sort of hyper aggressive mold or chemical agent. I’m fucked, and will 100% die soon.
+* Possibility Two: There’s a secret room hidden somewhere on this floor.
 
-This was two weeks ago. The four of us have been drifting since. We've never seen land, felt hunger and we just can't settle on how long it's been. For me, at least, we've been drifting for two weeks. Austin commits to the idea that we've only been on the boat for a few hours, and still busies himself trying to find a way off. Maybe he's right, since my phone, the way I'm getting this message out to you all, still has plenty of juice. Jason sides with me, saying that we've only been here for a few weeks, a month tops. But Julian… Julian now sits in the narrow corner of the cabin. He doesn't move, doesn't speak, but in his glassy eyes I can see the despair of years. 
+That must be it. Wait, yes, it actually makes so much sense! One of these walls is a false wall, it’s hollow behind it. I know it. I’m willing to bet my ass that whatever’s in there is probably what’s causing my head to feel this way. Probably some animal that crawled into a vent and died or something. Leaking toxic fumes into every apartment on the whole floor.
 
-Please. I have no idea how you can help us, but you must. You must. If you ever find the ocean where it shouldn't be, then you've found us. Please, come searching. You're our only hope. 
+How come the owners didn’t send a maintenance dude to come deal with this? There’s no way I’m the only one on this floor who’s experiencing these symptoms.
+
+First thing tomorrow morning, I’m gonna find that fucking room.
+
+^(Date:) 
+
+^(Time:) 
+
+I KNEW IT. I FUCKING KNEW IT.
+
+I found the hidden room. I took the map and went to each spot, one-by-one, that could have possibly contained another room. Knocked on the walls, trying to hear for hollowness on the other side. Some of my neighbors opened their doors and leaned out to look at me. They weren’t mad or anything, just curious, I guess.
+
+Anyway, the room. I started at the elevator, took two rights, a left, and then one more right. Back at the ice machines. Started knocking. Heard that unmistakable echo on the other side of the wall. Hollow.
+
+For whatever reason I decided to try and look directly behind the ice machines. They were pressed up right against the wall, so I couldn’t see anything back there. I don’t know why I did, but I grabbed one of the machines and started pulling it. It was heavy as hell, but thankfully I’m pretty thin, so I only needed to move it a little bit to create an opening wide enough to squeeze through. It looked dark inside. I really wanted to go back to my apartment and grab something to use as a light source in case the lights don’t work in there, but I’m not sure if I’d be able to find my way back.
+
+Anyway, long story short. It’s a file room, or a data room, or something like that. There’s a row of file cabinets in the back, a round table in the center with four desktops arranged in a circle around it, with monitors and mechanical keyboards. I immediately went to turn on one of the computers. It was functional, but totally empty. Not a single app or file on this hard drive. It’s a dud. I checked the other three, they’re the same. These have either never been used before, or they were recently wiped.
+
+I tried to read the files, but it was way too fucking dark in there, and the lights didn’t work. I thought about reading them in the hallway, but then I got hit with a random sense of fear that I would get caught by someone and get in trouble for entering a forbidden area and reading files. I can’t afford to get evicted. Or worst case, arrested. I need to do this in private. Plus, the metallic smell is worse in this room.
+
+I grabbed as many files as I could fit under my shirt without causing too much of a noticeable file-shaped bulge, moved the ice machine back into place then I speed-walked back to my apartment. I have no idea how, but I somehow managed to make it back without getting too lost.
+
+^(Date:) 
+
+^(Time:) 
+
+I read the files. I mean, not all of them yet. But I made it through a folder and a half, in a few hours or so. Not too shabby.
+
+It’s people. The files are like… just people. I mean; names, dates of birth, dates of death… it’s files and files of… random fucking people? Why? It’s not just names and numbers either, it’s whole damn essays. Like, this one goes into pretty excruciating detail over how this one guy would beat his wife up. It’s like I’m reading a textbook or something, it’s all so… matter-of-fact. What’s the point of it?
+
+Here’s another one. This one is just a sweet old lady. But it’s fucking *everything*. From the day she was born, through to the day she died. Every major life moment and relationship she ever had… who the hell is this old lady? Who are these people? They aren’t famous or anything, I’m pretty sure they’re just normal people. Why would anyone need this information?
+
+I’m gonna call it a night on these files and get back at it tomorrow, first thing in the morning. I won’t stop until I start to piece this whole thing together.
+
+^(Date: Thursday)
+
+^(Time: Morning)
+
+Went for a walk this morning. I was in a good mood. Even the hallway guy seemed to be in a good mood. I almost forgot all the bullshit I’ve been dealing with for the last… time period.
+
+Everything was fine, we just chatted about whatever. When I left, he didn’t say a word, which was weird because he usually says goodbye. When I turned the next corner, I saw something that made my heart jump.
+
+It was a maintenance guy. I couldn’t believe my fucking eyes. I had never seen an employee at this place, ever. At least, not that I can recall. He had a hand-truck, and he was unloading a brand new ice machine from it.
+
+My skin went hot and my blood flushed, I knew I was fucked. I looked back at the wall where the hole opens up to the file room. It wasn’t there. I mean, the wall was there, the *hole* wasn’t. The hole was *gone*. They’d repaired the wall, which means…
+
+I could have sworn I was gonna die in that moment. I swear to God, I was so fucking scared. I couldn’t move a muscle. I couldn’t even say why, but for some reason, every single cell in my body was screaming at me that this maintenance man was about to lunge at me, wrapping his hands around my throat and snuffing out my life in an instant. I stared at him for so long, I was too terrified to blink. I was convinced that if I moved a muscle, even an eyelid, I would be dead before I could react.
+
+He didn’t even notice me. He just unloaded the ice machine, plugged it in, turned it on, and left. Didn’t say a word. Didn’t even glance in my direction.
+
+I fucking sprinted home.
+
+Back to the files. I can’t take much more of this.
+
+^(Date: Thursday)
+
+^(Time: Night)
+
+Spent all day going through more files. It’s nothing. Just people. Good people, bad people, old people, young people, it doesn’t matter. It doesn’t fucking matter. What does any of it have to do with anything?
+
+Gonna keep going. There’s got to be something important here. I feel like I’ll know it when I see it.
+
+^(Date: Sunday)
+
+^(Time: mid-day)
+
+That’s it, I finished the files. I read every single fucking paragraph. It’s just biographies, nothing more. I’ve gained nothing from this. What the hell am I doing?
+
+I tried calling the doctor again. Still no answer. Infinite ringing. Are my calls even leaving this building? I’d have no way of knowing. If I could figure out a way to… 
+
+This damn smell is making my head spin. I’m starting to be able to taste it.
+
+^(Date:) 
+
+^(Time: night)
+
+It’s the middle of the night, and I woke up screaming. I was having a horrific dream… like, so bad that it made even this bullshit I’m dealing with seem like a walk in the park. It was… I almost can’t even describe it. I was totally helpless, and… nevermind. Just glad it’s over.
+
+There’s no way I’ll be able to fall back asleep tonight, so I guess I’m going for a night walk.
+
+^(Date: Thursday)
+
+^(Time: night)
+
+I ran into the hallway guy during my nightwalk. Scared the shit out of me at first, truthfully. I came around the corner and almost had a heart attack. He was standing there the same way he normally does, leaning against the wall on his shoulder.
+
+He didn’t say anything at first. I nodded to him and said what’s up, and he nodded back but didn’t speak. I walked past him and kept going down the hall. I heard him say something from behind me, but I couldn’t make out what it was. When I turned back and asked him what it was, I barely was able to catch a glimpse of him as he disappeared back into his apartment and closed the door behind him.
+
+^(Date: Friday)
+
+^(Time: Morning)
+
+I noticed a small little bag hanging on the hallway guy’s apartment door handle this morning. I assumed an apartment employee had put it there. I didn’t want to be nosy, but these apartment people are elusive and I have to take any opportunity I can get to acquire intel. I didn’t open the bag, but I felt it in my hand. There was something hard, heavy. Metal. Stone. But it was wrapped in something soft. Fabric. Cloth. No clue what it could be.
+
+As I stepped back away from the hallway guy’s door, I saw a laminated piece of paper posted to the front of his door. In bold letters across the top of the page said:
+
+**EVICTION NOTICE**
+
+^(Date: Friday)
+
+^(Time: night)
+
+What the hell is going on with hallway guy? Evicted? I need to talk to him before he leaves, he’s gotta know something about the files, or the phones or something.
+
+^(Date: Saturday)
+
+^(Time: morning)
+
+He’s gone. The sign was gone off his door, and the bag too. They even changed his apartment number. It’s apartment 803 now. I don’t remember what number it was before, but I know it wasn’t 803. Are we on the eighth floor?
+
+^(Date: Monday)
+
+^(Time: morning)
+
+Hoping I wake up and it turns out this was all just a really, really fucking bad dream.
+
+^(Date: Wednesday)
+
+^(Time: night)
+
+I can’t do this shit anymore, I’m going thoroughly insane. I’m not seeing connections where there aren’t any, right? There’s something here. The files, these people, the hallway guy, the elevator, the FUCKING SMELL THAT WON’T GO AWAY.
+
+IT’S ALL CONNECTED. I know what I need to do. I need to go back to that fucking room.
+
+^(Date: Wednesday)
+
+^(Time: night)
+
+This might be my last entry, if there’s something awful waiting for me in that room. I don’t really have anything I could bring as a weapon, other than a dull kitchen knife. I have it tucked into the back of my pants, hopefully I don’t forget about it and accidentally stab myself in the ass.
+
+I’m going back to the ice machines and the elevator, and I’m gonna kick a fucking hole through that wall and go back into that room. I’m gonna get answers, and if anyone tries to stop me, they’re gonna get hurt really fucking bad.
+
+If this is my last entry, it means I’m dead. Send help. There’s something evil going on here.
+
+^(Date:)
+
+^(Time:)
+
+I wish I never went back to the file room.
+
+I did exactly what I said I was going to do. I went back to the room, kicked a hole in the wall, and got my answers. There was another box in the corner that I could now see clearly due to the extra light coming in from the hallway. It was filled with files. I had a feeling that I should just lift up the files out of the box for a second. No real logical reason, but the feeling was too potent to be ignored. I lifted up the files, and looked down inside the box. There was a USB drive on the bottom.
+
+I booted up one of the desktops and put the USB drive in it. Nothing happens. I opened up the file explorer just as I did before, when I saw that the hard drive was totally empty. Except now, there was a folder. It had no name, but it contained two files. A text file, and a video. I opened the text file.
+
+It was another one of those biographical files about some random unimportant person. The problem was: this time, I was that person. I was looking at my own file.
+
+It was accurate. I’ll spare you the details, but it was accurate. So accurate that it’s impossible - some of these details are things that shouldn’t be known to anyone, they *couldn’t* be known to anyone, it's *impossible*.
+
+But there it was, all in the file. Right in front of my eyes.
+
+I started to get a sinking feeling in my stomach. The feeling that I now knew *exactly* what was going on. The files, the room, the entire fucking apartment building. Or at least, this floor of it. When I opened up the video file, my suspicions were confirmed.
+
+Every single one of those people in the files, myself included, is in an in-between state. Or at least, they were. Most of them have probably moved on by now. Moved onto the next life. A life full of opportunity, if they’ve proven that they deserve such a reward - a life full of hardship if they haven’t.
+
+I’ve proven the opposite. What I saw in that video file, what I saw in my dream, it’s real. It *was* real. I did those things. Me. I did. Even if I don’t want to remember them, I still did them. No one else. Just me. And those poor people, they were helpless.
+
+I don’t know what’s waiting for me on the other side. I know it isn’t a grand life full of opportunity, but I don’t think it’s a life of standard hardship either. I think there’s something different in store for me, and it’s exactly what I deserve.
+
+I found the eviction notice on my door the next day. Bag on the handle, too. I opened it up and found a bundle of stained gray cloth. I unraveled the cloth and opened it to reveal my prize. My reward for all the effort I went through, mapping the floor and scouring through endless files.
+
+The elevator key.
 
