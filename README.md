@@ -1,258 +1,266 @@
-# There's something sinister about my apartment building.
-^(Date: Friday)
+# Help! I think he’s going to kill me!
+This whole... thing started around 3 weeks ago.
 
-^(Time: Night)
+My car had broken down for the second time in just as many months, and even though the mechanic told me that it would only take them a day, I was forced to ride the bus for the rest of the week.
 
-I don’t remember anything before moving to this apartment building. Really, I’m serious. I genuinely could not even tell you how long I’ve lived here. I couldn’t even tell you what the name of the building is. I don’t remember signing a lease, touring the place, nothing. I mean, shit. Jesus Christ, this is really a mess, huh? What’s wrong with me? Gotta be mold or some gas. It could be gas. I *have* been occasionally smelling this weird metallic smell, like an old middle school drinking fountain.
+I’m sure, if you ever had to do something like that, you know just how fucking pissed I was.
 
-Anyway, I’ve been having some serious memory issues lately. Basic information, names, etc. Entire days missing. That’s why I’m starting this log, so I can look back and read what happened if I lose any more time.
+I had to get up an hour earlier every morning, yet I almost never made it on time anyway. Instead of picking up coffee along the way, I had to squeeze myself into what felt like a metal tube, filled with strangers and their smells.
 
-I’m gonna try calling a doctor first thing on Monday morning. Just a few more days. I think… I’m actually not sure what day it is. Wait, it’s Friday. I know it’s Friday because yesterday I talked to what’s-his-name, the hallway guy. That was yesterday, which makes today Friday.
+If I left just on time, I somehow managed to arrive only half an hour later than I would have with my car.
 
-^(Date: Saturday)
+I was cursing out some deity or another every single time I boarded that bus.
 
-^(Time: Morning)
+Between the rough driving, the noise and smells of other people, and the constant delays, I really thought I might either get fired or assaulted by the end of the week.
 
-I tried to go for a walk outside today to clear my head. Only problem is, I can’t find the damn stairs. I know, it sounds so stupid. It *is* stupid. How can I not know where the stairs are in my own fucking apartment building? This is getting ridiculous, I need to call a doctor now. Fuck waiting until Monday, this is like, an emergency. Time for action.
+Let’s be honest here... it just doesn’t work... not having a car, I mean.
 
-^(Date: Saturday)
+At least around these parts of the country.
 
-^(Time:)
+Now... back to my problem.
 
-Called the doctor. No answer. The phone just kept ringing. I got pissed and threw the phone. I think it might be broken now. I can’t handle this shit. I need to go for a walk outside, right now. Fresh air. Fresh, without that gross tinny smell. The whole floor reeks of it.
+It all happened, as I said, about three weeks ago. On a Thursday, to be exact.
 
-No excuses, I’m going to keep doing fucking laps around the entire floor until I see the stairs.
+I got out of work at just past five and sprinted through the city to get to the bus stop in time, already promising myself that I wouldn’t have to do that any more soon.
 
-^(Date: Sat ?)
+By the end of the week, I would have my car again, I told myself.
 
-^(Time:)
+It would be smooth sailing from then on. Back to my old ways.
 
-Where. The. Fuck. Are. The. Stairs.
+Well, I managed to catch the bus, drenched in sweat and completely out of breath, and the only reason I did so was because someone blocked the road for a minute or two, otherwise, it would have passed me by.
 
-I think I’m losing my mind. I must be losing my mind. I almost screamed when I came around the corner after the ice machines and saw the elevator. I had forgotten all about it. Problem is, you need a key for it. I can’t catch a break. What is this? What kind of apartment building has an elevator that you can’t use without a key, and doesn’t give you the key?
+I was so thankful at that moment, yet I curse that person now.
 
-I need to get to the bottom of this.
+When I boarded the bus, breathing heavily, it wasn’t nearly as full as it normally would be, which might have been a clue, I think.
 
-^(Date: Thursday)
+This time, I even got a seat, although not one of the good ones, since I had to sit with my back to the driver and was looking at all the other people taking the bus, just like me.
 
-^(Time: Mid-day)
+So I took it and started staring out of the window.
 
-I talked to the guy in the hallway again. I guess that means it’s Thursday. I asked him if he’s ever used the elevator. He said he hasn’t. Didn’t even notice we had an elevator. I told him I didn’t either. I asked him if he knew where the stairs were. He said he didn’t. He did mention the smell, though. He doesn’t know where it’s coming from.
+The first ten minutes were completely normal.
 
-I can’t just sit here. I need to get out and move around. If I can’t leave this floor, then I’ll become the master of this floor. I’m gonna map it out.
+Well... as normal as riding the bus can be. I watched some people in business clothes boarding and sitting down. They looked exhausted and I had to smile as I saw my own fatigue reflected in their faces.
 
-^(Date: Thursday)
+A few kids came in the next stop, with music blaring from their phones. I don’t know if they don’t realize how much they bother the rest, or if they’re doing it on purpose.
 
-^(Time: Night)
+Then an old man with a cane boarded, and kept holding it almost like a weapon as soon as he saw the youths.
 
-I don’t know what happened. I tried to map the place out. I got a pen and paper, and an ashtray as a clipboard, put the wall to my right-side shoulder and just went forward until I hit a corner, then turned and repeated. The problem is… there, I mean how can I put this, it’s like… this place doesn’t *have* a shape. I mean it does, obviously. Everything has a shape. But it isn’t… I turned left at a corner, and then later I turned right at the same exact fucking corner. I wasn’t turned around, I checked the paper. I was going in the exact same direction I was going last time, at the same pace, and the same distance. Instead of turning back ‘in’ towards the rest of the apartment building, it turned ‘out’. It opened up to more, like… more of the apartment building. But it wasn’t there before. I mean, maybe it was, I guess…
+You know... the normal circus, so to speak.
 
-I need to take a nap, my fucking head hurts.
+But that all changed at the sixth stop.
 
-^(Date:)
+I know that, because I replayed what happened next almost constantly in my mind.
 
-^(Time: mid-day)
+This guy boarded the bus, and I immediately felt that he was trouble.
 
-I slept for a really long time. At least, I think I did. I’m now realizing that there isn’t a clock in here. Anyway, I feel like I just woke up from hibernation, so I guess that’s a good thing.
+He entered from the door in the back, slowly lumbering in, with his head tucked so it wouldn’t hit the top of the frame.
 
-All that bullshit yesterday really messed with my head. What was it, a map? What did I do with that map? I’m gonna go looking for it.
+His brown coat was dirty. He wore an ill-fitting hoodie underneath. His jeans looked washed out and scraped and there were bandages on his right hand.
 
-^(Date:) 
+I know it’s not nice to say, but I immediately thought this guy would smell.
 
-^(Time:) 
+And he did.
 
-I don’t know what happened to the map. I don’t even really know *how* it got lost, considering how empty this fucking apartment is. I have bare-minimum furniture and not much in the way of personal possessions, so there isn’t really even anywhere for something to get lost. Oh well, best to not worry about it. Missing things only ever seem to turn up right after you stop looking for them.
+Of tobacco, cheap booze, and rancid sweat.
 
-I’m gonna go for a walk.
+The odor was so strong that I stopped breathing through my nose as I watched this man standing by the back door, slowly turning his head.
 
-^(Date:) 
+He looked rough. Everything about him just seemed off, somehow.
 
-^(Time:) 
+The hood he was wearing didn’t cover his greasy hair and those dark shades over his eyes made him look like a junkie.
 
-I walked around the floor again. I saw the elevator. Which is weird, because I’m pretty fucking sure I took a different route today than I did yesterday. Plus, I didn’t see the ice machines. They were at the corner right before the elevator. Not today.
+Some small voice in the back of my mind already screamed at me to get up and walk out, but the prospect of arriving home even later made me stay.
 
-My heart is starting to flutter, I’m way too young to be dealing with this kind of stress. My mind is falling apart and I need help. I need to get out of here. I need to find that fucking map
+I felt a kind of morbid fascination, I have to admit.
 
-^(Date: Thursday?)
+Watching this big, strange-looking guy standing there, swaying from side to side as the bus set off again...
 
-^(Time: Night)
+Well... all of that disappeared the moment his gaze fell upon me.
 
-I FOUND IT! I found the damn map, finally.
+He stopped turning and looking around the second he spotted me and our eyes met.
 
-I must have been really loud when I yelled in excitement, because the guy from the hallway knocked on my door. It was super strange. I mean, I guess it wasn’t that strange. I was being loud, after all. I opened the door and apologized for the noise, but he didn’t really seem to care about that. To be honest, I’m not really sure what he even knocked on my door for in the first place. I guess he just wanted to talk about… what the hell did we even talk about? It was weird to see him here, I mean - at my door. I feel like I’ve only ever seen him in the hallway by the left-side corner.
+I could feel it, even if I didn’t see them through the shades.
 
-^(Date:) 
+It’s hard to describe what I felt at that moment. Fear? Yeah, but worse. My throat went dry in an instant and the stench seemed to invade my nose. I could feel my hands shaking and cold sweat breaking out all over my body...
 
-^(Time: Night)
+Like a deer in headlights... or a mouse getting dropped right in front of a snake.
 
-I went for another walk with the map and pen, trying to get a lay of the land. It doesn’t make sense. It makes *less* sense, the more I explore and map it out, it somehow gets even *more confusing*. It doesn’t help that my brain isn’t working at full efficiency.
+This terror gripped me and I immediately averted my eyes, even though every single part of my mind screeched at me that the damage was done already.
 
-At this point, I’ve determined that there’s only two possibilities:
+The man had spotted me, and I could hear the big, lumbering steps echoing around the bus as he slowly started to walk in my direction. Why didn’t I jump up then and run to the door by the bus driver? Would it even have made a difference?
 
-* Possibility One: My mind has been poisoned beyond all reasoning by some sort of hyper aggressive mold or chemical agent. I’m fucked, and will 100% die soon.
-* Possibility Two: There’s a secret room hidden somewhere on this floor.
+I could feel him coming closer and closer. The stench was getting bad enough that I could taste it on my tongue.
 
-That must be it. Wait, yes, it actually makes so much sense! One of these walls is a false wall, it’s hollow behind it. I know it. I’m willing to bet my ass that whatever’s in there is probably what’s causing my head to feel this way. Probably some animal that crawled into a vent and died or something. Leaking toxic fumes into every apartment on the whole floor.
+This guy, he was heading for me, I knew, yet could do nothing but sit there and tremble.
 
-How come the owners didn’t send a maintenance dude to come deal with this? There’s no way I’m the only one on this floor who’s experiencing these symptoms.
+His heavy steps reached the seat in front of me, and the woman who had been sitting there stood up.
 
-First thing tomorrow morning, I’m gonna find that fucking room.
+I could smell his breath now too. The sour stench of rotten food.
 
-^(Date:) 
+He sat down across from me, just as the door opened, and I jumped up and ran.
 
-^(Time:) 
+Finally, my body had moved, had reacted to the oncoming danger, and even though it was far away from my stop, I just couldn’t bear it anymore.
 
-I KNEW IT. I FUCKING KNEW IT.
+I slipped out of the bus the moment before the door closed, almost stumbled, then dared to look back, and what I saw there, made my skin crawl.
 
-I found the hidden room. I took the map and went to each spot, one-by-one, that could have possibly contained another room. Knocked on the walls, trying to hear for hollowness on the other side. Some of my neighbors opened their doors and leaned out to look at me. They weren’t mad or anything, just curious, I guess.
+The man was standing by the window, and staring out, directly at me.
 
-Anyway, the room. I started at the elevator, took two rights, a left, and then one more right. Back at the ice machines. Started knocking. Heard that unmistakable echo on the other side of the wall. Hollow.
+I didn’t want to wait at the stop for the next bus. Somehow, I could feel this insane uneasiness... It felt like something told me that the man would get off at the next stop and come back here.
 
-For whatever reason I decided to try and look directly behind the ice machines. They were pressed up right against the wall, so I couldn’t see anything back there. I don’t know why I did, but I grabbed one of the machines and started pulling it. It was heavy as hell, but thankfully I’m pretty thin, so I only needed to move it a little bit to create an opening wide enough to squeeze through. It looked dark inside. I really wanted to go back to my apartment and grab something to use as a light source in case the lights don’t work in there, but I’m not sure if I’d be able to find my way back.
+So I took an Uber home, paid the money gladly, and thought that with that, the whole episode would be over.
 
-Anyway, long story short. It’s a file room, or a data room, or something like that. There’s a row of file cabinets in the back, a round table in the center with four desktops arranged in a circle around it, with monitors and mechanical keyboards. I immediately went to turn on one of the computers. It was functional, but totally empty. Not a single app or file on this hard drive. It’s a dud. I checked the other three, they’re the same. These have either never been used before, or they were recently wiped.
+But no...
 
-I tried to read the files, but it was way too fucking dark in there, and the lights didn’t work. I thought about reading them in the hallway, but then I got hit with a random sense of fear that I would get caught by someone and get in trouble for entering a forbidden area and reading files. I can’t afford to get evicted. Or worst case, arrested. I need to do this in private. Plus, the metallic smell is worse in this room.
+I still had to ride the bus the next day... taking an Uber once might have been fine, but I wasn’t about to pay a whole day’s wage just to get to and back from work...
 
-I grabbed as many files as I could fit under my shirt without causing too much of a noticeable file-shaped bulge, moved the ice machine back into place then I speed-walked back to my apartment. I have no idea how, but I somehow managed to make it back without getting too lost.
+The only thing I could think of, was starting my commute even earlier, then clocking out sooner. It’s not like my boss would mind, I told myself, and boarded the bus the next morning, a few minutes after six o’clock.
 
-^(Date:) 
+At first, I felt relief, when I got on and could see the bus being almost full of blue collar workers, all minding their own business in silence.
 
-^(Time:) 
+All would be well, I told myself.
 
-I read the files. I mean, not all of them yet. But I made it through a folder and a half, in a few hours or so. Not too shabby.
+How foolish. My happiness lasted around half an hour before we got to the part of the city where I had seen the guy.
 
-It’s people. The files are like… just people. I mean; names, dates of birth, dates of death… it’s files and files of… random fucking people? Why? It’s not just names and numbers either, it’s whole damn essays. Like, this one goes into pretty excruciating detail over how this one guy would beat his wife up. It’s like I’m reading a textbook or something, it’s all so… matter-of-fact. What’s the point of it?
+The bus rounded a corner, and suddenly, I felt this strange feeling again.
 
-Here’s another one. This one is just a sweet old lady. But it’s fucking *everything*. From the day she was born, through to the day she died. Every major life moment and relationship she ever had… who the hell is this old lady? Who are these people? They aren’t famous or anything, I’m pretty sure they’re just normal people. Why would anyone need this information?
+Sweat was breaking out all over my body. I was hot and cold at the same time. My heart started racing and my lungs burned.
 
-I’m gonna call it a night on these files and get back at it tomorrow, first thing in the morning. I won’t stop until I start to piece this whole thing together.
+Completely overwhelmed, I looked up and saw it.
 
-^(Date: Thursday)
+Him.
 
-^(Time: Morning)
+Standing at a street corner, a brown bag in his hand.
 
-Went for a walk this morning. I was in a good mood. Even the hallway guy seemed to be in a good mood. I almost forgot all the bullshit I’ve been dealing with for the last… time period.
+He was wearing the exact same outfit from last time, and his eyes, still covered by the shades, found mine immediately.
 
-Everything was fine, we just chatted about whatever. When I left, he didn’t say a word, which was weird because he usually says goodbye. When I turned the next corner, I saw something that made my heart jump.
+I don’t know how he recognized me, but he most definitely did. The moment he noticed I was in here, he dropped the bag and started to run after the bus. His big steps carried his massive body forward as we sped past.
 
-It was a maintenance guy. I couldn’t believe my fucking eyes. I had never seen an employee at this place, ever. At least, not that I can recall. He had a hand-truck, and he was unloading a brand new ice machine from it.
+A stop was soon coming up, I knew, and felt this fear and dread already gripping my heart again.
 
-My skin went hot and my blood flushed, I knew I was fucked. I looked back at the wall where the hole opens up to the file room. It wasn’t there. I mean, the wall was there, the *hole* wasn’t. The hole was *gone*. They’d repaired the wall, which means…
+What did he want?
 
-I could have sworn I was gonna die in that moment. I swear to God, I was so fucking scared. I couldn’t move a muscle. I couldn’t even say why, but for some reason, every single cell in my body was screaming at me that this maintenance man was about to lunge at me, wrapping his hands around my throat and snuffing out my life in an instant. I stared at him for so long, I was too terrified to blink. I was convinced that if I moved a muscle, even an eyelid, I would be dead before I could react.
+Why was he chasing me?
 
-He didn’t even notice me. He just unloaded the ice machine, plugged it in, turned it on, and left. Didn’t say a word. Didn’t even glance in my direction.
+Had I insulted him in some way? Provoked him?
 
-I fucking sprinted home.
+I don’t know... I can’t say...
 
-Back to the files. I can’t take much more of this.
+All I could do was press my face against the window to look at and watch the man racing after the bus that would soon stop to let people out.... and in.
 
-^(Date: Thursday)
+The vehicle came to a squealing halt and I wanted to scream.
 
-^(Time: Night)
+I had lost sight of the man, but I was sure he was still running toward me. Somehow, I could feel it. His presence... The fear and terror that had gripped me told me to run and hide myself, but I knew that I wouldn’t make it far out there.
 
-Spent all day going through more files. It’s nothing. Just people. Good people, bad people, old people, young people, it doesn’t matter. It doesn’t fucking matter. What does any of it have to do with anything?
+So I stayed in the bus, shaking and trembling like a child having a nightmare, as the sound of heavy steps coming down the road grew louder and louder.
 
-Gonna keep going. There’s got to be something important here. I feel like I’ll know it when I see it.
+I wanted to scream at the driver to go...
 
-^(Date: Sunday)
+I wanted to duck and hide...
 
-^(Time: mid-day)
+I wanted...
 
-That’s it, I finished the files. I read every single fucking paragraph. It’s just biographies, nothing more. I’ve gained nothing from this. What the hell am I doing?
+The stench hit me suddenly, and I could have broken down on the spot.
 
-I tried calling the doctor again. Still no answer. Infinite ringing. Are my calls even leaving this building? I’d have no way of knowing. If I could figure out a way to… 
+Tobacco, alcohol, sweat.
 
-This damn smell is making my head spin. I’m starting to be able to taste it.
+It invaded the bus and almost made me retch.
 
-^(Date:) 
+Out of the corner of my eye, I saw him. The big, lumbering figure sprinted full speed down the sidewalk.
 
-^(Time: night)
+The door was still open.
 
-It’s the middle of the night, and I woke up screaming. I was having a horrific dream… like, so bad that it made even this bullshit I’m dealing with seem like a walk in the park. It was… I almost can’t even describe it. I was totally helpless, and… nevermind. Just glad it’s over.
+I wanted to cry.
 
-There’s no way I’ll be able to fall back asleep tonight, so I guess I’m going for a night walk.
+He would get on the bus, I knew, at that moment, and contemplated jumping off.
 
-^(Date: Thursday)
+Suddenly I heard the doors falling shut and felt the engine starting up, just as two massive hands hit the side of the bus in frustration.
 
-^(Time: night)
+The driver cursed but drove off, and as I looked behind, I could see the man standing there, out of breath, while his eyes still followed me.
 
-I ran into the hallway guy during my nightwalk. Scared the shit out of me at first, truthfully. I came around the corner and almost had a heart attack. He was standing there the same way he normally does, leaning against the wall on his shoulder.
+To say I was useless at work that day would be an overstatement. I was a nervous wreck the whole time and my boss told me to leave early since I wasn’t managing to do much anyway...
 
-He didn’t say anything at first. I nodded to him and said what’s up, and he nodded back but didn’t speak. I walked past him and kept going down the hall. I heard him say something from behind me, but I couldn’t make out what it was. When I turned back and asked him what it was, I barely was able to catch a glimpse of him as he disappeared back into his apartment and closed the door behind him.
+Thankfully, I thought, I needed to get on another bus that day, which would take me to the service center, to finally get my car back.
 
-^(Date: Friday)
+What I didn’t expect was that as soon as I walked over to the bus stop, that smell suddenly hit me.
 
-^(Time: Morning)
+I was standing in a crowd of people and couldn’t move.
 
-I noticed a small little bag hanging on the hallway guy’s apartment door handle this morning. I assumed an apartment employee had put it there. I didn’t want to be nosy, but these apartment people are elusive and I have to take any opportunity I can get to acquire intel. I didn’t open the bag, but I felt it in my hand. There was something hard, heavy. Metal. Stone. But it was wrapped in something soft. Fabric. Cloth. No clue what it could be.
+The stench was here.
 
-As I stepped back away from the hallway guy’s door, I saw a laminated piece of paper posted to the front of his door. In bold letters across the top of the page said:
+So strong.
 
-**EVICTION NOTICE**
+Luckily, the bus came just a few seconds later, and I boarded it without a problem, but as soon as we drove off, right in the alley next to the stop, I saw him again.
 
-^(Date: Friday)
+And he saw me.
 
-^(Time: night)
+The fear gripped me, even though I knew he wouldn’t be able to get to me that time...
 
-What the hell is going on with hallway guy? Evicted? I need to talk to him before he leaves, he’s gotta know something about the files, or the phones or something.
+He started to run, but the bus drove off and deeper into the city.
 
-^(Date: Saturday)
+Shit...
 
-^(Time: morning)
+I should have noticed it back then. The fact that the bus stop I had been waiting at was so close to my work... This strange guy was slowly but steadily finding me.
 
-He’s gone. The sign was gone off his door, and the bag too. They even changed his apartment number. It’s apartment 803 now. I don’t remember what number it was before, but I know it wasn’t 803. Are we on the eighth floor?
+Maybe if I had just left then and there, I would have been able to get away from him?
 
-^(Date: Monday)
+No... I don’t think so.
 
-^(Time: morning)
+Something is wrong here... with him, or me...
 
-Hoping I wake up and it turns out this was all just a really, really fucking bad dream.
+Whatever the case... I can’t even begin to describe how elated I felt as I got in my car again... I would have taken any kind of trade-in as well.
 
-^(Date: Wednesday)
+All I wanted was to be able to drive on my own once more.
 
-^(Time: night)
+To leave public transportation behind, and with it, that man...
 
-I can’t do this shit anymore, I’m going thoroughly insane. I’m not seeing connections where there aren’t any, right? There’s something here. The files, these people, the hallway guy, the elevator, the FUCKING SMELL THAT WON’T GO AWAY.
+Well, I was wrong.
 
-IT’S ALL CONNECTED. I know what I need to do. I need to go back to that fucking room.
+Not even a day later, I stopped at a gas station, miles away from where I worked, opened the door, then froze.
 
-^(Date: Wednesday)
+There it was again.
 
-^(Time: night)
+That stench, followed by the terror I always felt.
 
-This might be my last entry, if there’s something awful waiting for me in that room. I don’t really have anything I could bring as a weapon, other than a dull kitchen knife. I have it tucked into the back of my pants, hopefully I don’t forget about it and accidentally stab myself in the ass.
+A shadow seemed to fall upon me as I looked up and saw a figure, standing by the side of the building, staring at me.
 
-I’m going back to the ice machines and the elevator, and I’m gonna kick a fucking hole through that wall and go back into that room. I’m gonna get answers, and if anyone tries to stop me, they’re gonna get hurt really fucking bad.
+He was grinning widely as he started to run.
 
-If this is my last entry, it means I’m dead. Send help. There’s something evil going on here.
+I threw my door shut and put my foot down, shooting out of the station and into traffic.
 
-^(Date:)
+Luckily, I didn’t crash, because as I looked into the rearview-mirror, I could see the man running along the sidewalk again.
 
-^(Time:)
+I don’t know what I did to him, or how he manages to pop up wherever I go...
 
-I wish I never went back to the file room.
+Over the next few weeks, I saw him almost daily.
 
-I did exactly what I said I was going to do. I went back to the room, kicked a hole in the wall, and got my answers. There was another box in the corner that I could now see clearly due to the extra light coming in from the hallway. It was filled with files. I had a feeling that I should just lift up the files out of the box for a second. No real logical reason, but the feeling was too potent to be ignored. I lifted up the files, and looked down inside the box. There was a USB drive on the bottom.
+Sometimes lingering around the street where my company is, other times, waiting by the road.
 
-I booted up one of the desktops and put the USB drive in it. Nothing happens. I opened up the file explorer just as I did before, when I saw that the hard drive was totally empty. Except now, there was a folder. It had no name, but it contained two files. A text file, and a video. I opened the text file.
+Twice I had to drive off as I had stopped at a red light when I suddenly saw him appear from one of the alleys...
 
-It was another one of those biographical files about some random unimportant person. The problem was: this time, I was that person. I was looking at my own file.
+He’s coming closer, I can feel it...
 
-It was accurate. I’ll spare you the details, but it was accurate. So accurate that it’s impossible - some of these details are things that shouldn’t be known to anyone, they *couldn’t* be known to anyone, it's *impossible*.
+Sometimes at night, I wake up with this dread in my chest.
 
-But there it was, all in the file. Right in front of my eyes.
+I’ve talked to the police, but they can’t help or don’t want to help, since my description seems off...
 
-I started to get a sinking feeling in my stomach. The feeling that I now knew *exactly* what was going on. The files, the room, the entire fucking apartment building. Or at least, this floor of it. When I opened up the video file, my suspicions were confirmed.
+I even got myself a gun, but I don’t know if it will be enough...
 
-Every single one of those people in the files, myself included, is in an in-between state. Or at least, they were. Most of them have probably moved on by now. Moved onto the next life. A life full of opportunity, if they’ve proven that they deserve such a reward - a life full of hardship if they haven’t.
+I’m so fucking scared all the time...
 
-I’ve proven the opposite. What I saw in that video file, what I saw in my dream, it’s real. It *was* real. I did those things. Me. I did. Even if I don’t want to remember them, I still did them. No one else. Just me. And those poor people, they were helpless.
+Right now, I’m staying in a hotel, since last night, I saw the figure from my window, walking around the streets out there.
 
-I don’t know what’s waiting for me on the other side. I know it isn’t a grand life full of opportunity, but I don’t think it’s a life of standard hardship either. I think there’s something different in store for me, and it’s exactly what I deserve.
+I think he knows where I am...
 
-I found the eviction notice on my door the next day. Bag on the handle, too. I opened it up and found a bundle of stained gray cloth. I unraveled the cloth and opened it to reveal my prize. My reward for all the effort I went through, mapping the floor and scouring through endless files.
+He can find me anywhere... No matter where I run, no matter what I do...
 
-The elevator key.
+Even in my nightmares, he appears.
 
+I can’t sleep, I can’t eat, I can’t rest.
+
+The gun is next to my laptop right now...
+
+There’s this stench in the air, coming from outside my room...
+
+Oh God...
+
+I think he found me.
