@@ -1,249 +1,180 @@
-# Did anyone else's school show a video called How to Spot a Replacement?
-Memories are strange, aren't they? Some vanish into the void, others alter with time and grow uncertain. Yet some remain perfectly etched, forever vivid. Some are repressed, only rising like waves when triggered. And then there are those you'd rather erase, memories you desperately wish to bury, but that linger relentlessly, haunting every waking hour.
+# I don’t think my mum is my mum anymore
+I don’t know how to explain this. I just need someone to tell me that I am not crazy.
 
-This is one of those memories I can never forget, a moment that shadows me every day.
+It started last Wednesday. Mum made spaghetti for dinner, and everything was normal. She laughed at my dad’s terrible jokes, made me set the table, scolded my little brother for playing with his food.
 
-It happened in middle school, on a cloudy, sleepy Monday. Mrs. Brown, our teacher, raised her voice to cut through our chatter and careless laughter.
+Just a normal night.
 
-“Alright, everyone, settle down. Listen carefully. Our school is participating in a county-wide wellness check. It will involve blood type tests, psychological evaluations, hearing, and eyesight checks. Each of you will go in alphabetical order throughout the week. Any questions?” She paused and scanned the room.
+Then, around midnight, I heard a noise.
+At first, I thought it was the wind, or maybe our cat knocking something over. But when I got up to check, I saw mum standing in the hallway.
+She was facing the wall, completely still.
 
-*Great. I'll be dead last*, I thought, my surname dooming me again. I glanced to my right at Eric, my desk neighbor and casual friend. We exchanged a look.
+A deep, animalistic instinct curled up inside me. Something was wrong. I could feel it in the back of my throat, thick and sour, like I’d swallowed a mouthful of spoiled milk.
 
-“Seems pretty boring,” I whispered.
+“Mum?” I whispered.
+She didn’t respond.
 
-He shrugged. “At least we'll get out of class for a bit,” he whispered back.
+I stepped closer, bare feet sinking into the carpet. The hallway light was off, but the moonlight through the window cast a soft, silver glow over her silhouette.
 
-I nodded absently, my gaze drifting to Alex on my left. He had this unsettling habit of blinking one eye at a time. It disturbed me, so I quickly looked away, turning my attention back to Mrs. Brown's lecture.
+Too stiff. Too straight. Like a doll propped up on its feet.
 
-Hours turned into days, and students were called out, one by one, for their wellness checks. During recess, conversations confirmed my suspicions; it was boring, uneventful. On Wednesday, though, Jack, a confident, talkative kid, returned to the classroom profoundly changed. He stood frozen in the doorway, eyes vacant and haunted. The entire class fell silent, watching him closely. Mrs. Brown stopped mid-sentence.
+“Mum?”, I said again, voice barely above a breath.
+Her head snapped towards me.
 
-“Jack? Are you okay?” she asked quietly.
+Not turned, snapped. Like someone yanking the cord of a broken marionette. Too fast, too sharp. My stomach lurched.
 
-Jack said nothing. He simply nodded, very slowly, before heading to his desk. For the remainder of the day, Jack stared blankly at nothing, his hands resting limply on his desk. Occasionally, I caught him glancing my way. Each time, our eyes met briefly, unsettling me deeply.
+Her pupils were huge, swallowing up the colour in her eyes. Wide. Too wide. I felt like I was looking into two black holes, and if I stared too long, I’d get sucked straight in.
 
-The next day, Lauren, a popular girl, bright and bubbly, returned from her wellness check in the same disturbed state. Her once-cheerful demeanor vanished completely. Some of the other kids grew nervous, whispering anxiously, though those who'd already gone through the test brushed it off casually.
+She smiled.
 
-At lunch, my group discussed it.
+“Go back to bed, sweetheart”.
+Her voice was normal, too normal. A perfect copy, but empty. Hollow. Like an actor reciting lines they’d practiced a thousand times. I still didn’t move.
+She blinked – once, slowly – then turned and scuttled back to her room.
 
-“I guess they’re just crazy or something, dude,” Josh said, biting into a sandwich.
+Like nothing happened.
 
-I unpacked my lunch slowly, troubled. The usual lively chatter echoed through the cafeteria, but my thoughts raced uneasily.
+I barely slept that night.
 
-“Both Jack and Lauren are acting like totally different people now. They seemed normal before, right?” I said, struggling to rationalize. “Lauren was one of the nicest, most popular girls, it just doesn’t add up.”
+The next morning, she was in the kitchen making pancakes, humming to herself, acting perfectly normal. Like I had imagined the whole thing. Maybe I had?
 
-Josh shrugged. “Yeah, it was boring, that's the weird part.”
+But then things started to get worse.
+She started watching me.
 
-“Maybe instead of taking your blood, they put something into it,” joked Caden, another friend, smirking slightly. “Changes you, warps you. Hopefully, you're not next.”
+Not in an obvious way. Just little things. Id catch her staring when she thought I wasn’t looking. Over breakfast. While I did my homework. Even when I was just laying on my bed, scrolling on my phone – I’d catch a glimpse of her deep black eyes and a glint from her white teeth in the crack of the door.
 
-Josh half-smiled, but my chest tightened. After all, I still hadn’t taken the test.
+It was then I noticed something else.
+Mum wasn’t blinking.
 
-Finally, Friday arrived. During history class, a soft knock came at the classroom door. Mrs. Brown stopped lecturing and went to open it. A young woman in a nurse’s jacket stood in the hallway.
+I mean, she did blink. But not like a normal person. It was too slow and deliberate. Like she had to think about it.
 
-“Ethan?” she called gently.
+Sometimes, she went minutes without blinking. Just staring at me, her face switching between being completely straight, to an ecstatic grin. Her eyes would get glassy, like a taxidermized animal, preserved in perfect realism but undeniably dead.
 
-She was pretty, making my middle-school heart flutter nervously. I felt my face flush as I stood, gathering my things. As I approached the door, my gaze was drawn involuntarily toward Jack, who stared back with unsettling intensity. I quickly looked away and followed the nurse.
+••
 
-“Last but certainly not least,” she said softly, escorting me through empty hallways.
+On Saturday I decided to test her.
 
-I forced a polite smile. She guided me to the nurse’s office, where a blood-test machine sat silently beside an old television set, two VHS tapes stacked neatly nearby. A clipboard and pen rested on the desk, waiting.
+At dinner, I asked her something only my real mum would know.
 
-“Ethan, please have a seat,” she instructed quietly. “Today, we'll take a small sample of your blood first, then check your hearing, eyesight, and reaction time. After that, I'll ask a few questions, and we'll finish by watching a video.”
+“Mum, remember when we went to Weston – super – Mare and I lost my shoe in the mud?”
+She smiled and strained, “Of course, sweetheart”.
 
-Her delivery seemed carefully rehearsed; she glanced occasionally at a sheet on the clipboard to confirm her steps. I nodded.
+We never went to Weston.
+I felt sick.
 
-“Okay,” I murmured.
+My dad and brother didn’t even react, just kept eating like normal, like she was normal. That night, I lay in bed, staring at the ceiling, heart rattling against my ribs.
 
-She pricked my finger swiftly and immediately placed a cloth and a band-aid over the puncture. Spinning around in her chair, she ran the blood test quietly, her face blankly professional.
+Something was wearing my mother.
+Like a costume. A pelt pulled over something else.
+Sunday night I woke up to my bedroom door creaking open.
 
-“Great, next is your hearing,” she said, rising to fetch headphones.
+I didn’t move
+Mum stood there in the doorway.
+Not moving.
+Not breathing.
 
-Before she placed them over my ears, I blurted out, “What's my blood type?”
+Just standing in the doorway, smiling and staring at me in the dark.
 
-She hesitated, her eyes briefly distant. “Hmm?”
+A breath hitched in my throat. My body screamed at me to run, but I couldn’t. I felt like a rabbit frozen in the grass, watching a fox creep closer, knowing the second it moved, it was over.
 
-“What's my blood type?” I repeated slowly.
+She took a step forward.
+And another.
 
-For a moment, she seemed lost, distracted. Then she recovered, blinking twice. “Oh – O positive,” she replied flatly, her voice strangely artificial, unconvincing. She handed me the headphones without another word.
+Until she was right next to my bed.
 
-A chill traveled down my spine. Something felt very wrong.
+The dim glow from the streetlight outside my window barely touched her face, casting deep shadows under her cheekbones, making her eyes look even darker, illuminating her maw.
 
-The nurse informed me that my hearing, eyesight, and reaction time were excellent, causing my face to flush red. She then seated herself in front of me, clipboard in hand.
+She leaned down, slow, slow, slow – until her face was level with mine.
 
-“Alright, Ethan,” she began quietly. “I'm going to ask you a few questions. Please answer honestly.”
+I felt her breath on my skin. Cold. Wrong. Like standing in front of an open fridge.
+“Are you scared of me, sweetheart?”. Her voice was so soft. Almost… sad.
 
-I nodded in response. She glanced at the first page briefly, shook her head, and flipped to the next.
+I squeezed my eyes shut. My heart hammered against my ribs, so loud she could probably hear it.
+I don’t know how long she stood over me. Seconds. Minutes. Hours.
 
-Her voice remained calm and professional, though oddly detached. She studied the clipboard again before looking up at me.
+Then she whispered, her voice catching on her throat “You should be.”
 
-“How have you been sleeping lately?”
+I don’t remember what happened next. At some point, I must have passed out. When I woke up, she was gone.
 
-“Fine, I guess,” I said. “Sometimes I stay up late playing games on weekends.”
+••
 
-She nodded absently, marking something down without really listening.
+Everything seemed normal the next morning. Mum made me toast, packed my lunch and kissed my forehead before school.
 
-“Do you ever feel like something is... off about people around you? Friends or family acting unusual?”
+Like nothing happened.
+Like she didn’t happen.
 
-I hesitated. Jack’s vacant stare flashed through my mind. A quiet unease stirred inside me.
+But I know what I saw.
 
-“Uh, no. Not really,” I lied.
+From then on, I started avoiding her. Taking the long way home, eating dinner as fast as possible before retreating to my room. Locking my door at night.
+It didn’t help.
 
-Another note was quietly made. Her eyes briefly lifted to meet mine, then lowered again.
+Tuesday night, I woke up outside.
+The cold bit into my skin, my bare feet sinking into the wet grass. The moon was too bright, making everything sharp, too clear.
 
-“Do you ever dream that someone else is pretending to be you?”
+I turned.
 
-A chill passed through me.
+Mum was standing by the back door, watching me.
+Not moving.
+Not breathing.
+Just smiling.
 
-“No,” I said, sweat dampening my palms.
+Something about it was worse than before. Wider. Stretched. Like the skin on her face was too tight, her teeth too white, too straight.
 
-She paused, wrote another slow note, and then looked up, smiling with an artificial warmth.
+Then – without warning – she snapped into motion.
+It was like watching a wild animal, suddenly unleashed from its cage. The way she jerked, too fast and erratic, her body moving with an unnatural, fluid grace, like something not quite human. Her legs tore across the grass, in a blur of limbs, faster than any normal person should move, like a predator closing in on prey. Her arms swung out at odd angles, reaching for the ground as she sprinted towards me, the dark shadows consuming her face, her smile stretching sider, too wide for a mouth, like a panting dog.
 
-“Great, Ethan. That’s all I need.”
+She didn’t run like a person. No. She hunted.
+Her bare feet slapped the earth, and it was like the ground itself trembled beneath her. I heard the sharp breath she took, the ragged, gasping sound of something desperate – something starving.
+I froze.
 
-I swallowed nervously as she stood and rolled over the old TV cart, positioning it directly in front of me. She glanced again at her clipboard, then turned toward the station where my bloodwork had been conducted, her back facing me. She seemed to deliberate briefly. Then, silently, she approached two VHS tapes resting on the table. From my angle, I glimpsed their labels: one read "Standard," the other, simply, "#9."
+Every instinct in my body was screaming to run again, but my legs would not move. My heart raced in my chest, trying to beat its way out. My throat was dry, tight with terror, my body frozen in place as her distorted figure cam closer, faster.
 
-“Okay, Ethan, I’ll step out while you watch this video. It should take about ten minutes,” she announced, oddly cheerful, clearly eager to finish. “Once it’s done, I’ll come back and you'll be all set.”
+I had only a moment before she was on me. The hairs on the back of my neck stood on end, the air around me filled with something sickly sweet, like rotting fruit.
 
-As she gathered my blood results and notes, a loose packet of papers slipped unnoticed from her grasp onto the floor. Instinctively, I rose from my seat to help, recalling my father’s insistence on politeness, especially toward women. She hurried forward, attempting to intercept, but I reached it first. A momentary sense of pride filled me until specific words on the page caught my eyes and held them captive, blocking out everything else around me.
+She was almost there
+But I couldn’t move
+I couldn’t breathe
 
-*Ignore the child's reaction after the video. Pretend everything–*
+And then, just as she was about to reach me – her face twisted into a neutral expression – she stopped.
+Still.
 
-She snatched the packet quickly from my grasp.
+Just like that, as if a switch was flipped, and she was back to the expressionless, staring thing she was before.
 
-“Thank you, Ethan,” she said sharply. “Now, please sit down.”
+She stood, breathing heavy, eyes wide and glassy.
+“Sweetheart…” She whispered, voice soft. Too soft. A whisper that should have been a scream. “I’ve missed you”.
 
-Confusion flooded my mind. *What did that mean?* Suddenly, trust vanished. An urge to flee surged within me, but my body obediently returned to the chair.
+I couldn’t speak.
+I didn’t wait, I finally bolted.
 
-With the quiet click of the VHS tape entering the machine, the soft pop of the television powering on, the flick of the light switch, and the subtle lock of the door, I was left alone. The static glow of the screen illuminated the darkened room.
+I don’t remember how I made it back inside. I just know I didn’t stop running.
 
-Then it began.
+Some time had passed, there was a sound at my bedroom door.
+*knock knock*
 
-A faded blue background appeared, bright yellow letters growing slowly larger. In reality, this probably took mere seconds, but time felt strangely stretched. An older woman's voice, cheerful yet monotone, narrated the words as they came into focus:
+A slow, deliberate tapping at my door.
 
-“How to Identify Replacements!”
+“Sweetheart?” she spoke. Her voice wrong, Stretched. Pulled. Like the phrase wasn’t made for human vocal cords.
 
-The screen briefly glitched and warped, then corrected itself. A cartoon man in a suit and top hat appeared, walking happily down a path, arms swinging, whistling cheerfully. Bright music accompanied him.
+**KNOCK KNOCK**
 
-“Hey, John!” the narrator called.
+“Come out and see your mother.”
 
-John halted abruptly, cartoonishly, like brakes on a car. His animated face filled the entire screen.
+I clamped my hands over my ears.
+Then she started scratching.
 
-“On your way to work, John?”
+Not knocking, scratching. Like nails dragging against wood, slow and rhythmic. Like she had all the time in the world.
 
-John’s face bobbed up and down eagerly.
+The scratching didn’t stop. Not for hours.
+Not until my dad and brother came home.
 
-“Say, John, have you been paying attention to your surroundings?”
+••
 
-His eyes widened in exaggerated panic, and he stumbled backward, shaking with sudden fear, glancing nervously side to side. The cheerful music stopped abruptly, replaced by the low hum of static from the TV and faint buzzing overhead lights.
+Then it was dinner time, and everything was normal again.
 
-“Clearly not. Luckily, none of them were nearby. Let’s teach John – and you – how to identify them and how to proceed.”
+I don’t know what to do.
 
-John turned toward the camera again, offering a thumbs-up and a disturbingly wide smile. The screen glitched again, warping and distorting briefly.
+She looks like my mum; she sounds like my mum.
+But I don’t think she is my mum.
 
-The scene transitioned to John cautiously walking at night through a darkened neighborhood, faint outlines of houses barely visible in the background. Passing beneath flickering streetlights, he appeared alert now, frequently glancing behind himself.
+And I think whatever she is… she’s getting tired of pretending.
 
-“Great job, John!” the woman praised. “You’re mastering the first step in becoming a watcher. You’re aware of your surroundings and actively noticing suspicious behavior. Always trust your instincts.”
-
-John smiled slightly before the screen glitched again, harsher this time. The streetlights became distorted; shadows lagged unsettlingly behind John’s movements.
-
-Suddenly excited, John dashed forward cartoonishly. The camera followed closely as he approached another cartoon figure standing oddly still, wearing a white shirt and blue jeans. John squeaked something unintelligible.
-
-The man in white turned slowly, deliberately, facing the camera directly. His animated face shifted subtly, becoming more realistic, pale, and corpse-like.
-
-“Whoa, John! Be careful!” the narrator warned urgently. “Does Mike look normal to you? Let’s look closely.”
-
-The camera zoomed in further.
-
-“First, examine the eyes. Do they blink one at a time or simultaneously?”
-
-Slowly, Mike’s left eye blinked first, followed by the right.
-
-“Next, look at his smile,” instructed the woman’s voice, still disturbingly calm. “Is it unnaturally wide for a human face?”
-
-Mike’s mouth stretched into an impossibly broad grin, corners reaching nearly to his ears.
-
-“Does he often repeat himself?”
-
-Mike’s lips parted stiffly, not matching the deep, distorted voice that issued forth.
-
-“Hi John. Hi John. Hi John.”
-
-My pulse quickened.
-
-“Uh-oh,” the narrator continued, almost cheerfully. “These signs suggest Mike is no longer Mike. Look closely at his limbs – are they longer than usual?”
-
-The camera slowly panned downward. Mike’s arms hung disturbingly low, twitching slightly as if resisting the urge to retract.
-
-“There’s a strong chance Mike has been replaced. John, leave immediately!”
-
-The camera zoomed out again. Mike stood motionless just beyond the glow of the streetlamp, his distorted silhouette barely illuminated. John’s face filled with cartoonish panic. Suddenly, he turned and ran, escalating classical music, amplifying the urgency.
-
-He sprinted until he reached another lamp post, collapsing against it and breathing heavily.
-
-“That was a close call, John,” the voice soothed. “Always be cautious approaching others, even friends. It can happen to anyone except a select few,  like you. Try to identify these signs from a distance. Remember, never confront them. Watch, wait, and remember.”
-
-John nodded vigorously.
-
-The scene faded out, replaced gently by the image of John lying comfortably in bed, eyes closing softly.
-
-“Excellent job today, John. Your instincts and observational skills have kept you safe. Remember, as long as you notice them first, you remain protected. Keep your distance, watch carefully, and always remember.”
-
-As John drifted to sleep, the screen glitched violently, flickering between the cartoon and disturbing real footage, a grainy, dark hallway with a silhouette in the distance, hands clutching its head, screaming. Ragged breathing echoed from the TV speakers. Then, abruptly, the screen went black. My own labored breath filled the silence for a brief moment.
-
-Suddenly, the television snapped back on, displaying the diagram of a human body, side-profile, outlined clearly against a faded yellow background, similar to medical charts I'd seen in doctors’ offices.
-
-“The substance enters through the mouth, eyes, ears, nose, or rectum,” began a clinical male voice, emotionless and precise. “Initially, the victim is unaware of its presence. Slowly, it consumes tissue, working methodically toward the victim’s brain. Upon reaching the brain, the substance devours it entirely, replicating movement patterns, reflexes, and fragments of memory.”
-
-On-screen, black sludge slithered along the diagram, mirroring each chilling step described.
-
-“Once established in the brain, the entity sheds portions of itself, systematically replacing bones and internal organs. The reasoning remains unclear; researchers suspect total bodily control is its objective. Following this replacement, detection through standard medical scans becomes nearly impossible. Moreover, replacing bones and organs may grant enhanced flexibility, allowing it to use the host body in ways previously unimaginable.”
-
-The black substance continued its relentless progression, consuming and replacing parts of the human outline.
-
-“This replication process requires time. During this period, limbs may appear elongated or move erratically. While copying the brain, behavior shifts become noticeable, think of these as adjustment periods for the new inhabitant.”
-
-The screen suddenly cut to real footage, a coyote standing in a sterile white room under harsh fluorescent lights, staring blankly at the camera. Its eyes blinked separately, unsettlingly out of sync.
-
-“This subject was successfully captured. Currently, it's our only live specimen.”
-
-The camera zoomed closer to the animal’s face. It appeared almost to grin, its mouth extending unnaturally wide. Again, the coyote blinked slowly, one eye, then the other.
-
-The scene abruptly cut, then returned to loud, frantic screaming that sent me stumbling backward in panic. My hands flew instinctively to my ears as I desperately searched for the TV’s power button. The screams pierced my ears, too loud to drown out. From the television, a man’s voice cried out in horror:
-
-“Jesus, its legs! ITS LEGS JUST EXTENDED–”
-
-“GET IT OFF HIM! SHOOT IT!”
-
-Abrupt silence followed, but panic still gripped me. Frantically, I searched for a way to stop the tape. No power button could be found on the TV. I traced the cord along the floor desperately, heart racing.
-
-Then the clinical voice resumed calmly:
-
-“We believe certain individuals are immune. Though the entity may attempt entry, something in their blood prevents full assimilation, forcing the entity to seek another host.”
-
-One final glitch filled the screen. White text flashed briefly against the dark background, a synthesized computer voice intoning clearly:
-
-“We will be in contact when the time arrives. Until then, observe. Watch. Do not interact. And above all, remember.”
-
-The screen faded slowly to black, and the television quietly shut off, plunging me into darkness and silence once again.
-
-I don't remember much after the video ended. Eventually, I was found by the nurse, crying alone in that darkened room. I was sent home immediately. Days passed before I spoke again. My parents demanded answers, deeply concerned by my withdrawn state, but I never told them anything. I should have.
-
-A part of me died that day, my innocence gutted, disposed of without care. As I grew older, the memory stayed carved into my mind, impossible to ignore or forget. Often, I convinced myself it must have been a prank, a twisted joke with too many unanswered questions. But deep down, I knew otherwise.
-
-One night, years later, while attempting to rationalize it all away, a shriek pierced the silence outside my window. Slowly, the blinds were parted, and the street below was carefully observed. Under the pale glow of a single streetlamp, a man writhed and screamed uncontrollably upon the pavement. Abruptly, he stopped, lying perfectly still for a brief moment. Then, slowly, he rose, arms hanging grotesquely low, dragging on the ground. His head lolled at an unnatural angle. My pulse quickened, the blinds were swiftly closed, and sleep eluded me entirely that night.
-
-As more years passed, my awareness sharpened. Everywhere I went, their presence was glaringly obvious, though unnoticed by those around me. Amid busy crowds, they stood rigid, staring blankly at nothing. Their eyes blinked individually, mouths agape with tongues hanging loosely, limbs stretching or retracting subtly as they shifted. Even animals, pets that belonged to unsuspecting owners, displayed these telltale signs.
-
-The urge to warn others nagged at me constantly, but fear and uncertainty always silenced my voice. My twenties were drowned in alcohol, consumed by a desperate attempt to forget that haunting video, to convince myself the world remained unchanged. But denial became impossible; I still see them clearly, everywhere.
-
-Eventually, attempts were made to find Jack and Lauren, though guilt lingered heavily; I should have reached out sooner. For years, I hadn't known how to approach them, what to even say. When the courage finally surfaced, both appeared impossible to find, even through social media searches. It felt as if they'd simply ceased to exist.
-
-And by the way, if it wasn't already obvious, I’m not O-positive. I’m A-negative.
-
-Two days ago, an unexpected package arrived. In a drunken haze, I initially dismissed it. Yet upon opening it, sobriety overtook me instantly, all traces of intoxication erased by the shock. Inside lay a single VHS tape labeled simply "#10."
-
-Now, uncertainty grips me. This organization, whatever its true intentions, robbed me of my youth, causing years of torment and paranoia. Yet curiosity is powerful, perhaps this tape holds answers long sought. Whatever lies ahead, the truth demands sharing first.
-
-So consider this a warning. The organization studying these things desperately wants this kept secret. If you notice someone behaving unusually, recalling false memories, repeating themselves incessantly, blinking eyes one at a time, or their limbs appearing subtly elongated, observe carefully.
-
-Watch. Wait. Do not interact and always remember.
-
+ 
