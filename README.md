@@ -1,204 +1,86 @@
-# I Work the Graveyard Shift at an Abandoned Mall: Night Four
-[**Night One**](https://www.reddit.com/r/nosleep/comments/1jqomjr/i_work_the_graveyard_shift_at_an_abandoned_mall/)
+# A few weeks ago, I went to the gym
+I used to have mixed feelings about going to the gym. Ever since I first started, I found it difficult to contain my unease around the mindless grunting, the sweat droplets smeared on each machine, weight, and cushion- the breathy smell of exasperation erratically thrown from the lungs of each and every participant in what felt like some kind of near-silent disjointed iron-paced chant. 
 
-[**Night Two**](https://www.reddit.com/r/nosleep/comments/1js202f/i_work_the_graveyard_shift_at_an_abandoned_mall/)
 
-[**Night Three**](https://www.reddit.com/r/nosleep/comments/1jttazr/i_work_the_graveyard_shift_at_an_abandoned_mall/)
 
-**July 4th: "The Last Night"**
+The heat of my campus’s closet-sized gym was especially notable, as each station was close enough to each other that, should someone be using one adjacent to you, it would be inevitable that you felt their body heat mixing with yours in the miasma of stale air. They used a large mirror in the back to both allow people to check their form, but also, I think, to give the illusion that the room was larger than it really was. I preferred to avert my eyes from it- seeing the whole mess of people in one glance always made me a bit nauseated. It amplified how overwhelming the place was, usually. 
 
-I wake up with a start. My hands are cold. My breath is shallow. My heart pounds against my ribs like I’ve just been running. I don’t remember falling asleep. I don’t remember coming here. But I’m already at the security desk. My uniform is on, neatly buttoned, like I’ve been on shift for hours. The monitors cast their familiar glow, flickering softly, showing the same empty corridors I’ve walked a hundred times before.
 
-Except…
 
-My security log is open in front of me, pages filled with my own handwriting. Entries I don’t remember writing. I flip through them, my fingers trembling. The dates stretch back farther than they should: weeks, months… maybe years. Then I see the last entry. The ink is fresh.
+It wasn’t like that, one Saturday evening. Trundling my way up the stairs, I was relieved to see the gym was rather vacant. Poking my head above the banister as I made my way to the top, I noticed that it was actually completely barren, save for a few abandoned towels hung over some machines. Not even a staff member was there, which they were obligated to be for safety reasons. Attempting, and subsequently failing to scan myself in, I assumed then that the student staff took the emptiness of the gym as permission to slack off somewhere. 
 
-"Night Four begins now."
 
-A shudder rolls through me. I push back from the desk, trying to stand, trying to shake off the fog in my head… and for a split second, I feel it. I’m in two places at once. I snap my head toward the monitors. One of the cameras shows the west hallway. I’m standing there. Patrolling. But I’m still here. Sitting at the desk. I blink, my breath catching in my throat.
 
-The \*figure on the monitor… me\* turns. Slowly, deliberately... and looks straight at the camera.
+That wasn’t my problem, of course. And so I began my warm-up. A simple 15 minute brisk walk on the treadmill. The sunset refracted noticeably in the thick edges of my high-prescription lenses and quickly withdrew as the sun descended below the trees. When I stepped off and began my bench presses, I saw the overhead fluorescent lights, one flickering, as if indecisive about whether it wanted to be alive or not. Relatable. It purred just softly enough to make the silence of the gym feel loud. 
 
-Straight at me.
 
-A burst of static explodes from the PA system. My own voice echoes through the speaker; flat, distant, like a recording played a thousand times over.
 
-"Night Four begins now."
+Over an hour later, the sky heralded the rising moon, and spiders on the other side of the windows set up their lively camps for the night watch. Still, no other humans had come to disturb us. As I pushed against gravity for my last tricep curl, I felt the muscles and sinew in my upper arms glide against each other, a soft pop brought fourth as an air bubble between bone and bone had found it’s escape route in the motion, and I realized how blissful it was to be able to hear something so minute. Solitude brings about the perfect conditions for a state of flow. 
 
-I grip the edge of the desk, my pulse hammering in my ears. This isn’t real. It can’t be real. Then the monitors flicker. A new camera feed. A hallway. Dimly lit. At the far end, someone stands just out of focus. They don’t move. They don’t breathe. But they’re watching. The screen glitches. The figure is closer.
 
-Another glitch… closer still.
 
-I swallow hard, my body frozen in place. Then, the screen goes black. The air shifts around me, thick and alive.
+But despite how much I savored it, it felt odd. Forbidden, is perhaps a better word. Ever since beginning college, being given some simple space away from others has seemed like an expensive luxury. Dorms that pack students together like sardines in a tin, cramped public transport, lectures occasionally disrupted by a bumped kneecap, even in the bathrooms there’s often an irritating bustle. 
 
-I’m not alone.
 
-\*\*\*\*
 
-I step out into the hallway, and I immediately know something is wrong. The mall is decaying. The storefronts are warped, their glass smeared with something greasy and opaque. The neon signs flicker; not just on and off, but between decades. One second, they’re brand new, glowing bright, advertising sales long since passed. The next, they’re shattered, rusted, dangling from wires like severed tendons.
+Don’t get me wrong. My irritation with others being everywhere I go isn’t personal, usually. And in fact, even when it is, I find myself prone towards a patience that obfuscates my frustration well enough. After all, I find that, when people truly do irritate me with their audacity, their judgmental thoughts, or their refusal to think of things with the appropriate scope of complexity, explaining my scruples and allowing my annoyance to show does nothing to absolve the lack of consideration they can muster. The lack of empathy. And then, hanging on that thought, my inner sense of camaraderie began to chatter and guide me. 
 
-Above me, something drips from the ceiling. A slow, steady patter against the tile. At first, I think it’s just water, just another leak from this dying building…
 
-But when I step closer, I see it.
 
-The liquid is thick.
+I wondered, with some amount of horror, if the gym truly had been vacated in haste. What if there was an accident? Rarely does the world echo it’s happenings in the absence of the voices of others. 
 
-Dark.
 
-It clings to the ceiling beams like oil, sluggish and alive.
 
-I choke down the urge to gag. The air is different too: heavier, thicker. The usual mall scent of stale popcorn and disinfectant is gone. In its place is something rotten, something that reminds me of old meat left out in the heat.
+Perhaps, shortly before my arrival, someone had decided to experiment with more weight than usual, biting off more than they could chew, and had masticated their bones in the jaws of one of the benches, and the student staff member had rushed onto an ambulance with them, neglecting to lock the door in the whirlwind of events, and this quiescence was therefore produced? Walking to each nook and cranny of the gym, I half expected, half earnestly hoped, that I would find a staff room with a dozed-off slacker inside. But I found no such thing. 
 
-Then… a flicker.
 
-The lights overhead buzz and shudder, and for a moment, I think they’re about to cut out completely. But no… They turn on.
 
-One by one, down the corridor. A path of light, stretching forward. Leading me deeper in. A cold sweat creeps down my back. The mall isn’t just falling apart. It’s changing. I round a corner, and I freeze. Ahead, near the far end of the hall, someone is there.
+Unable to assuage myself, my legs carried me to the leg press for my final exercise. I plucked the abandoned towel from the machine, observing nothing notable about it, and laid down my own, nestling into the seat. I heaved the seat backwards with my thigh muscles engaged as a cricket outside cheered me on, and I thought, still somewhat pleased, that whatever had happened, it would likely turn out alright, if anything had really happened at all. 
 
-A security guard.
 
-Relief surges in my chest, irrational and desperate. I almost call out, but something stops me. He’s standing too still. I take a step closer, my breath shallow.
 
-"Hey," I say. My voice is hoarse. "Hey, man, what’s…"
+When I had finished, I stuffed my towel into my bag and took a final gulp of water, throwing in the empty bottle too, and automatically raised my arms to release my hair from the over-sized hair forks which so loyally held my calf-length locks for me. It was then that I finally looked into the large mirror on the back wall.
 
-The figure moves. Not like a person. Not naturally. His limbs jerk, slightly out of sync, like a puppet on invisible strings. His head tilts… too sharply, like his neck is made of brittle plastic. But he doesn’t turn toward me.
 
-He just keeps walking.
 
-I take another step back, pulse hammering. My fingers tingle, cold and numb, like I’ve been outside in the dead of winter without gloves. I look down at my hands. And for the first time, I realize…
+Throughout the whole two hours that had passed, it seems that, out of habit, I had not once looked into the mirror. I counted 9 people in the gym then, not including the staff person who was sitting at the computer by the entrance, staring into his phone as he bit into a barely-ripe banana. I also didn’t include myself, because, well- I wasn’t there. My body didn’t show up in the mirror at all. I wondered if, perhaps, all this time, I’d been mistaken, that it was not a mirror, but a window, a window leading to some extra room of the gym I had overlooked just as easily but- but no. 
 
-They don’t feel like mine anymore.
 
-\*\*\*\*
 
-I don’t know how long I’ve been walking. The halls stretch on forever, shifting under my feet like a living thing. I turn left where I swear there should be a dead end. I step through a doorway and somehow end up deeper inside than before.
+The machines were the same as the room I stood in. The layout. Even the towels had been perfectly reflected with exception of the one I’d moved from my side, which still was draped over the leg press machine on one side of the mirror, yet lay crumpled on the overhead press directly to my right. 
 
-And the mall is watching.
 
-The PA system crackles overhead, the speakers distorted with static and something else: voices. They come in faint at first, like old radio transmissions struggling to break through the interference. But then… I recognize them.
 
-Security guards. Past workers, leaving messages for each other.
+I stood for more than a few minutes that night, staring at the whole oddity, trying to discern how the apparent prank was constructed. Of course, I realized already that it was no prank. Nobody did ever show up in the version of the gym I was standing in. I figured, perhaps, I would ask my doctor to check if I had wound up inheriting my father’s schizo-affective disorder at a statistically unusual stage of development. My knees buckling between exertion and anxiety, I stumbled down the staircase and began my route home with my heart thrumming to the tune of a stifled panic. 
 
-"... back entrance doors still jammed, I’ll take a look tomorrow..."
 
-"... lost another delivery guy. Nobody saw him leave..."
 
-Then, beneath it all, a whisper. Soft. Urgent.
+In this state, altered by fear, I found myself having made a wrong turn, and decided to consult Google maps fairly shortly into the journey to my dorm. As I opened my phone to the home screen, between one step and the next, the clock display suddenly jumped backwards from 9:43pm to 7:21pm right in front of my eyes, which noticed a sudden light on my peripheries. 
 
-“If you’re hearing this, you’ve been here too long.”
 
-I stop breathing. My skin crawls. Ahead, mannequins stand in storefront windows. I keep my eyes forward, telling myself they’re just plastic, just lifeless props for a store that doesn’t even exist anymore. But as I pass…
 
-They breathe.
+The sun was again in the sky, soon to set, but my muscles still surely remembered the past two hours of work they had done. 
 
-I hear the soft inhale, the almost imperceptible sigh of lungs expanding and contracting. I see the slow flutter of eyelids, the shift of shoulders, the minute twitch of fingers. I tell myself to keep moving. Keep walking. But then…
 
-I see a face.
 
-One of the mannequins, standing among the rest, has my face. I stumble back, heart slamming against my ribs. It doesn’t move, but I know it’s alive. I rush past, refusing to look again. At the next corridor, a bulletin board is mounted to the wall. The papers are yellowed, curling at the edges. A photo is pinned in the center.
+It’s been over a month since that night. I figured out that, no matter when I go, once I make it exactly 0.37km away from any of the gyms exits, time goes back to whatever time it was when I entered that same radius from whichever entrance I choose. I’ve learned to ignore the people who give me odd looks when I bring my tape measure. 
 
-It’s an old group picture: mall employees, standing in front of the fountain. The grand opening, 1982. I scan the faces, half-expecting to see someone I recognize, some proof that all of this isn’t real. And then…
 
-I see him.
 
-A man in the back row. Same eyes. Same jawline. Same slouched posture. He looks exactly like me. I feel sick. I turn away, and for a second, I catch my reflection in the glass of an old vending machine. My stomach knots.
+I thought, at first, I should maybe run screaming to anyone who might listen that I’ve found some kind of spacial-temporal tear somehow centered around my local campus gym. That I should write about each experiment I’ve done to determine the effects it produces, collect video evidence, try to bring someone along with me, point out  how, based on all my observations, people on the street who enter this 1/e +/- 0.08km  (depending on entrance/exit chosen as origin) radius about the gymnasium who don’t intend to enter the building disappear at that radius for just 1 frame in the professional high-speed camera I bought, immediately reappearing and continuing onwards and yet, those who apparently intend to go inside disappear, and then, a few minutes later, nonetheless appear inside and start working out only on the other side of the mirror, and so on. 
 
-It’s smiling.
 
-I’m not. But it is.
 
-I take a step closer, but my reflection stays put, its grin widening, teeth gleaming too sharp in the dim light. I spin around, checking the other windows. In one, my reflection watches me, face blank, eyes hollow. In another, it mouths something. I can’t hear it. But I know it’s speaking. And it looks like a warning. Then…
+But, then, I realized that even if I did, I know how people would react. I know how they are. I know that they can’t see it, this thing that makes no sense, this rift, just like they miss so many other little things. 
 
-A flicker.
 
-The mall directory screen beside me changes. The old, half-burned map vanishes, replaced by a single message:
 
-“Food Court - Below.”
+So I’ve accepted it as a gift. A gift from the universe, for me and the nearby creatures who seem to accept it as simply as I do now. It’s my refuge away from the nonsense and noise that everyone else produces. I go to the gym almost every night now- sometimes I even sleep there. I even have a pet cat living there now, a fluffy gray tomcat I’ve named Sir Waffleton who I always tell to stand back when I do squats with the barbell, lest he become Sir Pancake. 
 
-I don’t know why, but my gut twists. There is no “below.” There was never a lower level. But ahead, where there was only wall before: A new pathway has appeared. Leading downward. I don’t want to go, but my legs start moving anyway.
 
-\*\*\*\*
 
-The air is thick, humid. Each step down the hidden staircase feels heavier, the dim yellow lights above me flickering like dying embers. The food court shouldn’t be here.
+Honestly, it’s been years since I felt so much peace and fulfillment. But today, something has happened that made me again feel a bit guilty for having this space. 
 
-It wasn’t here.
 
-But as I reach the bottom, I see rows of tables. The glow of neon signs. The low, distorted hum of voices, chewing, slurping, swallowing. Every table is occupied. And every single person eating…
 
-Is me.
-
-Some are younger, barely past their teenage years, nervously hunched over plastic trays. Others are older, their faces lined with exhaustion, blank stares locked onto half-eaten meals. And some…
-
-Some shouldn’t be alive.
-
-Their skin is rotting. Gray, sagging flesh hangs loosely from their bones. Teeth chatter as they chew, but they never swallow. Some don’t even have lips anymore, just blackened gums and empty eyes. I stagger back. The stench of stale food and decay hits me like a wall. The chewing stops. They all look up. My stomach twists. A voice slithers through the air, low and wet, as if whispered through water.
-
-“Join us.”
-
-My breath hitches. My limbs feel heavy. I glance at their trays. The food is moving.
-
-The burgers pulse, their surfaces breathing. The noodles writhe like worms. The meat glistens too red, too raw, too alive. And then…
-
-My stomach growls.
-
-I grip the edge of a table, my vision swimming. When was the last time I ate? My hands tremble. How long have I been here? Then…
-
-A tray slides across the table in front of me. It’s mine. Half-eaten. The food is still warm. Next to the tray sits a plastic name tag.
-
-My name.
-
-I’ve been here before.
-
-\*\*\*\*
-
-I run. I don’t know where I’m going. It doesn’t matter. My footsteps hammer against the tile, echoing too loud in the cavernous space. My breath comes in ragged gasps. The mall twists around me, corridors bending, stretching. The storefronts glitch between decades: 1982, 1996, 2008, now. I pass a toy store where shelves overflow with boxed action figures, ones I had as a kid, still sealed, pristine. I pass a record shop where a clerk in bell-bottoms hums along to a song I don’t recognize. I pass a jewelry store where mannequins wear engagement rings that were never bought, but one of them matches the one I almost gave her.
-
-No. No, no, no.
-
-I force myself forward, turning down another hall… I’m back at the food court.
-
-No.
-
-The PA system hisses to life. My voice, my own voice. whispers through the speakers.
-
-"You can’t leave. You never left."
-
-I grip my head, shaking. This isn’t real. It can’t be. My security log. I fumble it open, pages crinkling beneath my trembling fingers. The entries… there are too many. Decades of them. The ink fades and changes, shifting from modern ballpoint to the scratchy drag of fountain pens. The oldest pages are yellowed, the dates barely legible. But the handwriting…
-
-It’s mine.
-
-Over and over.
-
-Over years.
-
-Over lifetimes.
-
-I look up. There’s a mirror ahead. A dusty, smudged department store mirror. I don’t want to see it, but I step forward anyway. I look. And the face staring back… It’s not me. Not the way I remember. My hair is thinner. My eyes are dull, sunken. Tired. The lines on my face are deep, too deep. I lift a shaking hand to my cheek… and the reflection doesn’t follow. It just stands there. Waiting. Then…
-
-A shadow rises behind me. Tall. Familiar. I see it in the glass, looming over my shoulder.
-
-My reflection.
-
-It steps forward. Slowly. Deliberately. And then…
-
-It places a cold, steady hand on my shoulder.
-
-\*\*\*\*
-
-I collapse. My legs give out beneath me, and I sink to the floor. The air is thick, suffocating, pressing in like a weighted blanket. The voices soften, losing their malice. They coo. They soothe.
-
-*"You belong here."*
-
-*"It’s easier this way."*
-
-My breath slows. The fear is slipping away. Or maybe I am. My other self kneels beside me. It doesn’t speak. It just smiles: a knowing, patient smile, like it’s been waiting for me to understand.
-
-Something in my chest loosens. My mind fogs, thoughts unraveling like frayed thread. What was I afraid of again? This is what happens. This is how it always ends. I feel it, like a fracture in my being. I am splitting. No… multiplying. Something steps forward from the shadows.
-
-Then another.
-
-And another.
-
-I look up. The mannequins are closer now. Their blank faces aren’t blank anymore. They are me.
-
-They always were.
+You see, about an hour ago now, I watched an older man in the mirror have a heart attack on the stationary bike. He fell off, smacking his head hard into the corner of the nearby treadmill, a pool of blood quickly forming around the undeniable crack in his skull as other gym-goers around him began to panic. He entered a little under an hour than I did, and maybe I could have prevented this, but I figured there was no way to do it and actually be listened to. I mulled over it for the whole day before I left. I heard the sirens pass by as I wrote this, and, while I can’t say it to anyone else, I really am sorry.
