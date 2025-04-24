@@ -1,86 +1,140 @@
-# A few weeks ago, I went to the gym
-I used to have mixed feelings about going to the gym. Ever since I first started, I found it difficult to contain my unease around the mindless grunting, the sweat droplets smeared on each machine, weight, and cushion- the breathy smell of exasperation erratically thrown from the lungs of each and every participant in what felt like some kind of near-silent disjointed iron-paced chant. 
+# My Land is Cursed Part 1: Something Watches Me Sleep Every Night and Is Getting Closer
+I don't scare easy. I’ve seen more horrors than any mythos’ demons could conjure up, man is always worse than devils, but I’m also not a liar. So I won’t sit here and tell you that: The eyes that peek over the foot of my bed every night don’t rattle me. Well, currently it’s eyes, three nights ago it was the top of a swollen bald head, and 2 weeks ago it was just fingers.
 
 
 
-The heat of my campus’s closet-sized gym was especially notable, as each station was close enough to each other that, should someone be using one adjacent to you, it would be inevitable that you felt their body heat mixing with yours in the miasma of stale air. They used a large mirror in the back to both allow people to check their form, but also, I think, to give the illusion that the room was larger than it really was. I preferred to avert my eyes from it- seeing the whole mess of people in one glance always made me a bit nauseated. It amplified how overwhelming the place was, usually. 
+I suppose the best place to start is about 2 month ago. 
 
 
 
-It wasn’t like that, one Saturday evening. Trundling my way up the stairs, I was relieved to see the gym was rather vacant. Poking my head above the banister as I made my way to the top, I noticed that it was actually completely barren, save for a few abandoned towels hung over some machines. Not even a staff member was there, which they were obligated to be for safety reasons. Attempting, and subsequently failing to scan myself in, I assumed then that the student staff took the emptiness of the gym as permission to slack off somewhere. 
+I had finally finished moving into my new place, it was small but it was better than rotting barracks surrounded by 18 other delta force meatheads. I was alone in that crowd, a former French Foreign Legion “tourist.” of the 3rd infantry regiment, and was the only one who maintained some semblance of a sense of humor. I’m on a tangent, apologies. Vermont wasn’t my first pick, I’d much rather be sipping my brandy on the balcony of a cabin in Alaska, even if the visitor at the foot of my bed nightly was still included. But, it was close to family. And, then again at least is not some where completely without hunting opportunities like fucking California.  
 
 
 
-That wasn’t my problem, of course. And so I began my warm-up. A simple 15 minute brisk walk on the treadmill. The sunset refracted noticeably in the thick edges of my high-prescription lenses and quickly withdrew as the sun descended below the trees. When I stepped off and began my bench presses, I saw the overhead fluorescent lights, one flickering, as if indecisive about whether it wanted to be alive or not. Relatable. It purred just softly enough to make the silence of the gym feel loud. 
+I digress. My brother, bless his heart, tried helping me get the moving process hurried along but he ain’t used to the prosthetic yet and so I had to take it on alone. I guess the creature had some manner of patience because only after all my shit was comfortably moved in did he make his presence known. In high sight, the knocks coming from the closet were likely the entity’s doing and those began a month before the fingers first showed up. 
 
 
 
-Over an hour later, the sky heralded the rising moon, and spiders on the other side of the windows set up their lively camps for the night watch. Still, no other humans had come to disturb us. As I pushed against gravity for my last tricep curl, I felt the muscles and sinew in my upper arms glide against each other, a soft pop brought fourth as an air bubble between bone and bone had found it’s escape route in the motion, and I realized how blissful it was to be able to hear something so minute. Solitude brings about the perfect conditions for a state of flow. 
+Each night, while the moon laid still, the lunar monolith reflecting solar rays to drip feed light into my room, the tapping would start. *Tap tap tap.* Three rhythmic taps muffed by the sliding oak closet door and that was all. Three and done. Like someone knocking, waiting for the door to be opened and invited in, but giving up quickly. A week later the knock now came in a pair: *tap tap tap… tap tap tap.* This is where I started to get tickled by a bit of concern. Three taps at the same time of night, everynight wasn’t of worry, I thought it was the water heater or another piece of cheaply constructed equipment actuating in some way. But these taps were more deliberate, desperate. Pining to enter. 
 
 
 
-But despite how much I savored it, it felt odd. Forbidden, is perhaps a better word. Ever since beginning college, being given some simple space away from others has seemed like an expensive luxury. Dorms that pack students together like sardines in a tin, cramped public transport, lectures occasionally disrupted by a bumped kneecap, even in the bathrooms there’s often an irritating bustle. 
+I sat up, unable to sleep. Another week passed and skipping straight passed three sets of tap, the tapping was now constant, every three seconds: *tap… tap… tap.*
 
 
 
-Don’t get me wrong. My irritation with others being everywhere I go isn’t personal, usually. And in fact, even when it is, I find myself prone towards a patience that obfuscates my frustration well enough. After all, I find that, when people truly do irritate me with their audacity, their judgmental thoughts, or their refusal to think of things with the appropriate scope of complexity, explaining my scruples and allowing my annoyance to show does nothing to absolve the lack of consideration they can muster. The lack of empathy. And then, hanging on that thought, my inner sense of camaraderie began to chatter and guide me. 
+“Hey! Someone there?” *Tap… Tap… Tap.* “Ay! Who the fuck is there?” I shouted. It took me a moment to realize my hand had instinctively opened my nightstand drawer and gripped the Sig Sauer 1911. I slid out of bed silently and stepped patiently across the specific floor boards that I had nailed down to make sure they wouldn’t creak. *Tap.* I threw the door open. 
 
 
 
-I wondered, with some amount of horror, if the gym truly had been vacated in haste. What if there was an accident? Rarely does the world echo it’s happenings in the absence of the voices of others. 
+Hollow darkness hung calmly. I flicked the light switch and cleared the closet swiftly. I sighed in confusion. I had no mental ailments, every airhead they had said so, but still, it was hard to not question my own sanity. As I turned off the light I jumped, something brushed past my feet. The feeling was like standing in a flow of snakes in January. Something frigid and slithering. It flowed over my feet and underneath my bed. I clicked on the flashlight mounted on the bottom of the Sig and searched the ground. Nothing. 
 
 
 
-Perhaps, shortly before my arrival, someone had decided to experiment with more weight than usual, biting off more than they could chew, and had masticated their bones in the jaws of one of the benches, and the student staff member had rushed onto an ambulance with them, neglecting to lock the door in the whirlwind of events, and this quiescence was therefore produced? Walking to each nook and cranny of the gym, I half expected, half earnestly hoped, that I would find a staff room with a dozed-off slacker inside. But I found no such thing. 
+Delusions aren’t foreign to me. The tides of combat kept my brain awake for 82 hours once and the auditory, visual, and kinetic hallucinations I experienced were far worse than this, but… the difference there is I knew that they were false. This felt so real, and I had no reason to attribute this experience to a bout of disillusionment. My breath remained steady as I toiled in thought. 
 
 
 
-Unable to assuage myself, my legs carried me to the leg press for my final exercise. I plucked the abandoned towel from the machine, observing nothing notable about it, and laid down my own, nestling into the seat. I heaved the seat backwards with my thigh muscles engaged as a cricket outside cheered me on, and I thought, still somewhat pleased, that whatever had happened, it would likely turn out alright, if anything had really happened at all. 
+“Must be a dream.” I said to myself softly. “Yeah fucking right.” I opened my gun safe and moved a small portion of my arsenal around my bed. Paranoia has saved my life a thousand and one times, why fix what ain’t broke. The morning after spending all night keeping my finger steady on the trigger of the Mossberg 500 packed full with 10 gauge slugs, was my first hunting trip in Vermont since I was 12. My Father, Brother and I were heading out to some private land to get at least a buck each. I packed my Smith & Wesson model 1854 and the warmest clothes and set out.
 
 
 
-When I had finished, I stuffed my towel into my bag and took a final gulp of water, throwing in the empty bottle too, and automatically raised my arms to release my hair from the over-sized hair forks which so loyally held my calf-length locks for me. It was then that I finally looked into the large mirror on the back wall.
+The road was lined by centurion trees that stood guard the entire trip. Yellow strikes of paints guided the lanes but eventually faded away as the road descended further into the belly of the forest. A small red, crumbled splotch of rotting viscera wriggled on the side of the road. A small raccoon, its guts splattered and feasted on, its stomach popped open like a gory balloon. A colony of maggots had carved a freeway road to hasten the meal throughout the poor thing. It’s eye twitched, flicking to meet mine as I drove. 
 
 
 
-Throughout the whole two hours that had passed, it seems that, out of habit, I had not once looked into the mirror. I counted 9 people in the gym then, not including the staff person who was sitting at the computer by the entrance, staring into his phone as he bit into a barely-ripe banana. I also didn’t include myself, because, well- I wasn’t there. My body didn’t show up in the mirror at all. I wondered if, perhaps, all this time, I’d been mistaken, that it was not a mirror, but a window, a window leading to some extra room of the gym I had overlooked just as easily but- but no. 
+My tire misted the rodent as I sped up and adjusted my car to paste it. The rest of the trip was uneventful.
 
 
 
-The machines were the same as the room I stood in. The layout. Even the towels had been perfectly reflected with exception of the one I’d moved from my side, which still was draped over the leg press machine on one side of the mirror, yet lay crumpled on the overhead press directly to my right. 
+“Hey pops.”
 
 
 
-I stood for more than a few minutes that night, staring at the whole oddity, trying to discern how the apparent prank was constructed. Of course, I realized already that it was no prank. Nobody did ever show up in the version of the gym I was standing in. I figured, perhaps, I would ask my doctor to check if I had wound up inheriting my father’s schizo-affective disorder at a statistically unusual stage of development. My knees buckling between exertion and anxiety, I stumbled down the staircase and began my route home with my heart thrumming to the tune of a stifled panic. 
+“Ay, Melonhead! How you been kiddo?” My father snatched me up into a bear hug and squeezed as much air out of me as he could. My brother arrived about 15 minutes late but he had jerky so he was spared. 
 
 
 
-In this state, altered by fear, I found myself having made a wrong turn, and decided to consult Google maps fairly shortly into the journey to my dorm. As I opened my phone to the home screen, between one step and the next, the clock display suddenly jumped backwards from 9:43pm to 7:21pm right in front of my eyes, which noticed a sudden light on my peripheries. 
+“Gimpy, grab up the stool, nook is about a quarter mile deep.” My father ordered my brother like he had all throughout our childhoods. The spot was nice, not massive, but a rich bit of land for sure. 
 
 
 
-The sun was again in the sky, soon to set, but my muscles still surely remembered the past two hours of work they had done. 
+We hauled out shit through the woods and made it up into the nook with little more than a twig snap. Pops dropped a 6 pointer and Gimpy, my brother's nickname for this story, popped a 4 pointer. They headed down to get their bucks as I scanned the land with my binoculars.
 
 
 
-It’s been over a month since that night. I figured out that, no matter when I go, once I make it exactly 0.37km away from any of the gyms exits, time goes back to whatever time it was when I entered that same radius from whichever entrance I choose. I’ve learned to ignore the people who give me odd looks when I bring my tape measure. 
+“Bingo.” I whispered, as I spotted an 8 point buck 130 yards out. He was broadside and still, almost begging me to drop him with a clean shot. *Tap… Tap… Tap.* The rattle of a loose pin smacking the steel frame of the nook beat in the same rhythm as the taps from the closet. I bit down on my gums. My finger hovered over the trigger as the tapping continued. What a perfect shot on a perfect buck. A shot I knew I shouldn’t take, so I didn’t. That made it angry. 
 
 
 
-I thought, at first, I should maybe run screaming to anyone who might listen that I’ve found some kind of spacial-temporal tear somehow centered around my local campus gym. That I should write about each experiment I’ve done to determine the effects it produces, collect video evidence, try to bring someone along with me, point out  how, based on all my observations, people on the street who enter this 1/e +/- 0.08km  (depending on entrance/exit chosen as origin) radius about the gymnasium who don’t intend to enter the building disappear at that radius for just 1 frame in the professional high-speed camera I bought, immediately reappearing and continuing onwards and yet, those who apparently intend to go inside disappear, and then, a few minutes later, nonetheless appear inside and start working out only on the other side of the mirror, and so on. 
+I switched on the safety and stewed in the silence of the nook, watching that buck through my binoculars. Still as a fucking statue.
 
 
 
-But, then, I realized that even if I did, I know how people would react. I know how they are. I know that they can’t see it, this thing that makes no sense, this rift, just like they miss so many other little things. 
+That was the same night the fingers first appeared. I was writing in my journal, taking an intimate detail of that statuesque deer and every second before and after I spotted it. A captain’s log parse. *Tap.*
 
 
 
-So I’ve accepted it as a gift. A gift from the universe, for me and the nearby creatures who seem to accept it as simply as I do now. It’s my refuge away from the nonsense and noise that everyone else produces. I go to the gym almost every night now- sometimes I even sleep there. I even have a pet cat living there now, a fluffy gray tomcat I’ve named Sir Waffleton who I always tell to stand back when I do squats with the barbell, lest he become Sir Pancake. 
+The sullen thud of the bony finger closing their grip around the edge of my bed frame. My pen froze instantly as my eye flew from the paper to the baseboard. Slender, skin and bone dark blue fingers clutched the foot of my bed with a death grip. I cocked the hammer of the revolver I had tucked into my pillow case and leveled it on the place I gauged the head was at. “Wanna say hi?” I asked and was answered with silence. I eased myself out of bed and held my aim steady as I crept closer. I took a large step, rounding the corner of my bed frame. Rail thin arms stretched all the way into the pitch black under my bed, the skin clung to the bones. I chewed on my cheek, thinking of what to do next.
 
 
 
-Honestly, it’s been years since I felt so much peace and fulfillment. But today, something has happened that made me again feel a bit guilty for having this space. 
+Whether my next course of action was stupid or not, I knew it likely wouldn’t go well. I kicked the arms, hard. The long noodle-like bone snapped and something screamed like a cat being skinned. The wailing shook my house to its foundation. “Shut up!” The house steadied to silence. “Can the bitching and moaning! If you're gonna be in my house, you’re gonna stop this creepy shit. I don’t know what you are and I don’t care very much, but as long as you are under there, you're gonna be quiet. Got it?”
 
 
 
-You see, about an hour ago now, I watched an older man in the mirror have a heart attack on the stationary bike. He fell off, smacking his head hard into the corner of the nearby treadmill, a pool of blood quickly forming around the undeniable crack in his skull as other gym-goers around him began to panic. He entered a little under an hour than I did, and maybe I could have prevented this, but I figured there was no way to do it and actually be listened to. I mulled over it for the whole day before I left. I heard the sirens pass by as I wrote this, and, while I can’t say it to anyone else, I really am sorry.
+Once more, I was answered with silence. 
+
+
+
+The week passed without incident. Each night I would hear the tap and sure enough the fingers would be gripping my bed frame, but it never escalated beyond that. Until that week passed. I wrote peacefully in my journal, the fingers had already appeared and I was fixing to get ready for bed soon when the boards creaked. I hurriedly grabbed the Sig under my pillow, I put the revolver in the nightstand, and clicked on the flashlight. Peaking just a few inches over top the edge of the baseboard was the bald blue head of whatever this thing was. I launched out of bed and rushed to the foot of my bed. Joining its grotesquely stretched arms was now its forehead, equally stretched to impossible proportions. I gently pressed the barrel of my pistol against it. “Don’t be stupid now.” 
+
+
+
+Currently I’m in the process of resetting my sleep schedule, sleeping in the day and staying awake all night to watch. The eyes crested over the edge a little less than three nights later. They, much like the arms and head, were stretched far under bed. The room smells like sulfur now. It’s repugnant and impossible to escape.
+
+
+
+Update: It’s been a few days and quite a bit has happened.
+
+
+
+Last night, as I sipped a boiling hot cup of coffee, my eyes shifted over to the window. I stared through the glass and caught the sight of something illuminated by the moonlight. A deer. No cross reference with my journal was needed, it was the same deer as the one from the woods 50 some miles away. It was just as still. Frozen in place as if time had paused. My eyes only broke away from it as I heard the floorboards shift. 
+
+
+
+It’s mouth was now visible, distended and drooling, it’s chin rested near my feet and its cheeks were pulled back to masquerade as a smile. Met with this terror I did the only reasonable thing. I shot it.
+
+
+
+It’s left eye exploded in white fluid and strands of red threads flew into the air. Its eye twitched and so I dumped three more rounds into its face, leaping from my bed to follow its falling body. Little pisses of blood spurt out from the holes in its face. I dove forward, digging my hawk-bill knife into its eye socket and dragging it out from under my bed. Its torso was full out from under the bed and I could see its legs stretching into the inky darkness. It was fighting, the legs though scrawny fought hard to pull itself back under. I emptied my clip into its skull and chest then ditched the gun to bury my hand into its other eye socket for better grip. 
+
+
+
+“Nope, you wanted fuck about, come on out!” I heard the bones of its legs crack as I slowly won the tug of war. The bones gave way and I dragged out the creature in one final painful tug. “Prick!” I grunted as I rammed my knife into its throat. Cutting through the bone and skin until its head rolled off its shoulders. 
+
+
+
+I flopped to my butt as my heart slammed. I hopped to my feet, grabbed my gun, and reloaded it. I emptied that mag into the head as well and finally took a moment to calm down. I was soaked head to toe in red gore and blood from the butchering of the creature and as cold air from the AC rolled over me I shivered. 
+
+
+
+Cleaning up the body took longer than actually killing it. Nests of webs were formed under my bed like it had made its home there. Nothing a shop-vac can’t fix. Bleach and Lysol were the key players. Lots of bleach and hours of scrubbing. Though, having time to catch up on Creep Cast was a nice bonus. I hauled the beast out to the incinerator and tossed in manageable chunks of the nearly half ton monstrosity. 
+
+
+
+As it stands now, the thing is gone, quite literally dust in the wind, less literally water under the bridge. I’m fixing my sleep schedule, have made the crushing financial decision of buying two fresh boxes of .45 ACP, and I am still seeing that deer.
+
+
+
+I don't know what it is, but if it’s anything like whatever was under my bed, I can handle it. 
+
+
+
+That’s all for now. I don’t know if I’ll have a need to post here again, only made this in case I got killed by the bed troll or whatever. But, If I do, I'll be sure to post about it. 
+
+
+
+Who knows, maybe my land is cursed. It’d sure be good for stories.
+
+Link to part 2: https://www.reddit.com/r/nosleep/comments/1jo7gf7/my_land_is_cursed_part_2_trees_on_my_land_move/
