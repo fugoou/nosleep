@@ -1,40 +1,75 @@
-# I became popular and forgot about my friend. Now my fate is sealed.
-Being popular in college was something I loved. To be honest, I didn’t really do much to be popular. It just came to me. I had a pretty face, and I was a born extrovert. I was going to parties almost every week, going on dates, hanging out with my friends, just the normal popular stuff. Now the thing is, my friend Jocelyn was the complete opposite. An introvert who just happened to be my friend. Everyone just knew her as “my friend.” She would always be the one walking behind my friend group, trying her best to fit in and be like me. Don’t get me wrong, me and her had been pretty close, we were friends since the beginning of high school. We used to be the best of friends, but my popular status in college definitely got the best of me. I began to talk to her less, and her presence was starting to annoy me. I had always thought Jocelyn was quite pretty, but people always made fun of her looks every chance they’d get. My friends hated her and wanted her to stop following us around, but as much as I was beginning to not like her I always told them to leave her be. 
+# Assisted suicide didn’t work, and now i’m left with more questions than answers
+I was tired. Of everything. Of my minimum wage job that paid for absolutely nothing, of the constant bills that added up, of seeing my friends do better than me, of the constant unhappiness consuming me. I wanted a way out, of course. I thought of maybe leaving the country and starting a new life. But I was way too poor for that. Maybe trying to find a girlfriend? That didn’t work. Maybe going to the gym to distract myself? That didn’t work either. So I thought the best option out, was suicide. I tried to overdose but clearly, I didn’t take enough pills because I woke up the next day delirious and feeling like shit. I was too scared to try the other methods, because I’m a wuss, so I gave up on that. 
 
-A few months ago Jocelyn had started to distance herself from us. At the time me and my friends were happy she was gone, and people would ask us “Where did your little follower go?” Me, being the horrible person I was would laugh along with my friends. Not once did I even think to myself whether she was okay or not. I just continued partying and living my life without the person who had supported me throughout high school. Jocelyn began to get bullied more and more to the point where she started to not come to school at all. I didn’t even notice until teachers started asking me where she was since she was my friend. I just shrugged and went about my day. 
+The only thing in my life that gave me happiness was alcohol, and I was beginning to spend the little money I had on it. 
 
-She didn’t come to school for a month then came back. Something was different about her, something that actually made me notice her for once. She had lost a significant amount of weight, her eyes were hollow, and red as if she had been crying, and she wore an oversized hoodie, with sleeves so long they almost covered her hands. You’d think I’d come up to her and ask if she was okay, right? I didn’t. I once again, went about my day and ignored the fact that she was clearly struggling. People started making more fun of her, calling her “bony bitch,” laughing right in her face, my friends made fun of her every day and I just laughed along with them. Each time. I didn’t even fucking think for once, “How is she dealing with all of this?” I just laughed. Laughed at her existence. Laughed at every single demeaning joke my friends made. And she got worse. And worse. She got skinnier. And skinnier. And as she walked the hallways she looked deprived of life, of happiness. Of energy. Then once again, she stopped coming to school. 
+Last week, as I was bored out of my mind, a text message popped up on my phone. 
 
-We all didn’t care. We thought she was just attention seeking so someone would actually care about her. Until last month. There were news reports of Jocelyn going missing. All of a sudden we were worried as if we had cared about her in the first place. My friends, who hated her guts said they missed her, people were putting her missing posters around the school, and even I volunteered and helped them put those posters around the school. Her case was pretty popular around our small town, and every day after school I’d watch each and every news update, praying for her to come back. 
+“You’ve been selected for an Assisted suicide free of charge! Come to this address: ___ _____ !”
 
-Then she started coming to me in my dreams.  Each day I’d go to sleep, I’d have a dream where I would go to the beach by myself, and find her body washed up along the shore, and her eyes, devoid of life would look straight into mine. It was almost like her eyes were staring straight into my soul. The oversized hoodie she wore had the words “I miss you.” on it. Every time I woke up from that dream Id sob. And I’d regret every single thing I had done to her. The dream was tormenting me and I knew I deserved it. Even if I had a nap I’d dream of the same thing. I couldn’t escape it. It was the consequences of my actions. 
+Me, being a dumbass decided to go to the address. I searched for the address on Google Maps. A photo of a clinic named “Smile!”  Popped up. It didn’t have any reviews, and it was only a 10-minute walk. Seems legit. So I got up from my bed, left my house, and strolled through the streets, smiling to myself. I could finally, get a way out. I got a few weird stares.  I happily followed the directions, practically skipping each path Google Maps took me. Until I found myself standing in front of the clinic that looked exactly like the photo. I walked inside, and a guy with long curly hair wearing a suit was sitting at a desk. He smiled at me and I showed him the text I had got. 
 
-My friends started to get worried about me because I started to become more paranoid. I told them about the dreams, of course, and they said it was probably because I was thinking about her too much. Sometimes I swear I could hear her voice, whispering something unintelligible in my ear. Some of my friends started to hang out with my friend group less, for reasons unknown. My friend group was practically falling apart because deep down we all knew we did something wrong. 
+“Oh, you’re Dave? Follow me!” He said cheerfully. 
 
-Yesterday night, I was home alone, drawing to distract myself from everything going on. And all of a sudden, I heard a knock at the door. “Who is it?” I shouted as I went down the stairs. 
+I was confused. “How do you know my name?” I asked. 
 
-“Amber, it’s Jocelyn, your bestieeeee…” Her voice sounded distorted. 
+“Don’t worry! It doesn’t matter. Nothing matters.” 
 
-“Jocelyn..? Are you okay? Oh my God!”
+I decided not to question him further and followed him. The clinic was pretty clean and the smell of medicine filled my nose. I liked that smell. He led me into a room with a singular chair and a cupboard full of syringes. 
 
-“Let meeee innnnnnn…I miss you….”
+“Sit down,” he said. 
 
-Since I was so worried about her, without hesitation I opened the door. And what I saw made my heart drop. And made my stomach churn. Jocelyn was standing there with a smile, with a rusty knife stuck in her neck, and her neck had dried blood all over it. She was wearing the same hoodie I saw in my dreams, which once again, had the words “I miss you” on it. From looking at her neck and face, she was decomposing. Sand covered her long, black hair.  Her neck had bugs feeding on her discoloured flesh, and she smelt like death. Literal death. Her usual vibrant blue eyes were a colourless grey, and I could tell her eyes were starting to seal completely shut. 
+I sat down. The chair was pretty uncomfortable but I tried to not think much of it. 
 
-“What the fuck— JOCELYN??” I screamed. 
+“Now before I do this, are you sure you want to go through with this? There’s no going back, remember.” 
 
-“You know, Amber, soon you’ll be just like me. We both have the same fate. You may be popular now, but it’ll all end the same. Soon, No one will  care about your existence, until you end up like this.” She pointed at herself. “I’m just a different version of you. The neglected version. But it all ends the same.” She stepped closer to me and the putrid smell of death filled my nostrils. “You don’t know it yet, Amber. You’ll never know. Until it’s you next. And you will be next. Maybe if you actually treated me like a person worthy of life, our fates would be different.” 
+“I’m more ready than ever.”
 
-I start backing up, almost tripping on the living room table. “W-What the FUCK ARE YOU? GET AWAY FROM ME!! YOU’RE NOT JOCELYN!” I start to hyperventilate. “THIS IS ALL A DREAM ISNT IT? GET ME OUT OF THIS DREAM!” 
+With that, he rummaged through the cupboard of syringes and took a syringe full of purple liquid out. He smiled to himself. I couldn’t tell if it was sincere or not. It just didn’t look right …
 
-Jocelyn laughed to herself. “You think this isn’t real, huh?” She took the knife out of her neck, but no blood came out. She grabbed my arm and slowly cut it. I just watched her do it with tears in my eyes, the pain not even registering. I could see the white cut slowly fill up with blood which dripped onto the floor. 
+“Close your eyes, okay? This will hurt a little.”
 
-“Let’s see..if you wake up with this cut tomorrow, you know this is real. Because it is.” She laughed again. “I’ll see you soon, Amber. We share the same soul. And soon, you’ll end up just like me. The butterfly effect is real, Amber.” She touched the bleeding cut on my arm and all of a sudden, I felt lightheaded. My vision became blurry and for a few seconds, The face looking back at me as my vision blurred looked exactly like me. I tried to shout, scream, or do something. Anything. I couldn’t. 
+I closed my eyes and winced a little as the syringe pierced my skin. I could feel the cold liquid enter my bloodstream, and it somehow felt calming. 
 
-Then,  my legs gave out and I collapsed onto the floor. My vision was still blurry and my ears began to ring. I could still slightly hear the sound of a door closing. And then, my vision went black. 
+“All done. Now just keep your eyes closed and relax,” he said. 
 
-Today, I woke up on the floor, my head pounding and my arm stinging. I remembered everything that happened yesterday, and trust me I still thought it was a dream until I looked at my arm. The cut was still there, and the blood that dropped onto the floor was still there too. I cleaned the blood up, put a bandage on my arm and tried to sleep, but I just couldn’t. Now I’m on here, writing everything that happened. What did she mean by we share the same fate, does this mean she cursed me? Is she even human? And what did those reoccurring dreams mean? 
+I felt calmer than ever as I kept my eyes closed. My breathing became slower, and I felt my heart slowing. The melodic sound of a piano played in my mind as I drifted off into the afterlife….
+
+…Or so I thought. My eyes open and I’m met with a hallway with a bunch of doors. I get up from the floor and look at my surroundings, in complete confusion. Before I can even register what’s happened I see a figure open one of the doors and slowly walk up to me. I almost screamed, frozen in place with fear. Something, that looked human, but had no face, and had claws for hands pointed straight at me. It towered over me, its imposing nature sending chills down my spine. 
+
+“What is this… who are you?? What am I doing here???”
+
+I didn’t get a response…Its long claw just pointed at me, as if I was an intruder. As if i didn’t belong in this place. Then something else opened a door and walked up to me. It was a human..? At least it looked human. A man who was wearing sunglasses and a long black cloak. 
+
+“You’re not supposed to be here.” He said seriously. “How did you even get here in the first place?”
+
+I tried to keep my composure, even though I was 2 seconds away from trying to run away in fear.  “Uh..assisted suicide..”
+
+“You went to the wrong world. I need to kill you.”￼
+
+I look at the man, even more perplexed than before. The wrong…world???
+
+“What do you mea—“
+
+Before I could finish my sentence, the thing without the face and the long claw which was still pointing at me wrapped its claws around my neck. I could feel the stabbing pain of its claws around my neck getting tighter and tighter, digging into my skin, giving me no access to air. I tried to gasp for air, tears beginning to stream down my face. Once again, I began to hear that same melodic piano as my head started spinning and I could see a bright light… and for some reason, I felt genuine dread. 
+
+Then darkness clouded my vision. 
+
+My eyes opened once again, and I was back in the chair, in the clinic. I could still feel the throbbing pain in my neck, a reminder of how I got back here in the first place. I got up from the chair in a panic and looked around frantically, dazed and terrified. 
+
+“What is this place? What the fuck did you do to me? Where was I? WHO ARE YOU?”
+
+The same man with the long curly hair who wore a suit, looking at the syringe with now nothing in it looked at me, raised an eyebrow then simply chuckled. “You were supposed to die, but I’m guessing you went to that place huh.”
+
+“What do you mean?? Can you please explain??”
+
+“Come back next week!” He said, dodging my question. 
+
+“Can you please explain??”
+
+“Come back next week!”
+
+I sighed and got up from the chair, left the clinic, and walked back home as questions danced around my head and my neck still hurting like a bitch. When I made it back home, I just started sobbing. I don’t know why, but I just needed to have a good cry. Because I didn’t know what the fuck I just experienced. And I still don’t. 
 
 
-
-
+Now, as I’m writing this story, I just want to know: is there more than one world out there? Has this happened to anyone else? 
