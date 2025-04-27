@@ -1,75 +1,41 @@
-# Assisted suicide didn’t work, and now i’m left with more questions than answers
-I was tired. Of everything. Of my minimum wage job that paid for absolutely nothing, of the constant bills that added up, of seeing my friends do better than me, of the constant unhappiness consuming me. I wanted a way out, of course. I thought of maybe leaving the country and starting a new life. But I was way too poor for that. Maybe trying to find a girlfriend? That didn’t work. Maybe going to the gym to distract myself? That didn’t work either. So I thought the best option out, was suicide. I tried to overdose but clearly, I didn’t take enough pills because I woke up the next day delirious and feeling like shit. I was too scared to try the other methods, because I’m a wuss, so I gave up on that. 
+# My mother died last Tuesday… but she’s downstairs doing laundry.
+Last July, my mom got surgery to have her big toe amputated. While doing a mail run, she cut her toe, and it got infected. Her diabetes kept her from feeling it until the infection reached the bone. After consultations with her doctor, it was decided that her toe could not be saved. At the time, I lived almost 2,000 miles away in California. I still remember Mom asking me to keep in touch with my thirteen-year-old sister, who would be home alone for a few days while she recovered in the hospital. For a reason I cannot explain, I had a terrible feeling she would be in the hospital longer than expected.
 
-The only thing in my life that gave me happiness was alcohol, and I was beginning to spend the little money I had on it. 
+“I’ll keep in touch. Of course. But maybe she should stay with her dad for a while? If something goes wrong…” I said.
 
-Last week, as I was bored out of my mind, a text message popped up on my phone. 
+She cut me off.
 
-“You’ve been selected for an Assisted suicide free of charge! Come to this address: ___ _____ !”
+“Nothing will go wrong, Brady. Just keep in touch with your sister,” Mom replied.   
+  
+“I know but what if…” I replied.   
+  
+“Nothing will go wrong,” Mom snapped. “Now, I gotta go. I have surgery in the morning, and I’m already stressed. Please check in with your sister a few times per day. I’ll be back home on Wednesday. I bought her some frozen meals. She knows how to use the microwave. Please, stop freaking out.”   
+  
+“Okay, mom. I’ll check in,” I said, afraid to push further.
 
-Me, being a dumbass decided to go to the address. I searched for the address on Google Maps. A photo of a clinic named “Smile!”  Popped up. It didn’t have any reviews, and it was only a 10-minute walk. Seems legit. So I got up from my bed, left my house, and strolled through the streets, smiling to myself. I could finally, get a way out. I got a few weird stares.  I happily followed the directions, practically skipping each path Google Maps took me. Until I found myself standing in front of the clinic that looked exactly like the photo. I walked inside, and a guy with long curly hair wearing a suit was sitting at a desk. He smiled at me and I showed him the text I had got. 
+I remember hanging up the phone feeling guilty for stressing her out. I’m sure it was hard to lose a part of your body, even if it was only a toe. I also wondered if she snapped at me because I mentioned my sister staying with her dad. Their relationship was toxic. He cheated and spent little time with my sister. When he did, he would bad mouth Mom. I understood why she did not want him involved. Most of all, my mom took pride in doing things herself.
 
-“Oh, you’re Dave? Follow me!” He said cheerfully. 
+Unfortunately, on the day of the surgery, my worst fears were realized. Doctors did not know she had a weakened heart. When they gave her fluids pre-surgery, she had a heart attack, which sent her into heart failure. She survived, though needed assistance for basic everyday tasks. Because of this, I decided to move back home to care for her and my sister.
 
-I was confused. “How do you know my name?” I asked. 
+The following few months were rough. She developed several more infections at the amputation site. One amputation led to two and two to three, which resulted in her losing everything below the knee. Even though she never showed my sister and me how much it affected her, I would often hear her sobbing late at night before I went to bed.
 
-“Don’t worry! It doesn’t matter. Nothing matters.” 
+She refused to give up, though, and would often attempt—against doctors' orders—to do everything she used to. My sister and I watched as she lugged laundry baskets down the basement stairs.
 
-I decided not to question him further and followed him. The clinic was pretty clean and the smell of medicine filled my nose. I liked that smell. He led me into a room with a singular chair and a cupboard full of syringes. 
+“Mom, I can get that for you. Those basement stairs are steep. You’re gonna fall and hurt yourself.”
 
-“Sit down,” he said. 
+She never accepted help, though. She was a stickler for clean laundry. She always had been, but after her injuries, she became obsessive about it. I suspect this was because her clean clothes were one of the only things she could control about her body anymore. Doing laundry was one of the few things that connected her to her previous life. She would crawl up and down the basement stairs. It was inspirational considering I struggle to get my able-bodied self to do laundry–but I had a horrible feeling surrounding those stairs.
 
-I sat down. The chair was pretty uncomfortable but I tried to not think much of it. 
+Last week, I was out with a friend when my sister called me crying. Mom had fallen down the stairs and was motionless against the concrete. My sister and I both called 911 and Mom was rushed to the hospital only a few miles down the road. Unfortunately, the fall had caused bleeding in her brain, and she succumbed to her injuries a couple days later. I was the one who made the decision to pull the plug and end her life. I’ve spent the last few days staring at the TV that used to play her favorite crime shows. Now it stares back blankly–just like me.
 
-“Now before I do this, are you sure you want to go through with this? There’s no going back, remember.” 
+Her viewing is tomorrow. I am nervous about seeing her dead body again. I worry that’s how I’ll remember her. Lifeless. However, a few minutes ago I was lying here when the faint smell of lilac washed over me. Then I heard the washer turn on from downstairs. At first, I thought this was just my imagination playing tricks on me. The washer was old. Old appliances sometimes malfunction. That’s easy enough to believe.
 
-“I’m more ready than ever.”
+But for the last couple minutes, I heard someone who sounded an awful lot like my mom say:
 
-With that, he rummaged through the cupboard of syringes and took a syringe full of purple liquid out. He smiled to himself. I couldn’t tell if it was sincere or not. It just didn’t look right …
+“I need to get these clothes done for tomorrow.”
 
-“Close your eyes, okay? This will hurt a little.”
+...from under the floorboards.
 
-I closed my eyes and winced a little as the syringe pierced my skin. I could feel the cold liquid enter my bloodstream, and it somehow felt calming. 
+It is followed by what sounds like someone crawling up the stairs. Then I can hear a series of crashes, like limbs slapping off the wooden stairs before a dull, sickening stop. After a couple seconds, someone—something—begins wailing in pain before the process starts all over again.
 
-“All done. Now just keep your eyes closed and relax,” he said. 
+I don’t know whether to approach the basement door… or run like hell.
 
-I felt calmer than ever as I kept my eyes closed. My breathing became slower, and I felt my heart slowing. The melodic sound of a piano played in my mind as I drifted off into the afterlife….
-
-…Or so I thought. My eyes open and I’m met with a hallway with a bunch of doors. I get up from the floor and look at my surroundings, in complete confusion. Before I can even register what’s happened I see a figure open one of the doors and slowly walk up to me. I almost screamed, frozen in place with fear. Something, that looked human, but had no face, and had claws for hands pointed straight at me. It towered over me, its imposing nature sending chills down my spine. 
-
-“What is this… who are you?? What am I doing here???”
-
-I didn’t get a response…Its long claw just pointed at me, as if I was an intruder. As if i didn’t belong in this place. Then something else opened a door and walked up to me. It was a human..? At least it looked human. A man who was wearing sunglasses and a long black cloak. 
-
-“You’re not supposed to be here.” He said seriously. “How did you even get here in the first place?”
-
-I tried to keep my composure, even though I was 2 seconds away from trying to run away in fear.  “Uh..assisted suicide..”
-
-“You went to the wrong world. I need to kill you.”￼
-
-I look at the man, even more perplexed than before. The wrong…world???
-
-“What do you mea—“
-
-Before I could finish my sentence, the thing without the face and the long claw which was still pointing at me wrapped its claws around my neck. I could feel the stabbing pain of its claws around my neck getting tighter and tighter, digging into my skin, giving me no access to air. I tried to gasp for air, tears beginning to stream down my face. Once again, I began to hear that same melodic piano as my head started spinning and I could see a bright light… and for some reason, I felt genuine dread. 
-
-Then darkness clouded my vision. 
-
-My eyes opened once again, and I was back in the chair, in the clinic. I could still feel the throbbing pain in my neck, a reminder of how I got back here in the first place. I got up from the chair in a panic and looked around frantically, dazed and terrified. 
-
-“What is this place? What the fuck did you do to me? Where was I? WHO ARE YOU?”
-
-The same man with the long curly hair who wore a suit, looking at the syringe with now nothing in it looked at me, raised an eyebrow then simply chuckled. “You were supposed to die, but I’m guessing you went to that place huh.”
-
-“What do you mean?? Can you please explain??”
-
-“Come back next week!” He said, dodging my question. 
-
-“Can you please explain??”
-
-“Come back next week!”
-
-I sighed and got up from the chair, left the clinic, and walked back home as questions danced around my head and my neck still hurting like a bitch. When I made it back home, I just started sobbing. I don’t know why, but I just needed to have a good cry. Because I didn’t know what the fuck I just experienced. And I still don’t. 
-
-
-Now, as I’m writing this story, I just want to know: is there more than one world out there? Has this happened to anyone else? 
