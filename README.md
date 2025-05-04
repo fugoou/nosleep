@@ -1,122 +1,198 @@
-# 3:42 AM
-Every night for the past week, I've woken up at exactly 3:42 AM.
+# The Inhabitant Ritual (PART 2)
+“Incola, come forth into our world and take control of the vessel we have prepared for you. Sedecim Nonaginta-Septem.”
 
-Not approximately. Not "around" that time. Precisely 3:42, according to my phone, my digital alarm clock, and the watch I've started keeping beside my bed to confirm I'm not imagining things.
+The mannequin was *gone*. The ritual had *worked*.
 
-It started last Tuesday. I'd gone to bed at my usual time, around 11:30, after scrolling through social media for too long as usual. Nothing unusual about the day—work had been busy but manageable, dinner was leftover pasta, and I'd called my mom like I do every week. Normal life stuff.
+Here’s[ part one](https://www.reddit.com/r/nosleep/comments/1kbkvlz/the_inhabitant_ritual/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) if you haven’t read it.
 
-I jolted awake with that unmistakable feeling of something being wrong. You know that sensation—when your body recognizes danger before your conscious mind catches up. My heart was already racing when I opened my eyes to my pitch-dark bedroom.
+ 
 
-3:42 AM.
+10:38.
 
-I lay perfectly still, listening. My one-bedroom apartment was silent except for the hum of the refrigerator and the occasional car passing on the street below. After a few minutes of nothing, I convinced myself it was just one of those random wake-ups everyone experiences. Probably stress from the project deadline coming up. I rolled over and eventually fell back asleep.
+We both stood there in the living room. The only thought on my mind was the fact that neither of us moved this thing.
 
-The next night, I made sure to avoid caffeine after 4 PM. I even skipped my usual evening scroll session, opting to read a book instead—supposedly better for sleep. I drifted off easily around 11.
+“Hey, dude. Do you hear that?”
 
-And woke up at 3:42 AM.
+I looked at Wade.
 
-This time, the feeling was stronger. Not just wrongness, but a distinct sensation of not being alone. I could feel my heartbeat in my throat as I stared into the darkness, eyes straining to make out shapes beyond my bedroom door, which I always leave slightly ajar because fully closing it makes the room too stuffy.
+“H—hear what?”
 
-Nothing moved in the darkness. No sound besides my own breathing, which I was trying desperately to keep steady and quiet. After what felt like hours but was probably only minutes, I reached for my phone and turned on the flashlight, sweeping it around the room and then through the doorway into my small living room.
+Just then, a flurry of creaks sounded above us. It was on the second floor. Okay, it’s on the second floor which means we’re still an okay distance away from it.
 
-Empty. Of course it was empty.
+Wade looked at me.
 
-The third night was when I started to get genuinely scared. Despite taking a melatonin and falling into a deep sleep, my eyes snapped open at—you guessed it—3:42 AM. This time, I was drenched in sweat, my t-shirt sticking to my chest. More disturbing was the fact that I was sitting upright in bed with no memory of having done so.
+“That. Did you hear that?”
 
-I knew I hadn't been dreaming. The transition from sleep to complete alertness had been instant, like a switch had been flipped. And now I was fully awake, my skin prickling with goosebumps despite the sweat.
+“Yeah. It worked.”
 
-That's when I noticed the smell. Just the faintest trace of something burning—not like food or an electrical fire, but like hair or fingernails. It was subtle enough that I questioned whether I was imagining it.
+We tried to figure out our next move. It was upstairs, and in the room above us, so we had a bit of time to think of something to do. Our thoughts were shattered by rapid footsteps going away from the room above us.
 
-I got out of bed that night and checked every outlet, unplugged non-essential electronics, even felt the walls for unusual warmth. Nothing. The smell had already dissipated, if it had ever been there at all.
+And then the footsteps sounded on the stairs.
 
-I messaged my friend Mia the next day, trying to sound casual: "Hey, random question—have you ever had a period where you wake up at exactly the same time every night?"
+I grabbed Wade and we left the living room.
 
-She replied quickly: "Like when my son was a newborn and I had to feed him at 2 AM? 😂"
+“There’s a closet under the stairs. I think we can hide in there.”
 
-"No, more like... without an obvious reason? I keep waking up at 3:42 on the dot and it's creeping me out."
+“Alright, man. You know the house better than I do.”
 
-"Probably stress. Or maybe your upstairs neighbor has a weird schedule? Our bodies are sensitive to patterns."
+We both managed to squeeze inside the closet just as the mannequin reached the base of the stairs. We both held our breath.
 
-That made sense. The guy above me did sometimes work nights. Maybe he was coming home or taking a shower at that time. I felt better having a potential explanation.
+*Clomp… creak… scrape…*
 
-Until night four, when I woke at 3:42 AM to the distinct sound of footsteps in my living room.
+“*Hahhh… hahhh*.”
 
-Light, careful steps. The kind someone makes when they're trying not to be heard.
+It’s right outside the door. Holy shit. H—how is it talking? Never mind that, we need to focus on not being found. I looked up from the floor and saw something that nearly made me scream.
 
-I lay frozen in bed, not breathing, my phone clutched in my hand with 911 pre-dialed. The footsteps stopped. Then came a soft scraping sound, like furniture being carefully moved.
+It was the bloodied head of the mannequin.
 
-I've never considered myself particularly brave, but something about the calculated nature of those movements filled me with more anger than fear. This was MY apartment. If someone had broken in, they had violated the one place I was supposed to feel safe.
+I saw the arm move through the slits of the closet door. I continued to hold my breath, but it was getting increasingly difficult to do so. Just before it could open the door, a sound rang out from the basement.
 
-I turned on my bedside lamp, grabbed the baseball bat I'd put there the day before (I'm not stupid), and walked to my bedroom doorway.
+It turned; it’s attention now diverted to whatever may have made the sound in the basement. I think it was the pipes. Regardless, it left us and went into the basement.
 
-The living room was empty. The front door was still chained from the inside. All windows locked. Nothing appeared disturbed.
+After about five minutes or so, Wade and I came to the conclusion that it was probably safe to leave the closet. We did just that.
 
-I checked the entire apartment—closets, behind the shower curtain, under the bed. I even looked in the fridge and cabinets, though logically I knew no adult could fit there. Nothing.
+He turned to me.
 
-That's when I noticed my couch had moved about two inches from where it normally sat.
+“Holy fucking shit dude. Th—that was, oh my god!”
 
-I didn't sleep again that night. In the morning light, I convinced myself I must have bumped the couch earlier while vacuuming and not noticed. The footsteps must have been from upstairs. Or a dream that had merged with waking.
+“Yeah man, I don’t think we should have done this, do you remember the phrase to end the game?”
 
-I was starting to question my sanity, so I decided to be methodical. That evening, I took photos of every room in my apartment, paying special attention to the exact placement of furniture. I set up my laptop to record video of the living room all night. And I took a sleeping pill, hoping to sleep through whatever 3:42 AM had in store.
+“Sorry, no. I did have it written on a piece of paper, though. I think it’s in your room.”
 
-It didn't work.
+*Downstairs, in the basement.* God dammit.
 
-My eyes opened at 3:42 AM, feeling like they'd been pried apart. The sleeping pill left me groggy, my limbs heavy, but my mind was alert to the absolute silence of my apartment. No footsteps tonight. Just the absence of the normal sounds—no refrigerator hum, no heating system, not even street noise.
+“Okay, okay.” I said, thinking. “If that thing just went into the basement, and my room is in the basement, then that means— “
 
-I felt like I was in a vacuum, the silence so complete it seemed to have physical presence, pressing against my eardrums.
+We both spoke at the same time.
 
-Then my bedroom door slowly swung shut.
+“We need to go in the basement.”
 
-I hadn't touched it. There wasn't a draft. It moved with deliberate slowness until it clicked closed.
+10:53
 
-I couldn't move, the sleeping pill weighing my body down while my mind screamed to get up. The doorknob began to turn, rotating gradually, the internal mechanism making a faint clicking sound.
+I could tell Wade felt the exact same way I did as soon as the words came out of our mouths. We would either have to maneuver and avoid this thing, or we would have to wait until it left the basement.
 
-Using every ounce of willpower, I broke through the pharmaceutical paralysis and lunged for my phone, turning on the flashlight just as the door began to open again.
+“Okay, Wade. What do you want to do? I’ve got a couple ideas.”
 
-The light revealed nothing on the other side. The door continued to open until it touched the wall, revealing my empty living room.
+“I don’t know man, sorry, I’m trying to think of something.”
 
-I didn't sleep the rest of the night, sitting upright with every light on, the baseball bat across my lap.
+“Okay. The way I see it, we have two options; either we outrun and avoid it entirely while down there, or we wait until it leaves the basement.”
 
-In the morning, I checked my laptop recording with shaking hands.
+“I don’t like the sound of either.”
 
-At 3:42 AM, the video showed static for exactly one minute before resuming normal recording of my undisturbed living room.
+“Nor do I, but I think we’re out of options.”
 
-I called out of work and spent the day researching carbon monoxide poisoning, temporal lobe seizures, and sleep disorders—anything that could explain what was happening. I even called my landlord to ask if previous tenants had ever reported strange occurrences. He just laughed and said, "Like what, ghosts? The building's only fifteen years old, not exactly haunted mansion material."
+“Okay. I say we wait it out, that work for you?”
 
-I bought a carbon monoxide detector. Normal. I checked all the locks again. Secure. I even asked my neighbor if he'd heard anything strange. He hadn't.
+“I think it’s going to have to. But we shouldn’t hide in the closet. It nearly got us.”
 
-Last night, I was determined to break the pattern. I went to stay at Mia's place, not telling her the full story, just saying my heating was acting up. I slept on her couch, her husband and five-year-old son asleep down the hall, finding comfort in the presence of other humans.
+“Upstairs then?”
 
-I woke up at 3:42 AM.
+And the plan was made. We both took our shoes and socks off. We didn’t want to make any noise while walking and we sure as hell didn’t want to risk slipping on the glossy hardwood floors of my home.
 
-The living room was dark except for the glow of the cable box. Unlike at my apartment, I didn't feel afraid here. Just confused and increasingly frustrated at my broken brain or circadian rhythm or whatever was causing this.
+We turned the corner and made our way up the stairs.
 
-Then I heard a small voice: "Who are you talking to?"
+“The bathroom.” I whispered.
 
-Mia's son stood in the hallway entrance, clutching a stuffed dinosaur, his eyes reflecting the dim light.
+I turned the handle, and we snuck in. I whipped back around and locked it. We turned the lights on and relaxed. Even if it was temporary, it was still lovely.
 
-"I'm not talking to anyone, buddy," I whispered. "Just woke up for a minute. You should go back to bed."
+I wanted to try and break the tension, so I spoke to Wade.
 
-He tilted his head, looking not at me but at the empty space next to the couch. "But you were talking to the tall man."
+“So, uh, what would you have done tonight if we hadn’t tried this?”
 
-Every hair on my body stood on end.
+He perked up and looked at me.
 
-"What tall man?" I asked, my mouth dry.
+“Hmm. Well, I did have a HELLA hot date planned, but I had to cancel it to give you a fighting chance with me.”
 
-He pointed to the empty corner. "The one who followed you here. He's bending down to whisper in your ear."
+I chuckled and lightly punched his arm.
 
-I felt it then—the faintest breath against my ear, carrying that same burnt smell from before.
+“Fuck off, dude. You don’t have any hot dates. You don’t have to lie to me just to feel good about yourself.”
 
-I'm writing this from my car outside a 24-hour diner where I've been since 4 AM. Mia thinks I got an early start to drive to my parents' house a few hours away. She doesn't know I have no intention of going there and putting them at risk.
+He laughed and rubbed his arm.
 
-It's 3:41 PM now. In twelve hours, it will be 3:41 AM, and a minute after that...
+“Well, I’d say the situation calls for at least a LITTLE bit of humor. Wouldn’t you agr— “
 
-I don't know what's happening to me. I don't know if I'm experiencing some kind of mental break or if there's actually something following me. All I know is that child saw something I couldn't, and children don't make up very specific details like tall men whispering in people's ears.
+*Black*. *Completely. Pitch. Black.*
 
-I haven't slept more than two hours at a stretch in a week. I'm writing this because I need someone, anyone, to know what's happening, in case tonight is different. In case tonight, at 3:42 AM, I find out what it wants.
+The lights went out. This must have been what the flashlights were for. I turned my light on, and Wade followed.
 
-Because the most terrifying possibility isn't that I'm losing my mind.
+“Okay,” I said, getting up, “this isn’t the worst possible outcome.”
 
-It's that I'm perfectly sane, and something impossible has taken an interest in me.
+Wade looked at me with wide, questioning eyes.
 
-And it's patient enough to claim just one minute of every night until it's ready for more.
+“Wha—what do you mean it isn’t the worst outcome?”
+
+“It’s still in the basement.”
+
+He looked down, then back up at me.
+
+“Okay, what now then?”
+
+I looked down at the floor before unlocking the bathroom door and looking back at Wade, urging him to come with me.
+
+We made our way back down the stairs, still hearing the mannequin in the basement shuffling around. I carefully opened the door.
+
+It did not creak.
+
+“Okay, you ready?” I asked, looking at Wade.
+
+“As much as I can be, I guess.”
+
+“Okay.”
+
+I put my weight on the first step.
+
+Nothing.
+
+I continued. By the time I was halfway down the stairs, I could hear it lot more clearly. The mannequin was in the boiler room. My room is next to it.
+
+As my feet made contact with the cold basement floor, I turned my flashlight off. Wade made his way down next to me, and I urged him to do the same.
+
+“I know my way around down here, even if it’s dark.” I whispered.
+
+“Alright, you need me to do anything?”
+
+“Just stand guard.”
+
+“Gotcha.”
+
+I tiptoed over to my room, the door of which was open. I went in and turned my light on.
+
+There, in the middle of the bed, was the paper with the phrase on it. I rushed over and grabbed it.
+
+At the same time that I grabbed it, I heard a crash from the other room. It was the unmistakable sound of somebody barging through the door.
+
+And then, I heard Wade *scream*.
+
+“Shit.” I said under my breath.
+
+I rushed out and illuminated the basement with my light.
+
+It got Wade. He wasn’t dead, though. Instead, that thing was *dragging* him by his feet up the basement stairs.
+
+“JOSH!” I turned around quickly. Wade had one final thing to say to me.
+
+As he said it, I felt a rock drop into my stomach, and I nearly collapsed to the ground.
+
+“I—I just remembered that I—”
+
+As the words left his mouth, a whole new wave of fear came over me.
+
+“I left the paper with the phrase in my car.”
+
+It dragged him out of sight, and I slumped to the ground.
+
+It’s now 11:15. 45 minutes left. I don’t know if Wade is still alive, but I have to be sure that he is.
+
+I can’t say for certain what’s going to happen next, but I’ll be sure to update you guys if something does.
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
