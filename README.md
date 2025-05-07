@@ -1,131 +1,204 @@
-# [Part 1] I’ve Spent 3 Years Chasing a Killer, I Think He’s Begun Targeting My Family
-I’ve never posted on here before, but I don’t know where else to go. I’m a detective, and for the past 3 years, my department and I have been chasing a ghost, a monster — and now I think he’s coming for my family. 
+# I Work the Graveyard Shift at an Abandoned Mall: Night Four
+[**Night One**](https://www.reddit.com/r/nosleep/comments/1jqomjr/i_work_the_graveyard_shift_at_an_abandoned_mall/)
 
-I don’t have concrete proof yet, I'm not sure if it’s him… But If something happens to me, or to them, I need someone to know it wasn’t random. It was him.
+[**Night Two**](https://www.reddit.com/r/nosleep/comments/1js202f/i_work_the_graveyard_shift_at_an_abandoned_mall/)
 
-Three years ago, the town of Silver Creek was terrorized by a serial killer. It began when a girl named Kristine went missing. She was out with some friends at a local concert, but unfortunately never came home. 
+[**Night Three**](https://www.reddit.com/r/nosleep/comments/1jttazr/i_work_the_graveyard_shift_at_an_abandoned_mall/)
 
-Her parents filed a missing persons report, and despite numerous searches and interrogations, nothing came of it. About 2 weeks after she had gone missing, a hiker had found a mangled body in the woods. After extensive DNA testing, it was revealed to be Kristine.
+**July 4th: "The Last Night"**
 
-Theories began to fly, from people saying she had fallen off the trail, to people saying she had been attacked by a wild animal, nobody was sure. Just months after Kristine was found, police were called to investigate a case of home invasion. 
+I wake up with a start. My hands are cold. My breath is shallow. My heart pounds against my ribs like I’ve just been running. I don’t remember falling asleep. I don’t remember coming here. But I’m already at the security desk. My uniform is on, neatly buttoned, like I’ve been on shift for hours. The monitors cast their familiar glow, flickering softly, showing the same empty corridors I’ve walked a hundred times before.
 
-When they arrived, they found Cathy missing, and her parents dead. That’s when the city realized what was happening: A killer was on the loose. I originally was assigned to the case of Cathy’s parents, to figure out what had happened. 
+Except…
 
-The crime scene was one I will never forget. Cathy’s mother had died of blunt force trauma, and the father had been cleaved with what we assumed to be an axe.
+My security log is open in front of me, pages filled with my own handwriting. Entries I don’t remember writing. I flip through them, my fingers trembling. The dates stretch back farther than they should: weeks, months… maybe years. Then I see the last entry. The ink is fresh.
 
-Despite searching the scene, we found no prints. The back door was open, the killer probably slipped in when nobody was looking. After talking to the neighbors, they said they had heard screaming, but saw nothing.
+"Night Four begins now."
 
-For the next year, we tried our best to find the killer as he got bolder. A couple had been hacked, a car was found crashed with a bloody trail leading to a man’s body, and a group of teenagers camping were all found dead, with a few of the bodies having been dumped in a lake. 
+A shudder rolls through me. I push back from the desk, trying to stand, trying to shake off the fog in my head… and for a split second, I feel it. I’m in two places at once. I snap my head toward the monitors. One of the cameras shows the west hallway. I’m standing there. Patrolling. But I’m still here. Sitting at the desk. I blink, my breath catching in my throat.
 
-We spent so much goddamn time trying to find the monster, but he was always gone by the time a call was made.
+The \*figure on the monitor… me\* turns. Slowly, deliberately... and looks straight at the camera.
 
-Some people around the office began to say he was a ghost. No evidence, seemingly able to travel great distances fast, and almost invisible. As panic began to rise, our mayor held a press conference giving a name to the monster: The Silver Creek Slasher.
+Straight at me.
 
-Headlines ran wild with the name, plastering it everywhere, which only instilled more fear in the town. They didn’t care though, it had people talking, and that’s what pays. 
+A burst of static explodes from the PA system. My own voice echoes through the speaker; flat, distant, like a recording played a thousand times over.
 
-After the carnage the monster had made, we finally had a break. Another missing person, Leanne, was spotted on the side of the road a few days after she had been reported missing. A trucker had seen her, visibly shaken and injured, as well as looking thin. 
+"Night Four begins now."
 
-According to the driver, she was emotionally distraught, sobbing and begging the driver to take her to the police, as she kept looking outside fearfully.
+I grip the edge of the desk, my pulse hammering in my ears. This isn’t real. It can’t be real. Then the monitors flicker. A new camera feed. A hallway. Dimly lit. At the far end, someone stands just out of focus. They don’t move. They don’t breathe. But they’re watching. The screen glitches. The figure is closer.
 
-After she had calmed down and was safe, me and my partner, Damon, went to talk to her. She had said that a tall man had put a rag with what I guess was chloroform over her mouth, causing her to faint. 
+Another glitch… closer still.
 
-When she woke up, she was in a small padded room, restrained to a chair. After a few days, she had been able to undo the restraints, and ran into the woods. 
+I swallow hard, my body frozen in place. Then, the screen goes black. The air shifts around me, thick and alive.
 
-She said for a few days, she hadn’t seen or heard anything. When asked to tell us the location she had escaped from, she mentioned an abandoned shipping container in the woods.
+I’m not alone.
 
-When officers arrived, they found a rusty old shipping container. When they opened it, they found what we had dubbed ‘The Toybox’ — a padded room with a chair for restraining people, and an assortment of surgical tools and weapons. The room was covered in dried blood, presumably from the other victims.
+\*\*\*\*
 
-With the killer’s hideout found, it was only a matter of time before we caught the bastard. But when the news made the headline, the killer vanished. And for the next 2 years, nothing happened. No home invasions, no kidnappings, no murders, nothing.
+I step out into the hallway, and I immediately know something is wrong. The mall is decaying. The storefronts are warped, their glass smeared with something greasy and opaque. The neon signs flicker; not just on and off, but between decades. One second, they’re brand new, glowing bright, advertising sales long since passed. The next, they’re shattered, rusted, dangling from wires like severed tendons.
 
-Even though the killer had stopped, the town never rested. He was a stain on Silver Creek, and even 2 years later, going over the evidence, it’s unbelievable how he got away. There was nothing to give even a hint to his identity. It was bizarre.
+Above me, something drips from the ceiling. A slow, steady patter against the tile. At first, I think it’s just water, just another leak from this dying building…
 
-But, as you can probably guess, something has changed recently. Yesterday I was asleep when I woke up from my cell phone ringing. When I answered, I heard Damon’s voice. 
+But when I step closer, I see it.
 
-“Jasper, you need to get down here.” 
+The liquid is thick.
 
-“What happened, Damon? Did your car break down agai-" 
+Dark.
 
-“A body was found. They think he struck again.” Damon interrupted, his voice stern. 
+It clings to the ceiling beams like oil, sluggish and alive.
 
-“You’re shitting. I’m on my way. Tell the chief I'll be there in 10.” I said, throwing on my jacket and hopping in my car.
+I choke down the urge to gag. The air is different too: heavier, thicker. The usual mall scent of stale popcorn and disinfectant is gone. In its place is something rotten, something that reminds me of old meat left out in the heat.
 
-As I floored it through the dark streets, gliding past the pine trees and rain-soaked hills of Silver Creek in the spring, all I could think about was the fact that he was back. He couldn’t be, right? A copycat, or a freak accident, or just another unrelated homicide. But, it wouldn’t surprise me.
+Then… a flicker.
 
-I sometimes wonder if I'm cursed. Everything good that happens is followed by something terrible, that keeps piling on until I'm at my limit once again. 
+The lights overhead buzz and shudder, and for a moment, I think they’re about to cut out completely. But no… They turn on.
 
-Last summer, my wife passed away from a stroke. Our children were devastated, my oldest, Lucas, couldn’t attend any events for a while. He had cut off everyone, missed days of school, and fell into a depression. 
+One by one, down the corridor. A path of light, stretching forward. Leading me deeper in. A cold sweat creeps down my back. The mall isn’t just falling apart. It’s changing. I round a corner, and I freeze. Ahead, near the far end of the hall, someone is there.
 
-My youngest daughter, Stephanie, was just turning 12, and was also devastated, to the point where she was seeing a children’s therapist, one who she still visits today.
+A security guard.
 
-Lucas has somewhat healed. Although her memory still brings pain, the surface level wounds have healed. Why am I telling you this? Maybe to vent, or maybe to give a better understanding of my mental state. Even as I write this, I think about her.
+Relief surges in my chest, irrational and desperate. I almost call out, but something stops me. He’s standing too still. I take a step closer, my breath shallow.
 
-When I got to the station, I read the report. The victim was a male, about 32, and had a major gash in the head, and was dumped on the side of the highway. 
+"Hey," I say. My voice is hoarse. "Hey, man, what’s…"
 
-The man was identified as Mr. Perlman, and the culprit was once again unknown. “So, what makes you think it’s him?” The Chief said.
+The figure moves. Not like a person. Not naturally. His limbs jerk, slightly out of sync, like a puppet on invisible strings. His head tilts… too sharply, like his neck is made of brittle plastic. But he doesn’t turn toward me.
 
-“Most of his victims had been struck in the head with an axe. Seemed to be his weapon of choice. Either this is a copycat, or the Silver Creek Slasher is back in business.” Damon said.
+He just keeps walking.
 
-“Don’t even say that shit” I said, picking up a folder and sitting at my desk. 
+I take another step back, pulse hammering. My fingers tingle, cold and numb, like I’ve been outside in the dead of winter without gloves. I look down at my hands. And for the first time, I realize…
 
-“Are there photos of the scene?” I said, logging in to my computer so I could begin writing a case report.
+They don’t feel like mine anymore.
 
-I didn’t get home until around 3pm the next day. It was miserable, I felt like shit, and after being souped up on coffee and five-hour energy, I was ready to crash. 
+\*\*\*\*
 
-When I got inside, a few minutes later the bus dropped off Stephanie, and Lucas pulled his car into the drive a bit later.
+I don’t know how long I’ve been walking. The halls stretch on forever, shifting under my feet like a living thing. I turn left where I swear there should be a dead end. I step through a doorway and somehow end up deeper inside than before.
 
-I ended up falling asleep, and told the kids to order something for dinner, as I'll eat when I wake up. A while later, I woke up. 
+And the mall is watching.
 
-The clock read 8:30 pm, and I got out of bed to go downstairs. After finding something to eat, I crashed again. Morning came, and when I came downstairs, I saw my daughter, Stephanie, pissed off.
+The PA system crackles overhead, the speakers distorted with static and something else: voices. They come in faint at first, like old radio transmissions struggling to break through the interference. But then… I recognize them.
 
-“Hey Steph, everything alright?” I said.
+Security guards. Past workers, leaving messages for each other.
 
- “Look at this dad!” Stephanie said, gesturing me outside. When I stepped out, I saw something strange. On our porch laid Stephanie’s bike. 
+"... back entrance doors still jammed, I’ll take a look tomorrow..."
 
-But it was destroyed. The paint had been scraped off, the tires slashed, and the handle broken. 
+"... lost another delivery guy. Nobody saw him leave..."
 
-“What in the..?” I looked up, and noticed my car had been scraped too. 
+Then, beneath it all, a whisper. Soft. Urgent.
 
-“Hey, what the hell?” I said, running over to my car.
+“If you’re hearing this, you’ve been here too long.”
 
-As I grabbed the door, it was unlocked. This struck me as odd, as I know I had locked it when I got home yesterday. Inside, everything was trashed, my radio had been cut, papers everywhere, and a marker on my window spelled out ‘Father Of The Year’ in large, red letters.
+I stop breathing. My skin crawls. Ahead, mannequins stand in storefront windows. I keep my eyes forward, telling myself they’re just plastic, just lifeless props for a store that doesn’t even exist anymore. But as I pass…
 
-My son’s car had been vandalized too. The words ‘Missed A Spot’ were scribbled on his windows. 
+They breathe.
 
-“What the hell could that mean?” I said. After going back inside, I questioned Lucas to see if the phrase meant anything to him, or if his friends had played a prank on us.
+I hear the soft inhale, the almost imperceptible sigh of lungs expanding and contracting. I see the slow flutter of eyelids, the shift of shoulders, the minute twitch of fingers. I tell myself to keep moving. Keep walking. But then…
 
-“What kind of friend would do that? They’re not morons, dad.” 
+I see a face.
 
-“Kids these days have sick ideas of what’s funny. Any classmates you know that are troublemakers?” I said. 
+One of the mannequins, standing among the rest, has my face. I stumble back, heart slamming against my ribs. It doesn’t move, but I know it’s alive. I rush past, refusing to look again. At the next corridor, a bulletin board is mounted to the wall. The papers are yellowed, curling at the edges. A photo is pinned in the center.
 
-“How about instead of people I know, look into people you know. Maybe someone you locked up got angry and decided to screw with you.” Lucas remarked.
+It’s an old group picture: mall employees, standing in front of the fountain. The grand opening, 1982. I scan the faces, half-expecting to see someone I recognize, some proof that all of this isn’t real. And then…
 
-“Besides, doesn’t that old lady across the street have cameras?” Lucas said. I stopped, realizing that he’s right. 
+I see him.
 
-“I can’t stand her, she’s so rude, even by old lady standards.” I said, getting up and heading towards the door. 
+A man in the back row. Same eyes. Same jawline. Same slouched posture. He looks exactly like me. I feel sick. I turn away, and for a second, I catch my reflection in the glass of an old vending machine. My stomach knots.
 
-“Get your stuff ready, the bus will be here soon.”
+It’s smiling.
 
-“Dad, it’s Saturday.” Stephanie said.
+I’m not. But it is.
 
- “Is it? Shit, my bad.” I said, turning around and heading across the street. After talking to Beth, and helping her use her smartphone, we were able to pull up the video from last night.
+I take a step closer, but my reflection stays put, its grin widening, teeth gleaming too sharp in the dim light. I spin around, checking the other windows. In one, my reflection watches me, face blank, eyes hollow. In another, it mouths something. I can’t hear it. But I know it’s speaking. And it looks like a warning. Then…
 
-At 2:43 AM, the cameras picked up a silhouette slipping from the treeline. It moved slowly, almost alien, pausing to scan the yard before locking onto the front door. 
+A flicker.
 
-The figure just stood there… motionless, staring, for what felt like forever. Then it crept toward the window, its face just out of view, peering into the living room.
+The mall directory screen beside me changes. The old, half-burned map vanishes, replaced by a single message:
 
-A minute later, it vanished around the back of the house. I balled my fist, waiting, my pulse pounding. When it returned, it didn’t hesitate — painting the car windows, kicking over my daughter’s bike, tearing into anything it could reach. 
+“Food Court - Below.”
 
-Then, just like that, it turned and vanished into the woods, as quickly as it had come.
+I don’t know why, but my gut twists. There is no “below.” There was never a lower level. But ahead, where there was only wall before: A new pathway has appeared. Leading downward. I don’t want to go, but my legs start moving anyway.
 
-“What the hell? What’s going on?” The old lady said, looking at me. 
+\*\*\*\*
 
-“We had someone vandalize my shit. I’m letting the force know. Any way you can send the footage to me?” I said, standing up.
+The air is thick, humid. Each step down the hidden staircase feels heavier, the dim yellow lights above me flickering like dying embers. The food court shouldn’t be here.
 
-“I think I know how to. Just make sure they don’t get my car as well.” Beth said, in an almost snarky tone.
+It wasn’t here.
 
- “He won’t,” I said, annoyed.
+But as I reach the bottom, I see rows of tables. The glow of neon signs. The low, distorted hum of voices, chewing, slurping, swallowing. Every table is occupied. And every single person eating…
 
-I just emailed the report to my chief, as well as Damon, and I'm currently waiting on a response. I could head to the station, but I want to stay home. I’m not a deeply religious person, but I prayed that it was just a kid playing a prank. 
+Is me.
 
-But with another person dead, and how strangely the figure moved, it’s too much of a coincidence. I think the Silver Creek Slasher is back, and he has begun targeting my family.
+Some are younger, barely past their teenage years, nervously hunched over plastic trays. Others are older, their faces lined with exhaustion, blank stares locked onto half-eaten meals. And some…
 
+Some shouldn’t be alive.
+
+Their skin is rotting. Gray, sagging flesh hangs loosely from their bones. Teeth chatter as they chew, but they never swallow. Some don’t even have lips anymore, just blackened gums and empty eyes. I stagger back. The stench of stale food and decay hits me like a wall. The chewing stops. They all look up. My stomach twists. A voice slithers through the air, low and wet, as if whispered through water.
+
+“Join us.”
+
+My breath hitches. My limbs feel heavy. I glance at their trays. The food is moving.
+
+The burgers pulse, their surfaces breathing. The noodles writhe like worms. The meat glistens too red, too raw, too alive. And then…
+
+My stomach growls.
+
+I grip the edge of a table, my vision swimming. When was the last time I ate? My hands tremble. How long have I been here? Then…
+
+A tray slides across the table in front of me. It’s mine. Half-eaten. The food is still warm. Next to the tray sits a plastic name tag.
+
+My name.
+
+I’ve been here before.
+
+\*\*\*\*
+
+I run. I don’t know where I’m going. It doesn’t matter. My footsteps hammer against the tile, echoing too loud in the cavernous space. My breath comes in ragged gasps. The mall twists around me, corridors bending, stretching. The storefronts glitch between decades: 1982, 1996, 2008, now. I pass a toy store where shelves overflow with boxed action figures, ones I had as a kid, still sealed, pristine. I pass a record shop where a clerk in bell-bottoms hums along to a song I don’t recognize. I pass a jewelry store where mannequins wear engagement rings that were never bought, but one of them matches the one I almost gave her.
+
+No. No, no, no.
+
+I force myself forward, turning down another hall… I’m back at the food court.
+
+No.
+
+The PA system hisses to life. My voice, my own voice. whispers through the speakers.
+
+"You can’t leave. You never left."
+
+I grip my head, shaking. This isn’t real. It can’t be. My security log. I fumble it open, pages crinkling beneath my trembling fingers. The entries… there are too many. Decades of them. The ink fades and changes, shifting from modern ballpoint to the scratchy drag of fountain pens. The oldest pages are yellowed, the dates barely legible. But the handwriting…
+
+It’s mine.
+
+Over and over.
+
+Over years.
+
+Over lifetimes.
+
+I look up. There’s a mirror ahead. A dusty, smudged department store mirror. I don’t want to see it, but I step forward anyway. I look. And the face staring back… It’s not me. Not the way I remember. My hair is thinner. My eyes are dull, sunken. Tired. The lines on my face are deep, too deep. I lift a shaking hand to my cheek… and the reflection doesn’t follow. It just stands there. Waiting. Then…
+
+A shadow rises behind me. Tall. Familiar. I see it in the glass, looming over my shoulder.
+
+My reflection.
+
+It steps forward. Slowly. Deliberately. And then…
+
+It places a cold, steady hand on my shoulder.
+
+\*\*\*\*
+
+I collapse. My legs give out beneath me, and I sink to the floor. The air is thick, suffocating, pressing in like a weighted blanket. The voices soften, losing their malice. They coo. They soothe.
+
+*"You belong here."*
+
+*"It’s easier this way."*
+
+My breath slows. The fear is slipping away. Or maybe I am. My other self kneels beside me. It doesn’t speak. It just smiles: a knowing, patient smile, like it’s been waiting for me to understand.
+
+Something in my chest loosens. My mind fogs, thoughts unraveling like frayed thread. What was I afraid of again? This is what happens. This is how it always ends. I feel it, like a fracture in my being. I am splitting. No… multiplying. Something steps forward from the shadows.
+
+Then another.
+
+And another.
+
+I look up. The mannequins are closer now. Their blank faces aren’t blank anymore. They are me.
+
+They always were.
