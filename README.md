@@ -1,122 +1,68 @@
-# I found an old numbers station. Then the tapes started showing up.
-Ok guys, I'm officially scared and don't know what else to do or who to turn to. Long story short, let me just ask if everyone here is familiar with "numbers stations"?
+# I got a new smart watch and I think it's broken.
+I want some help understanding this, because I'm finding it hard to tell if what's happening is real, my imagination running wild, or simply a technical glitch. I'll give as much background as I can to describe the situation as well as my mental state, as I'm genuinely stumped as to what's been going on.
 
-Well for those that don't, briefly, they’re weird shortwave radio broadcasts--just roboticish voices reading strings of numbers and sometimes letters. No explanation. No station ID. Just:
+The past few years I have been working from home. During the pandemic I got a customer service job based in another city. The company hired people from all over when their office was forced to close, and when everything opened up again, they chose to go fully remote. It works well for me, I'm quite a shy person and prefer to keep to myself, although it has made me quite lazy.
 
-“Four. Seven. Two. One.” Repeat.
+I've always been a people-pleaser, an overthinker and I seem to be a magnet for people who take and take but give little or nothing in return. My last relationship ended last July, but I still don't feel fully healed. I was gaslit so much, made to believe I did things I never did, and made to feel like my memories of the treatment I got were in my head. In spite of all this, I tried to have good terms with my ex after breaking up, but she told me she was not in a position to have any kind of friendship with me. She even told me she was having sleep paralysis regularly with me appearing as the demon.
 
-They’ve existed since the Cold War and some say they’re spy transmissions. Others think it’s something worse. Thing is, some are still broadcasting, and a few didn’t seem to have a source. 
+Much of what she said and did hurt me a lot. Therapy helped me overcome some things, but I stopped going the first time I made real progress. I told myself I could handle things from here, but the thoughts and my own bad dreams came back, stronger than ever. I'll go back soon, but for now it feels kind of daunting.
 
-Or so I thought.
+I moved to a new house in December. I needed somewhere with more space, since the bedroom in my last house was tiny and I was spending 8 hours a day at a desk a few feet from my bed. Cabin fever was setting in and I needed a change. The new place is far more spacious. I have a huge bedroom with an en-suite bathroom and a walk-in wardrobe that I've converted into an office. It makes such a difference just to have a door between where I work and where I sleep.
 
-Now my background, I used to work overnights at a tiny FM radio station in Pennsylvania—WQRC 98.7. Graveyard shift. We were a Class A station, running mostly automated playlists, but I’d be there to log weather carts, cue PSAs, and hit the liners every hour.
+It's a 2-bedroom house. My space is the entire ground floor, upstairs is the living room and kitchen, and my housemate is on the second floor. He was really friendly and welcoming when I moved here first, but has become a bit strange recently. I think he's paranoid, but I guess we all have been going through difficult times so I don't judge too harshly and keep to myself mostly.
 
-Most nights, it was just me, the board, and a crusty old pot of gas station coffee.
+For the first few months I lived here, I felt so drained all the time. For the first week or so I put it down to just getting settled in to a new place. I wasn't sleeping much and every noise I heard was new to me. Over time I got used to the place, and started to get more sleep, but my energy levels remained low. I would wake up 5 minutes before starting work and clock in just on time, shower and eat on my lunch break, get through the day, and once I clocked out, I always just lay on my bed doomscrolling before passing out after about an hour. Despite getting 12 hours sleep per night, I was still waking up tired and I could not understand it.
 
-One night, bored out of my mind, I started playing around with our Kenwood R-5000 receiver. It's an old shortwave radio with manual tuning, and sometimes I’d just scroll through the bands to see what odd stuff was floating through the ether.
+One morning I woke up feeling especially exhausted. I checked the time - 9:10, I was late for work and had a meeting with my manager 5 minutes later. I jumped out of bed, pulled on a shirt, clocked in and joined the meeting just in time. My boss was updating me about a new initiative HR were announcing. During the meeting he stopped mid-sentence, looked closely at me and asked if I was OK. I explained I was really tired lately and not feeling 100% but that I would perk up as the day went on.
 
-That’s when I found it—14225 kHz.
+He continued to explain the new initiative - HR set up a wellbeing committee and were running a steps challenge. 10,000  steps per day for the month of April, and once you entered, you were sent a new smart watch as a gift, and to encourage you to be more active. I'd seen these kinds of challenges before and hated the idea, but at that moment I felt like this was a sign and a way out of the rut I was in. I told my manager to sign me up. It was starting in two days and the watch should arrive within a week.
 
-No call sign. No station ID. Just this flat, robotic little girl’s voice reading numbers:
+Right before we finished, he told me to take a 15 minute break to clean myself up before starting. To be fair to the guy he does look out for us.
 
-“Nine. Four. Zero. One. Seven. Zero.”
+I went to the bathroom and had a look in the mirror, there was a long brownish-red streak smeared across my cheek. Blood? I think so. I must have had a nosebleed in my sleep and from moving around, it smeared across my face. Damn. I had a shower, made myself more presentable and apologised to my boss. Kind of embarrassing but he was sympathetic, he wanted me to see a doctor but I knew it was just a once off.
 
-Then a pause.
+After work I thought more about the steps challenge. I looked it up and 10,000 steps is about 5 miles. It felt like a lot, but I told myself that even if I do one mile each day, at least it's better than nothing, right?
 
-Then this awful clicking sound—wet and erratic. Like keys on glass or something. Then silence.
+I decided that evening I would start getting some preparation in. I'd go for a walk instead of going straight to bed. I set up a step counting app on my phone and headed out. It's a 10 minute walk to the local park, 15 to the supermarket. I wanted to try a new route so I turned left and headed uphill. After 5 minutes of walking, already out of breath, I found myself in a neighbourhood that seemed a bit rundown. I thought about how this area is so close to the idyllic peaceful part of the city I lived in and that juxtaposition.
 
-I thought I just stumbled upon another old numbers station, but this one felt (the only way I know how to describe it)... wrong. A literal, emotional, spiritual feeling? Hell I don't know, but I didn’t *feel* like it was broadcasting. I felt like it was listening.
+I noticed a vandalised poster of someone's missing pet dog. Someone had drawn X's over poor Luna's eyes and drawn a speech bubble saying "I'm already dead lol". What is wrong with people?
 
-I recorded it straight into Adobe Audition from the monitor output on the board and played it back three times through the studio monitors. Every single time, something weird happened.
+I walked a little further and saw a group of young people with hoodies and baseball caps up ahead looking in my direction. I decided not to approach, turned and walked home, excited to check my step count when I got back.
 
-The Orban processor flickered. The silence monitor tripped. The lights buzzed. I swear I heard breathing behind me.
+2,000. I was disappointed at first, but vowed to increase it the next day, and build up over the first week of the challenge towards the 10,000 step target. I hopped in the shower and after it I fell asleep as soon as my head hit the pillow.
 
-I told Mitch, our weekend weather guy and part-time engineer. He laughed, until I played it for him.
+*I'm at a resort hotel. I get out of the elevator on the 2nd floor instead of the 14th. The CEO of my company stands smiling at the door of a conference room. Blood streaks the walls and the carpet. There's blood on his hands. Behind him the door is now ajar. There's a forensics team removing a body and inspecting the area. He tells me that sometimes getting rid of the opposition requires force.*
 
-Then he went pale.
+*I'm outside at a waterfront bar with my colleagues. My ex and her new partner are nearby. As soon as I notice them panic breaks out. I hear gunfire. I run to the water's edge and don't know where to go from there. I'm on elevated ground. I see soldiers and hails of bullets in the distance. I hear screams and cries of 'war' and 'run'. I look to the water. I don't know where to go*
 
-“I used to hear that broadcast as a kid,” he said. “Not on a radio though. Through my bedroom wall.”
+I woke up, sat bolt upright and checked the time. 22:23. I was asleep for less than an hour. I checked her social media. She posted a video with the lyrics of '*Happier than ever'*. The week before it was *'All too well'*.
 
-The following Monday, we got a package in the station dropbox. No return address. Just six numbers on a scrap of paper:
+I was going to go upstairs for a glass of water but I heard the door opening. My housemate returning from a date and I heard his and her voice laughing. A successful night for him. He told her this is where the 'Vampire' sleeps and I heard a light tap on my door. He told her he keeps his door locked at night and they laughed and one of them shushed the other. I thought about downloading dating apps again as I lay back down. Time to move on.
 
-940170
+The first two days of April I took 1,500 and 3,000 steps. I got back on dating apps and planned to get a drink with a girl on Friday. My confidence was growing. I was chatting to another girl who was out of town. I'd meet her soon too. On the Friday, my watch came in the mail. Just in time for the date and my weekend. Even though I still felt burnt out, I was in a positive mood on Friday, excited for the date that night. I showered on my lunch, sprayed almost an entire can of deodorant on myself after finishing, and headed out to the bar.
 
-Inside: a VHS tape.
+The girl I met was beautiful. Marie. I knew from her bio she worked in localisation and spoke 4 languages fluently. I got drinks, brought them to the table and started to tell her about my day. I noticed she didn't look interested so I changed topic. I spoke about the steps challenge and how I'm trying to be more active. Again she was nodding, but looked bored. I started to ask about her, what she likes to do for fun. She said "This", and leaned in and kissed me. At first I felt uncomfortable, but I got in to it. "I still got it!", I thought.
 
-It showed grainy, black-and-white footage of the station. Filmed from across the road. The camera zoomed in on the studio window. On me, sitting at the board.
+After 5 minutes kissing with barely-touched drinks at the table she whispered in my ear "Why don't we continue this at your place?" My heart sank. I never thought I would be in this position that night. I thought about my room, where I had been spending so much of my time the last 4 months. I was so exhausted I hadn't stayed on top of laundry. When did I last change my bedsheets? Not sure. Did I throw out the wrappers from those snacks I had at my desk for the past week or were they still sitting there... "Or we can go to mine" she laughed, and I felt relief.
 
-The timestamp? Three days from now.
+We got a cab back to her place and went to her room. Again there wasn't much talking. It had been a long time for me, I felt a mix of excitement and guilt, pleasure mixed with uncertainty. I felt the speed of her grinding on me grow faster, her breaths getting more intense and her moans louder. I was still completely in my head, overthinking about the situation and wasn't even close. She got up and kissed me and said she loves finishing first. When she went to the bathroom I checked my watch. 5,000 steps. Not bad. I wondered if it included the "workout".
 
-At exactly 2:37 a.m., the power goes out in the footage. I stand up suddenly—like something yanks me upward off my seat. Then: static.
+*I am a third party watching myself. I am both standing at the end of my ex's bed and watching myself stand there. I list off every thing she did that hurt me. I ask her to tell me the truth about when her new relationship started. I cry. The onlooker watches her laying there with her eyes closed. Not looking peaceful, but disturbed*
 
-We thought it was a prank.
+I woke up to see Marie standing fully dressed, arms folded, calling my name. Her parents were visiting and she needed me to leave. I quickly got dressed and noticed the ends of my jeans were wet. It hadn't rained the night before. There was dark dirt or what appeared to be ash under my fingernails. I showed them to her, and looked towards her black duvet as the only possible source. She rolled her eyes and sternly told me to get out.
 
-Until that Friday. At exactly 2:37 a.m., the power actually cut out. The UPS kicked in. The transmitter stayed live, but the console died for twelve seconds.
+I approached her before leaving hoping for a kiss but she backed away. I didn't know what had changed. I got a cab to my house, while fighting the instinct to overthink about what had gone wrong. As a distraction, I checked my watch. A notification told me I had reached my daily target. 10,000 steps. But how? I swiped back to the previous day. 10,000 steps. What was this app counting?
 
-And something cold grabbed my neck.
+I had a text from my housemate. "Hey man, can we have a chat when you get home?"
 
-I checked the next morning. Bruises. Five, scrawny, finger-shaped marks. Like something had grabbed me with wires made of ice.
+He told me someone had been in his room a few nights while he was out. It seemed to be ongoing for a while. At first he said it was small changes. A lamp not being where he remembered putting it, or some clothes on the floor that had been on the bed. Then he noticed dark fingerprints on the door handle, and there seemed to be drops of blood and some dog or cat's fur on the carpet.
 
-Every Monday, another package, another tape.
-Each one showed something that hadn’t happened yet, and each one came true.
+I was shocked. I wasn't sure if it was real, or his mind playing tricks on him.
 
-Janelle, our traffic anchor, vanished during a live break. Just like the tape. Her car was found at a rest stop, still idling. No trace of her in the system. No lease. No pay stubs. Even our ENCO playout logs were wiped clean—like she’d never recorded a single cart.
+Then he asked "Man. Were you in my room those nights?"
 
-With some much needed advice and help from a few others, I attempted to see if there were patterns to the numbers. I couldn't believe it! We found that some were coordinates, others pointed to military facilities and old decommissioned towers. One pointed directly to our STL dish. But another? My own home address.
+My mind was racing as I went to bed that night. I'd never been in his room, why would he think it was me? But who else could it be? Why was Marie so cold towards me, and where did the extra steps come from.
 
-After this, the broadcast on 14225 changed.
+*I'm standing in an area I recognise. There are rundown buildings, and I'm standing next to a trash can lit on fire. In the distance I see the figures of teenagers looking at me, their faces just shadows. I hear a dog whimpering. I see the missing dog poster on a pole. There's an added section saying 'Wanted' with my picture. There's blood on my hands. I hear my own voice repeating "I'm already dead...I'm already dead..."*
 
-It wasn’t the little girl’s voice anymore.
-
-It was Mitch’s, then Janelle's.
-
-Then it was mine.
-
-“You are now a relay station. Repeat. You are now... a relay station.”
-
-Desperately seeking answers, I found an old Usenet thread from 1998, buried in a conspiracy archive. Someone posted about something called The Glass Frequency and said it was a signal that didn’t just transmit information—it transmitted you. 
-
-The final line in the thread said:
-
-“If you hear yourself, you are no longer you."
-
-WQRC signed off in 2021. Official cause: a lightning strike took out our STL path. The FCC listed it as a silent station.
-
-Since then, I've been tuning into 14225 online and as I said above, I'm scared and need help. 
-
-Why? 
-
-Last night  I tuned into 14225 and now I know I don’t have much time. Listening to yourself tell you: "Zero. Zero. One. You are next” psychologically destroys you. Please. If anyone has any helpful information,  or have heard of anything else like this, you know what to do.
-
-
-UPDATE: I think I’m going to try to find Mitch.
-
-So first off, thanks to everyone who's dm'd and commented and shared! Some of you have reached out (again, thank you), and I’ve been going through them all. 
-
-One stood out though. 
-
-Mitch.
-
-Where he is now, if I’ve spoken to him recently. Well the truth is, I haven’t.
-
-He stopped showing up a few weeks before WQRC went dark in 2021. No warning, no goodbye. Management said he "moved to Ohio." I tried emailing him last night as soon as I saw the comment but it bounced back. Also, I called the number I had saved but it no longer worked.
-
-But something has been eating at me:
-
-Mitch said, “I used to hear that broadcast as a kid," “Not on a radio though. Through my bedroom wall.”
-
-That never made sense to me. Until now.
-
-I pulled some of our old transmitter logs and FCC filings and I found an address for a decommissioned relay site WQRC used before moving its STL path to the current tower. It’s in the woods outside a town about two hours from me thats been buried in a floodplain that’s been off the grid since 2009.
-
-That reminded me, Mitch used to call it "the dead feed." He joked that the place still hummed, even with the breakers off.
-
-I’m heading there tomorrow night.
-
-If I find anything—if I find Mitch—I’ll update you all. If I don’t... well, the signal probably will.
-
-And if any of you are tuning into 14225 kHz at 2:37 a.m., please let me know what you hear.
-
-Especially if it’s me.
-
-Wish me luck. Hopefully I can update soon. Again, thank you to everyone involved!
+I woke up with a sore throat, my breaths shallow. I didn't have the energy to even get out of bed. I checked my watch. 14:44. A notification told me I had reached my target steps for the day. I had a text from my housemate to tell me he thinks I should move out as he doesn't feel comfortable living with me anymore. I'm at a loss as to what is going on and I don't know where to go.
