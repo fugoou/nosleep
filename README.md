@@ -1,307 +1,218 @@
-# The flowers outside eat people
+# For 13 years, I’ve regularly checked the satellite images of a disturbing house on Google Maps.
+I won’t tell you where to look.
 
-I am writing this so people stay away. Please keep away from the abandoned white house with the beautiful garden. 
+Unless you want something terrifying to look back at you.
 
+When I first spotted the house in 2012, however, it wasn’t disturbing—it was curious, like me. I don’t remember why I was absent-mindedly scrolling across that British village, sparsely populated and near-nondescript.
 
-If you make the mistake of finding this place and entering, you might not be as lucky as I was. 
+What I *do* remember is the reason I stopped on a particular garden behind a detached house, which stood adjacent to a few vast acres of farmland.
 
+A long, T-shaped shadow was painting the lawn.
 
-The bunch of us are homeless vagrants, hobos, whatever you'd like to call us. We drift without a destination in sight. It's a hard lifestyle, but everyone has their reasons for why they end up like this.
+It looked, to my eyes, like an oversized scarecrow.
 
+For the sake of visibility, most satellite images are snapped when the sun is at its highest, meaning shadows are at their shortest. You’ll rarely see people walking out and about, and even if you do, their shades won’t give them away. It couldn’t have been a person standing with arms outstretched.
 
-We're a group of six: Dawg, an on-and-off drug addict; Tim, a military vet; Emma, a red-haired runaway who ran from home when she was 17; Dean and Sarah, a couple that have been together for 10 years; and myself.
+Then again, something about my scarecrow hypothesis didn’t sit well either.
 
+In any case, I was a teenager at the time, and my interests were fickle. I forgot about the whole thing for years. But in 2016, my friend and I were talking about the many unanswered internet mysteries floating around, and I recalled that very personal mystery of my own from four years later.
 
-I got kicked out of my home for laziness and lack of motivation at 18, and I had it rough until I met this group.
+I showed my friend the house on Google Maps, and it was even curiouser than the first time.
 
+There were *two* T-shaped shades. The original was as long as ever, and the new one was half the height of the first.
 
-Our lineup is pretty consistent, but sometimes we get other people that tag along for a while but disappear in the mornings, never to be seen again.
+“Very odd shadows,” Oliver admitted. “And it’s just a residential house, not part of the nearby farmland, so why would the homeowner need scarecrows?”
 
+I don’t remember how I responded. The conversation took a detour into something else, thanks to the liquor incapacitating my thought processes.
 
-We found this house. Its paint was cracked with time, and its windows were very dirty, but overall it looked nice for being abandoned. 
+It wasn’t until 2019 that my friend brought up the intriguing house again, so we Googled it once more.
 
+And, again, the garden had changed; the second shadow had grown to the height of the first shadow.
 
-"Ooh, she's pretty! We can get a good night's rest here," Dawg exclaimed. 
+Something about the oddness of it all left me, for the first time in seven years, quite afraid. I saw in his wide eyes that Oliver felt the same; he quickly played off his discomfort, but I noted his momentary lapse of cool-headedness—noted the hesitation which had preceded his stilted, unnatural laugh.
 
+I just didn’t quite understand why we were both so afraid of two shadows.
 
-He approached the house, and we immediately looked out for cops, but we were very far out on the outskirts of town, so the night was exceedingly isolated. 
+“The baby scarecrow is all grown up,” he said.
 
+I didn’t respond.
 
-Dawg whistled to us with his bucked teeth; he was very good at picking locks. We ran into the house. 
+Thirty seconds later, Oliver held up his phone, displaying Google Maps, and said, “52 minutes.”
 
+I clocked the blue line dotting a route from his apartment to the countryside house, nearly an hour away, and I raised an eyebrow. “You’re not serious.”
 
-I whispered to him, "That's the fastest lock you've picked, old man. Good job!" 
+“I am,” he insisted. “We’ve been talking about this house for years. Don’t you want to know what’s in that back garden?”
 
+I shook my head. “Not anymore. There’s something… *off* about that image, Oliver.”
 
-Dawg shook his head. "I ain't done nothing this time, boy; the door was already open." 
+He groaned. “Oh, come on, Jamie. I know it’s left an unscratched itch in your brain. I know *you*.”
 
+“We’re not going to drive across the country to spy on somebody’s garden,” I said.
 
-Sarah piped up, "We're in luck today." It lured us in; we just didn't know at that moment. 
+“Well, I am, and I’d love your company,” Oliver replied, shrugging. “There’s only so much a bird’s eye view reveals, and Street View won’t let us peek over those obnoxiously tall hedges. We need to see the place in person.”
 
+I feel as though I may have stepped out of my body for an hour or so. Let someone else take the reins. For I only realised that I’d been coaxed into accompany my friend as his car rolled to a stop outside that famous house from Google Maps—no longer seen as a flat roof and garden from a bird’s eye view, but as a three-dimensional, horribly real structure.
 
-We decided to explore some, trying to scavenge for food. Emma had joined me. We didn't find any food, so we started digging in the rooms. 
+The unassuming, red-bricked residence was surrounded by eight-feet-tall hedges, countryside, and silence. There had been other cottages dotted along the winding country lanes, here and there, but they did nothing to cut through the area's oppressive, all-consuming silence.
 
+Something about seeing the property in the flesh left my hairs tingling. Left me ready to wrangle the steering wheel out of Oliver’s grip and take us far away from that tall-walled place.
 
-"Sam, look at this!" Emma called me from a room down the hall. 
+And its hedges prompted an obvious question from my lips. “Unless you’ve brought stilts, how are we going to peek into this garden?”
 
+Oliver smiled as he opened the driver’s door, so I followed him to the boot of the car; he’d always been more of a show-to-tell bloke.
 
-I walked into what looked like an art studio. The thick smell of paint still hung in the stale air even after its years of neglect. 
+Inside the car’s boot was a drone.
 
+*Please, no*, I inwardly groaned.
 
-Emma signaled me over to a stack of canvases. "Look, they're all the same." 
+I hated the thought of snooping on a stranger’s property with an airborne camera.
 
+Then again, scaling the fence and trespassing would’ve been worse, so I nodded my head, signalling that I’d go along with Oliver’s harebrained plan.
 
-The canvases portrayed a woman surrounded by flowers. It was charming how the colors danced with the lady on the painting, but it was bizarre how they were all exact replicas, robotically made to be the same. 
+He quickly took the drone up into the sky, and we watched the live feed on his tablet controller as the white, bladed, plastic insect sailed loudly above the house, rotors blurring against the sky. Oliver took the device over the roof tiles, and we both held our breath as the garden came into view.
 
+Then we exhaled in harsh, painful gasps of shock at the revealed casters of the long shadows I had seen in photos for seven years.
 
-"Let's go; there is nothing here for us." 
+Not scarecrows at all.
 
+Two humans were tied with thick, well-knotted rope around their wrists and legs to large, wooden crosses—perhaps, as much as the thought horrified me, *crucifixes*.
 
-We joined Tim and Dawg, who were drinking water. They also didn't find anything; that place was barren other than the weird paintings we had found. 
+My friend and I did not scream, but instead fell very silent. Very still. There is no trauma quite like shock. No horror quite like being frozen to the spot, unable to think.
 
+Unable to run.
 
-Dean and Sarah called us from the back of the house. We went outside to be embraced by the view of a sea of flowers, colors varying from purples to yellows and blues.
+And the terror of what we were seeing would only worsen as my friend decided, with unsteady fingers, to fly the drone downwards, taking it closer to the two bound people in the garden.
 
+One was an adolescent boy, wriggling weakly in restraints as he eyes fixed on the drone filming him from above. He wore a white tee with five letters torn through its fabric—torn through to the flesh, creating blood-stained letters on his torso:
 
-The aroma the flowers emitted was deliciously intoxicating; the moonlight illuminated the delicate petals. 
+*SPAWN*
 
+“Oh, God…” I moaned in terror, slumping against the car with teary eyes on Oliver’s tablet screen. “We have to call someone!”
 
-"Let's sleep out here tonight," I said. 
+On the original cross, which I’d seen nine years earlier, was a woman who barely looked like a woman at all. Her arms and legs, poking out of holes in dungarees, were nothing more than *bundles of straw.*
 
+Oliver and I finally broke free of our frozen states, beginning to wretch as we realised that the captive woman was very much alive, but very much limbless, save for upper arms around which ropes were tightly wrapped.
 
-Everyone was still in awe, but Dean answered, "Good idea; this beats the hardwood floor." 
+Cut through both her clothing and the skin beneath, in much the same way as the squirming boy beside her, was another blood-written word:
 
+*WHORE*
 
-He layed down among the flowers, and Sarah knelt beside him. We all proceeded as well; our bodies relaxed to the soft ground. We were used to concrete and homeless shelter floors, so it felt like paradise.
+Oliver opened his lips, managing only to hiss out a whispery, wordless puff.
 
+Before he managed to try again, thunder cracked the air, followed by the live feed cutting out and the sight of the drone plummeting past the far side of the house, landing in the garden.
 
-I looked at the stars; the astral bodies dazzled me. My eyelids got heavy. That was the last time I was truly at peace.
+That thunderous sound was one only heard in the true boonies of England.
 
+*A gunshot.*
 
-I woke up to someone shoving me violently. 
+And moments later, my eyes caught the silhouette of a broad, bulky man behind the paper-thin curtains of the house’s upstairs window.
 
+The drapes parted, then out peeked a double-barrelled instrument and a hand reaching for the window’s latch.
 
-"Wake up, Sam! Wake up!" It was Tim; his voice sounded desperate. 
+I screamed in fear at Oliver. “*MOVE!*”
 
+As clambered in the car, the sound of plastic squeaking filled my ears. I didn’t have to look up to know what would be pointing at us from that open window.
 
-I tried to shake off the morning grogginess. "What's wrong?" 
+Oliver floored the accelerator, and I half-expected his side window to suddenly shatter—expected my best friend’s body to collapse in a pool of blood against the steering wheel.
 
+However, there came no gunfire.
 
-"Dean and Sarah are gone, and their stuff is still here."
+We drove away.
 
+“*WHAT THE FUCK!*” Oliver bellowed minutes later—spittle, and tears, and snot flying from his horrified face.
 
-I stood up, looking around; everything seemed off. The flowers looked thicker, and the aroma was stronger, tainted by a metallic tinge. 
+I managed only to sob in response.
 
+My friend pulled into a petrol station twenty minutes later, and whilst I said that we needed to phone the police, he claimed that we should go back to the house first—that we should be brave.
 
-I could hear the group calling their names from within the house. My eyes were drawn to where the couple slept together the previous night. The flowers were especially overgrown in that spot. 
+Oliver was worried that the homeowner had chosen not to follow us because he’d needed to dispose of all evidence. Then my friend suggested that we had a limited window in which to go back and record some evidence of what the man had done.
 
+“You watch too many crime programmes,” I pleaded, panting heavily. “This is the real world, Ollie. In the real world, you see a crime, then you call the police. *That’s how it works!*”
 
-I kneeled down by the area; the smell was overpowering and making me dizzy. I stuck my hands into the abundant foliage, and my hands touched a sticky substance. I recoiled; there was blood on my hands. 
+Anyhow, after much back and forth, my friend managed to dupe me into thinking that he was on board with my plan of simply leaving it to the authorities. But whilst I went into the petrol station to pay for our freshly filled tank, Oliver tore away and left me behind.
 
+I tried to call him numerous times over the following hour or so.
 
-I heard Emma scream; the group had come back outside. 
+Nothing.
 
+So, I rang the police and told them what had happened.
 
-"What the fuck is that?" Tim yelled, his voice cracking at the sight. 
+To give credit where it’s due, the authorities took my claim seriously and searched the homeowner’s property. However, as Oliver had feared, the responding officers found nothing in the stranger’s garden.
 
+No “crucified, straw-stuffed” victims.
 
-I couldn't stop staring at my hands. "I don't know, but we need to get the hell out of here!"
+No carcass of a drone.
 
+No shotgun shell.
 
-We rushed to leave the way we came. When we opened the front door, the front yard was there but surrounded by a wall of flowers. Then, we tried the backyard; we were caged in like animals.
+*Nothing* to validate my tall tale.
 
+The homeowner, a man named Mr Tomlinson, told the police that he had seen neither a drone nor two men outside his property.
 
-Dawg attempted to climb the wall of flowers by grabbing onto the vines that held the flowers. They started growing around him. Tim and I pulled him off before he was overtaken. 
+I showed the police the satellite image on Google Maps, and Mr Tomlinson simply laughed. He said that the image was at least a year out of date—that he’d gotten rid of those “statues” months earlier. Yes, statues. Apparently, this was a sufficient explanation for the police officers.
 
+Obviously, there were plenty of ways to corroborate my story. The police checked the surveillance footage at the petrol station, saw Oliver and I standing by the pumps, then saw him drive away whilst I was in the shop.
 
-"What is going on?" Emma whispered to herself; she was trembling. 
+“See!” I protested.
 
+“We weren’t saying you were lying, Jamie,” one police officer insisted. “We simply need evidence.”
 
-We all were covered in sweat, and everything felt unreal. 
+I pointed at the screen. “There’s your evidence. We drove out here together, and now he’s gone.”
 
+“Look, this was only a few hours ago. The two of you were clearly arguing. It seems like your friend just needs to cool off,” one of the officers suggested.
 
-"Let's just push through the flowers; we can rip them as we go!" Dawg spoke with desperation.
+They promised to look into Oliver’s disappearance once the appropriate amount of time had passed.
 
+Well, 48 hours later, when he still hadn’t shown face, the police took me more seriously. However, days, then weeks, then months went by. No sign of him. And the authorities failed to find any evidence suggesting that Mr Tomlinson had been keeping people captive in his garden. No evidence of prisoners anywhere on his property.
 
-"No! We don't even know if we'll make it through. Something happened to Dean and Sarah, and it could happen to us as well!" Tim answered him with authority. 
+Then came the pandemic, and the world had bigger problems. Nobody believed my story, no matter how many times I talked about the Google Maps image, and the drone, and what the two of us had seen.
 
+Eventually, I researched the area surrounding Mr Tomlinson’s house—an area including surrounding hamlets and farms, all forming a tightly knit community. From news articles, I learnt that a woman and a farmer went missing in 2011, and that got me thinking.
 
-We went back inside the house; confusion and fear were plaguing us, and it got worse once we explored the house thoroughly. 
+So, I managed to infiltrate a Facebook group for the local area, pretending that I’d bought a property in the area. They let me join. You wouldn’t believe the things to be learnt from a private Facebook group—that’s where the village gossip lives in the 2020s.
 
+I learnt that this local farmer had been a widow for three years before finally meeting someone new in 2010. Someone from the next county over. Plenty of folk didn’t like this, as they’d adored his wife. And “to make it worse”, as one Facebook user commented, this new woman was “an out-of-towner”.
 
-We rummaged through the house trying to find a way out; all we found was a basement door. The basement was ravaged by the fragrance of the flowers. 
+I shared this information with the investigating police officers. They were aware of the missing persons cases, obviously, but that was about all I got out of them. They stone-walled me, much as they had with Oliver.
 
+And that left me with a gnawing feeling in my gut. Given that they lived in the area, I started to fear that they might be part of this tightly knit community too. Started to fear that they weren’t much fussed about digging too deeply into the area’s disappearances.
 
-We walked down the creaky staircase of the basement; sunlight leaked through the basement windows, showing us how big the subterranean room was. 
+Started to fear that they might even be culpable.
 
+Of course, many things didn’t add up. Oliver and I had seen a woman and a boy in that garden—not a woman and a *man*. Still, there had to be something to this coincidence. I was certain of it. For a little while, I even considered breaking lockdown rules and returning to Mr Tomlinson’s property. Doing my own investigation.
 
-Halfway down the stairs, we saw it: a tall statue of a woman, just like the paintings upstairs. It was covered in the flowers from the backyard, all fresh and blooming with life. 
+But then came, in 2020, a series of haunting notes through my letterbox:
 
+*I watch too.*
 
-The anthophilic statue was imposing itself because in front of it were dozens of canvas stands. Some of the canvases were blank, and others were fully painted, all of them facing the statue. 
+*Nobody will ever, ever, ever, ever find them.*
 
+*Don’t come back. You’ll come fourth.*
 
-The sick bastards who lived here before worshipped the flowers. We left the basement wordlessly. We were dealing with the lucid fact that we were trapped, and there wasn't any apparent way to escape.
+I became an agoraphobe—became too terrified to go looking for Oliver. I would’ve broken lockdown rules for my old friend in a *heartbeat*, but the possibility of meeting Mr Tomlinson again—the haunting man who’d nearly killed us from his window—was a nightmare too great to bear.
 
+Call me a coward if you must, but ask yourself what you would do in such a situation.
 
-The incoming night filled us with dread. We were low on food from the start; we were hungry and dead on our feet. 
+Every day, I checked my windows, expecting to see that stranger watching me from the driveway or the back garden. I have no idea how he found out where I lived.
 
+In early 2023, just as my phobia of the outdoors showed signs of somewhat abating, I thought about a particular word in that third and final note.
 
-It did not help that the damn aroma was so strong. Even with the doors closed, it penetrated through as if it were excited to have us here. 
+*Fourth.*
 
+I had previously thought it to be a misspelling. I assumed Mr Tomlinson had intended to write:
 
-Dawg offered the last Snickers bar to Emma; she protested against the gesture. 
+*You’ll come forth*.
 
+But a new possibility popped into my head.
 
-"You need it more. I can handle the hunger for much longer." 
+When I returned to Google Maps once again, the last vestige of hope abandoned my body, and dread took its place.
 
+In the latest satellite image of Mr Tomlinson’s house, *three* T-shaped shadows painted the grass.
 
-"It's all right; I have lived off weird stuff, and those flowers don't look too bad,"
-Dawg answered proudly. 
+I know who the third must be.
 
+But I’m still, two years later, too frightened to return and see for myself.
 
-"You are not really thinking about eating those flowers, are you?" Tim said incredulously. 
+Too frightened that I’ll become the fourth shadow in the garden.
 
-
-Dawg smiled at him crookedly. "You know it," 
-
-
-I spoke up before Tim yelled at him. "Dawg, that's a terrible idea. We don't know what these things truly are." 
-
-
-Tim and Dawg had a tendency to argue like an old divorced couple; we always had to intervene. 
-
-
-"We've had to stop you from eating rat poison food, you old coot," Tim said. He had calmed down a bit. 
-
-
-Emma giggled. "He does have a strong stomach." 
-
-
-The banter quelled our fear, but what happened that night returned us to our insane reality. 
-
-
-Dawg mumbled, "Fine," and distracted himself with his backpack. 
-
-
-Then the night arrived. We had decided that at least one of us had to stay awake to keep watch. We took turns. During my watch, I noticed how still the night was: no crickets, no birds, just dead unadulterated silence.
-
-
-It was Dawg's turn to keep watch. I woke him up; he was drowsy but conscious enough to keep lookout. 
-
-
-Laying down, I saw Tim's eyes gleaming; he was keeping an eye on Dawg. I didn't blame him; I would have as well, knowing what was going to happen. I was awakened by the sound of Tim's angry bellow. 
-
-
-"God damn it, Dawg!" 
-
-
-I sat up immediately. "What's going on?" 
-
-
-"Dawg is outside." 
-
-
-We found Dawg standing in the middle of the yard, facing away from us, staring up at the moon. The flowers were starting to crawl up his pant leg. 
-
-
-"Dawg, what the fuck are you doing? Get your ass back over here!" we yelled at him. 
-
-
-He didn't utter a single word; he just turned to us and we realized flowers were growing out of his eyes and mouth. 
-
-
-The vines were curling from within him; they were coming out of his pores and orifices, entangling throughout his skin like stitches. Multiple flowers were protruding from his mouth; he was being suffocated by the blossoms. 
-
-
-The predacious flower buds bloomed at an unnatural pace. Emma and I ran towards him. The flowers were starting to pull him down. 
-
-
-By the time we got to him, only the top of his head was visible. 
-
-
-"No, no, no!" we said urgently, but our efforts were fruitless. 
-
-
-Dawg was devoured by the ground. Then a spring of flower miasma mixed with the pungent smell of blood invaded the air around us. Red pollen peppered our faces, mixing itself with our tears; we couldn't save him. 
-
-
-He was gone. 
-
-
-Back inside the house, Emma was crying incessantly. My body felt numb; warm, red-tinted tears dripped from my eyes. Dawg's flower-ridden face was engraved in my mind. Dawg was the closest thing we had to a father. 
-
-
-"I fell asleep! Damn it! I knew he was going out there. I could have stopped him," Tim said defeated. 
-
-
-The silence ate at us; no one slept after that. We just stared at each other while we listened to the silent cry of ecstasy the flowers were releasing after consuming Dawg's flesh.
-
-
-"Let's burn it," Tim's rough voice killed the morning reflection. "It's the only way I can think of getting out."
-
-
-The idea of burning that place down was more than a pleasant thought; it was a desire. The need to make sense of my friends' deaths conceptualized the image of this place being razed by hungry flames in my desolate mind. 
-
-
-We put the plan into action, scrounging the house for the materials we needed to perform the act of arson that would aid us in our release. 
-
-
-We stacked the flowery canvases in the front yard as our fuel. We had some leftover lighter fluid; all we needed was a match or a lighter to start the fire. 
-
-
-Emma nor I were smokers; Tim was, but Vietnam messed his lungs up, so he quit. 
-
-
-"Agent Orange did a number on my lungs. I got lucky; I was one of the few who didn't get lung cancer," he told me long ago.
-
-
-Only Dawg's backpack was left; we had found what we required how poetic. 
-
-
-"Okay, I'm going to set the flowers ablaze while you two run to climb the wall as fast as possible," Tim whispered. 
-
-
-"What about you?" Emma asked, worried. 
-
-
-"I will catch up," he said firmly, leaving no room for argument. 
-
-
-We nodded, our hearts beating excessively in anticipation. Tim held the matches poised, ready; he watched us as we moved into position. 
-
-
-The disgusting pollen of the carnivorous flowers was now visible in the air, red and spreading. When we were inches from the wall of flowers, Tim yelled, 
-
-
-"Now!" 
-
-
-We sprinted to climb. The overconfident flowers had ignored us, like a cat playing with its prey; it was caught off guard by our retaliation. 
-
-
-The flowers pulled at our shoes. We both lost our shoes climbing. 
-
-
-"Climb!" I yelled at Emma. 
-
-
-Because I heard a wretched sound that tore at the sky above, and from the corner of my eye, I saw Tim's arm flung like a rag doll to the ground. 
-
-
-I was almost at the top when I turned to check on Emma. I wish I had not. Emma was being dragged down; the vines were piercing through her skin, undoing her limbs. It twisted her arms and legs until her joints popped out; then it beheaded her. She managed a strangled cry before she lost her head. 
-
-
-I scaled the final stretch eagerly and jumped off that tall wall of flora. My landing was not majestic; the pain was searing. The concrete welcomed my body with a crunch, but I ignored it all.
-
-
-I crawled away; I writhed my way far from those voracious vines. I have recovered now body-wise, but my mind is broken. 
-
-
-I moved away from that town and got a job. I managed to rent a small apartment. The streets don't feel right anymore. 
-
-
-All I have left are my memories, that are now buried under the maw of those flowers. That place uses death to give birth to beauty, a deadly enticing beauty. I escaped, but it feels as if I have been digested there. I'm still rotting. 
-
-
-Writing this is the closest thing to a moment of respite that I've had in a while, so please heed my warning: stay away.
+More straw than [man](https://www.reddit.com/r/dominiceagle).
