@@ -1,218 +1,180 @@
-# For 13 years, I’ve regularly checked the satellite images of a disturbing house on Google Maps.
-I won’t tell you where to look.
+# I made a wish to never lose her. Now she never leaves.
+The box turned up on a Thursday.
 
-Unless you want something terrifying to look back at you.
+No knock. No delivery van. Just… there. Sitting quietly on the front step like it had always been there, or like it had been waiting long before this house even existed.
 
-When I first spotted the house in 2012, however, it wasn’t disturbing—it was curious, like me. I don’t remember why I was absent-mindedly scrolling across that British village, sparsely populated and near-nondescript.
+It was black. Seamless. Matte. No tape, no logo, no crease to suggest it had ever been opened or closed. Claire picked it up first. I remember how her hands hesitated, just slightly, like she didn’t want to touch it at all.
 
-What I *do* remember is the reason I stopped on a particular garden behind a detached house, which stood adjacent to a few vast acres of farmland.
+It was heavier than it should’ve been. Not just physically—something about it dragged the moment down. Made the kitchen lights feel dimmer. Made the air feel… stale.
 
-A long, T-shaped shadow was painting the lawn.
+There was a folded card tucked just beneath the bottom of the cube. No handwriting on the front. Inside, five words:
 
-It looked, to my eyes, like an oversized scarecrow.
+***“One wish. No take-backs.”***
 
-For the sake of visibility, most satellite images are snapped when the sun is at its highest, meaning shadows are at their shortest. You’ll rarely see people walking out and about, and even if you do, their shades won’t give them away. It couldn’t have been a person standing with arms outstretched.
+I laughed. Claire didn’t.
 
-Then again, something about my scarecrow hypothesis didn’t sit well either.
+*“You think it’s cursed?”* I asked, trying to keep it light.
 
-In any case, I was a teenager at the time, and my interests were fickle. I forgot about the whole thing for years. But in 2016, my friend and I were talking about the many unanswered internet mysteries floating around, and I recalled that very personal mystery of my own from four years later.
+She forced a grin and said, *“What are you gonna wish for? A million dollars? A flamethrower?”*
 
-I showed my friend the house on Google Maps, and it was even curiouser than the first time.
+*“I’ve already got everything I need,”* I said, looking at her like an idiot in a perfume ad.
 
-There were *two* T-shaped shades. The original was as long as ever, and the new one was half the height of the first.
+She rolled her eyes and left it on the counter.
 
-“Very odd shadows,” Oliver admitted. “And it’s just a residential house, not part of the nearby farmland, so why would the homeowner need scarecrows?”
+••
 
-I don’t remember how I responded. The conversation took a detour into something else, thanks to the liquor incapacitating my thought processes.
+We ignored it until Saturday.
 
-It wasn’t until 2019 that my friend brought up the intriguing house again, so we Googled it once more.
+Hangover dragging me down. The room still smelled faintly of burnt toast and the old garlic bread we forgot in the oven. Claire opened the box. I just watched.
 
-And, again, the garden had changed; the second shadow had grown to the height of the first shadow.
+Inside: a single red button, sunk into black velvet. It looked plastic, cheap, like something off a game show set. But even from where I stood, I could tell it didn’t belong. It hummed without sound. It felt… patient.
 
-Something about the oddness of it all left me, for the first time in seven years, quite afraid. I saw in his wide eyes that Oliver felt the same; he quickly played off his discomfort, but I noted his momentary lapse of cool-headedness—noted the hesitation which had preceded his stilted, unnatural laugh.
+Claire ran her thumb around the edge of the velvet and stopped.
 
-I just didn’t quite understand why we were both so afraid of two shadows.
+*“If you could wish for anything,”* I said, *“what would it be?”*
 
-“The baby scarecrow is all grown up,” he said.
+She didn’t even blink. *“To never lose this.”*
 
-I didn’t respond.
+So I pressed it.
 
-Thirty seconds later, Oliver held up his phone, displaying Google Maps, and said, “52 minutes.”
+••
 
-I clocked the blue line dotting a route from his apartment to the countryside house, nearly an hour away, and I raised an eyebrow. “You’re not serious.”
+It made a small click. That was it. No lights. No spark. No trembling floor.
 
-“I am,” he insisted. “We’ve been talking about this house for years. Don’t you want to know what’s in that back garden?”
+*Just a click.*
 
-I shook my head. “Not anymore. There’s something… *off* about that image, Oliver.”
+We laughed. We made pancakes. The world continued spinning, but I swear something behind it… tilted.
 
-He groaned. “Oh, come on, Jamie. I know it’s left an unscratched itch in your brain. I know *you*.”
+••
 
-“We’re not going to drive across the country to spy on somebody’s garden,” I said.
+The crash happened on Monday.
 
-“Well, I am, and I’d love your company,” Oliver replied, shrugging. “There’s only so much a bird’s eye view reveals, and Street View won’t let us peek over those obnoxiously tall hedges. We need to see the place in person.”
+Wet roads. A jackknifed lorry. Her car folded in half. The pictures didn’t look like wreckage—they looked like something that had been chewed.
 
-I feel as though I may have stepped out of my body for an hour or so. Let someone else take the reins. For I only realised that I’d been coaxed into accompany my friend as his car rolled to a stop outside that famous house from Google Maps—no longer seen as a flat roof and garden from a bird’s eye view, but as a three-dimensional, horribly real structure.
+They told me it was quick. No pain.
 
-The unassuming, red-bricked residence was surrounded by eight-feet-tall hedges, countryside, and silence. There had been other cottages dotted along the winding country lanes, here and there, but they did nothing to cut through the area's oppressive, all-consuming silence.
+But when I saw her body, I knew they were lying. Some expressions don’t leave a face even after death. Hers still held fear. And surprise.
 
-Something about seeing the property in the flesh left my hairs tingling. Left me ready to wrangle the steering wheel out of Oliver’s grip and take us far away from that tall-walled place.
+••
 
-And its hedges prompted an obvious question from my lips. “Unless you’ve brought stilts, how are we going to peek into this garden?”
+I went home that night and sat in the dark.
 
-Oliver smiled as he opened the driver’s door, so I followed him to the boot of the car; he’d always been more of a show-to-tell bloke.
+I couldn’t cry. It wasn’t grief. It was something deeper—something bottomless. The kind of silence that feels like it’s waiting for you to scream.
 
-Inside the car’s boot was a drone.
+Then the stairs creaked.
 
-*Please, no*, I inwardly groaned.
+*Just once.*
 
-I hated the thought of snooping on a stranger’s property with an airborne camera.
+Third step from the bottom. The one that always whined when Claire walked barefoot in the mornings.
 
-Then again, scaling the fence and trespassing would’ve been worse, so I nodded my head, signalling that I’d go along with Oliver’s harebrained plan.
+*I held my breath.*
 
-He quickly took the drone up into the sky, and we watched the live feed on his tablet controller as the white, bladed, plastic insect sailed loudly above the house, rotors blurring against the sky. Oliver took the device over the roof tiles, and we both held our breath as the garden came into view.
+And then I heard it again.
 
-Then we exhaled in harsh, painful gasps of shock at the revealed casters of the long shadows I had seen in photos for seven years.
+••
 
-Not scarecrows at all.
+She was in the kitchen. On the floor.
 
-Two humans were tied with thick, well-knotted rope around their wrists and legs to large, wooden crosses—perhaps, as much as the thought horrified me, *crucifixes*.
+Laid out like a doll someone had forgotten to pose properly. Her limbs were twisted wrong, one leg folded underneath her hip, an arm pinned under her back. Her clothes were soaked. Her face slack.
 
-My friend and I did not scream, but instead fell very silent. Very still. There is no trauma quite like shock. No horror quite like being frozen to the spot, unable to think.
+Her eyes were open.
 
-Unable to run.
+She didn’t move. Not while I stood there.
 
-And the terror of what we were seeing would only worsen as my friend decided, with unsteady fingers, to fly the drone downwards, taking it closer to the two bound people in the garden.
+But when I turned to leave the room and looked back—she was sitting up.
 
-One was an adolescent boy, wriggling weakly in restraints as he eyes fixed on the drone filming him from above. He wore a white tee with five letters torn through its fabric—torn through to the flesh, creating blood-stained letters on his torso:
+Not breathing. Not blinking.
 
-*SPAWN*
+*Just watching me.*
 
-“Oh, God…” I moaned in terror, slumping against the car with teary eyes on Oliver’s tablet screen. “We have to call someone!”
+••
 
-On the original cross, which I’d seen nine years earlier, was a woman who barely looked like a woman at all. Her arms and legs, poking out of holes in dungarees, were nothing more than *bundles of straw.*
+She never moved when I watched. Not once.
 
-Oliver and I finally broke free of our frozen states, beginning to wretch as we realised that the captive woman was very much alive, but very much limbless, save for upper arms around which ropes were tightly wrapped.
+But every time I turned a corner, left a room, closed my eyes—I’d find her somewhere else. Upright. Unblinking. Always staring.
 
-Cut through both her clothing and the skin beneath, in much the same way as the squirming boy beside her, was another blood-written word:
+She’d be in the hallway. At the edge of the bed. At the bottom of the stairs. One time, sitting on the kitchen counter like she’d just climbed up there.
 
-*WHORE*
+Her body still broken. Her skin beginning to dry and crack.
 
-Oliver opened his lips, managing only to hiss out a whispery, wordless puff.
+Her expression never changed.
 
-Before he managed to try again, thunder cracked the air, followed by the live feed cutting out and the sight of the drone plummeting past the far side of the house, landing in the garden.
+Not sad. Not angry.
 
-That thunderous sound was one only heard in the true boonies of England.
+*Just watching.*
 
-*A gunshot.*
+••
 
-And moments later, my eyes caught the silhouette of a broad, bulky man behind the paper-thin curtains of the house’s upstairs window.
+I tried to bury her again.
 
-The drapes parted, then out peeked a double-barrelled instrument and a hand reaching for the window’s latch.
+I drove two hours into the countryside and dug until my hands bled. The ground felt wrong—too soft, too eager. When I left, I thought it was over.
 
-I screamed in fear at Oliver. “*MOVE!*”
+She was back that night.
 
-As clambered in the car, the sound of plastic squeaking filled my ears. I didn’t have to look up to know what would be pointing at us from that open window.
+On the couch. Folded into the same impossible shape.
 
-Oliver floored the accelerator, and I half-expected his side window to suddenly shatter—expected my best friend’s body to collapse in a pool of blood against the steering wheel.
+I didn’t even check the front door. I knew it hadn’t opened.
 
-However, there came no gunfire.
+••
 
-We drove away.
+Each day she decayed more. Skin like paper. Eyes dulling. Teeth exposed now where her lips had dried and curled back. But she still turned up. Still moved when I didn’t see.
 
-“*WHAT THE FUCK!*” Oliver bellowed minutes later—spittle, and tears, and snot flying from his horrified face.
+I stopped sleeping. Stopped eating. I couldn’t take my eyes off her for more than a few seconds.
 
-I managed only to sob in response.
+Because she’d be closer.
 
-My friend pulled into a petrol station twenty minutes later, and whilst I said that we needed to phone the police, he claimed that we should go back to the house first—that we should be brave.
+••
 
-Oliver was worried that the homeowner had chosen not to follow us because he’d needed to dispose of all evidence. Then my friend suggested that we had a limited window in which to go back and record some evidence of what the man had done.
+One morning, I found her standing at the foot of the bed. Same position. Same stare.
 
-“You watch too many crime programmes,” I pleaded, panting heavily. “This is the real world, Ollie. In the real world, you see a crime, then you call the police. *That’s how it works!*”
+I pulled the box from the trash and begged. Screamed at it. Slammed it against the wall until the casing cracked and something inside buzzed like an insect trapped in resin.
 
-Anyhow, after much back and forth, my friend managed to dupe me into thinking that he was on board with my plan of simply leaving it to the authorities. But whilst I went into the petrol station to pay for our freshly filled tank, Oliver tore away and left me behind.
+Nothing changed.
 
-I tried to call him numerous times over the following hour or so.
+The note was still true.
 
-Nothing.
+***One wish. No take-backs.***
 
-So, I rang the police and told them what had happened.
+••
 
-To give credit where it’s due, the authorities took my claim seriously and searched the homeowner’s property. However, as Oliver had feared, the responding officers found nothing in the stranger’s garden.
+Last night, I woke up to her on the floor, right next to the bed.
 
-No “crucified, straw-stuffed” victims.
+Inches from my face.
 
-No carcass of a drone.
+One arm bent wrong beneath her. One leg twisted like a broken puppet. Her head turned toward me, resting on her shoulder at an angle a human neck should never reach.
 
-No shotgun shell.
+Her skin was the color of parchment. Her eyes were dull marbles sunk too deep in her face. Her lips had split, and blood had dried across her chin like black paint.
 
-*Nothing* to validate my tall tale.
+And she didn’t move.
 
-The homeowner, a man named Mr Tomlinson, told the police that he had seen neither a drone nor two men outside his property.
+I watched her for what felt like hours. Long enough for the sun to begin hinting at the horizon.
 
-I showed the police the satellite image on Google Maps, and Mr Tomlinson simply laughed. He said that the image was at least a year out of date—that he’d gotten rid of those “statues” months earlier. Yes, statues. Apparently, this was a sufficient explanation for the police officers.
+*And she never blinked.*
 
-Obviously, there were plenty of ways to corroborate my story. The police checked the surveillance footage at the petrol station, saw Oliver and I standing by the pumps, then saw him drive away whilst I was in the shop.
+••
 
-“See!” I protested.
+I know what I wished for. I see that now.
 
-“We weren’t saying you were lying, Jamie,” one police officer insisted. “We simply need evidence.”
+I didn’t wish for money or fame or power.
 
-I pointed at the screen. “There’s your evidence. We drove out here together, and now he’s gone.”
+I wished to keep something.
 
-“Look, this was only a few hours ago. The two of you were clearly arguing. It seems like your friend just needs to cool off,” one of the officers suggested.
+And I got exactly what I asked for.
 
-They promised to look into Oliver’s disappearance once the appropriate amount of time had passed.
+What remains is not Claire.
 
-Well, 48 hours later, when he still hadn’t shown face, the police took me more seriously. However, days, then weeks, then months went by. No sign of him. And the authorities failed to find any evidence suggesting that Mr Tomlinson had been keeping people captive in his garden. No evidence of prisoners anywhere on his property.
+*Not anymore.*
 
-Then came the pandemic, and the world had bigger problems. Nobody believed my story, no matter how many times I talked about the Google Maps image, and the drone, and what the two of us had seen.
+It’s just the shape of her.
 
-Eventually, I researched the area surrounding Mr Tomlinson’s house—an area including surrounding hamlets and farms, all forming a tightly knit community. From news articles, I learnt that a woman and a farmer went missing in 2011, and that got me thinking.
+The memory of her body.
 
-So, I managed to infiltrate a Facebook group for the local area, pretending that I’d bought a property in the area. They let me join. You wouldn’t believe the things to be learnt from a private Facebook group—that’s where the village gossip lives in the 2020s.
+A constant, rotting echo of what I refused to let go.
 
-I learnt that this local farmer had been a widow for three years before finally meeting someone new in 2010. Someone from the next county over. Plenty of folk didn’t like this, as they’d adored his wife. And “to make it worse”, as one Facebook user commented, this new woman was “an out-of-towner”.
+She’s still here.
 
-I shared this information with the investigating police officers. They were aware of the missing persons cases, obviously, but that was about all I got out of them. They stone-walled me, much as they had with Oliver.
+And she always will be.
 
-And that left me with a gnawing feeling in my gut. Given that they lived in the area, I started to fear that they might be part of this tightly knit community too. Started to fear that they weren’t much fussed about digging too deeply into the area’s disappearances.
+Because I couldn’t bear to lose her.
 
-Started to fear that they might even be culpable.
-
-Of course, many things didn’t add up. Oliver and I had seen a woman and a boy in that garden—not a woman and a *man*. Still, there had to be something to this coincidence. I was certain of it. For a little while, I even considered breaking lockdown rules and returning to Mr Tomlinson’s property. Doing my own investigation.
-
-But then came, in 2020, a series of haunting notes through my letterbox:
-
-*I watch too.*
-
-*Nobody will ever, ever, ever, ever find them.*
-
-*Don’t come back. You’ll come fourth.*
-
-I became an agoraphobe—became too terrified to go looking for Oliver. I would’ve broken lockdown rules for my old friend in a *heartbeat*, but the possibility of meeting Mr Tomlinson again—the haunting man who’d nearly killed us from his window—was a nightmare too great to bear.
-
-Call me a coward if you must, but ask yourself what you would do in such a situation.
-
-Every day, I checked my windows, expecting to see that stranger watching me from the driveway or the back garden. I have no idea how he found out where I lived.
-
-In early 2023, just as my phobia of the outdoors showed signs of somewhat abating, I thought about a particular word in that third and final note.
-
-*Fourth.*
-
-I had previously thought it to be a misspelling. I assumed Mr Tomlinson had intended to write:
-
-*You’ll come forth*.
-
-But a new possibility popped into my head.
-
-When I returned to Google Maps once again, the last vestige of hope abandoned my body, and dread took its place.
-
-In the latest satellite image of Mr Tomlinson’s house, *three* T-shaped shadows painted the grass.
-
-I know who the third must be.
-
-But I’m still, two years later, too frightened to return and see for myself.
-
-Too frightened that I’ll become the fourth shadow in the garden.
-
-More straw than [man](https://www.reddit.com/r/dominiceagle).
+***And now I never will.***
