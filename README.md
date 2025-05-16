@@ -1,148 +1,338 @@
-# I’ve been stuck driving in an endless highway tunnel for 32 hours (part 2)
-[Part 1](https://www.reddit.com/r/nosleep/comments/1jzg5i6/ive_been_stuck_driving_in_an_endless_highway/)
+# I just learnt that my ‘parents’ kidnapped me to save humanity, and they might have failed.
+[Part I](https://www.reddit.com/r/nosleep/comments/1ka1ig2/i_just_learnt_that_my_parents_kidnapped_me_when_i/) – [Part II](https://www.reddit.com/r/nosleep/comments/1kcchyv/i_just_learnt_that_my_parents_kidnapped_me/) – **Part III (FINAL)**
 
-Hi, I’m still alive. Still in this godforsaken, dreary place. 
+It’s baffling to me that the world keeps turning, oblivious to the hellish week I have just endured.
 
-Thank you to everyone who replied to my post with advice, theories, anything. It’s helping me feel less alone, reading and answering your comments. 
+Oblivious to the fact that we all scarcely survived the end of the world.
 
-One thing that you guys suggested was that Gus may have laced something that I consumed — the snacks, the Red Bulls, the cigarettes — and as scary as that would be, I was praying for that to be the case. I was holding on to hope that I would wake up today somewhere else. That this whole thing would be a hallucination, brought on by some Nebraskan hick’s psychedelics. 
+Oblivious to the fact that it may still end.
 
-It wasn’t. 
+Following the events at the foot of that Parisian apartment, the bloody fragments of Blueman and the shattered cultists inexplicably turned to ash and were brushed upwards by the breeze. That dusty tempest beat against my skin, sticking those specks of people tightly to my fearful, paralysed body—a reminder of what I’d done. A reminder of the evil coursing through my veins.
 
-I fell asleep at like 8 this morning, kept awake all night by gripping fear. I woke up at 4 p.m. with a start, unsure if my terror was from something real or something I dreamed. 
+Something haunting that possessed me.
 
-Honestly, I usually awaken with a start. I have had chronic nightmares for as long as I can remember. I don’t think my trepidation was caused by an outside force. 
+I knew that I should keep moving. Should burn through my meagre funds, travelling as far as I could in any direction, so as to not be found again—so as to become someone other than Charlie. Someone other than Adam: the harbinger of the apocalypse for whom the Old Collective was searching.
 
-Still in the tunnel, feeling the same as I did yesterday. I don’t think I was laced. 
+But I didn’t have the stomach to truly leave it all behind.
 
-Another response I kept seeing on my first post was that turning around was a mistake. If we take what Gus said literally, as many of you are, I have to continue through the tunnel to take me where I “need to go.” 
+I wanted to go home.
 
-Maybe that’s why the tunnel extended, keeping me inside until I turned back around. It wants to trick me. It’s swallowing me like a pill. 
+I felt alone and exposed. Felt stalked, as ever, by eyes only human on the surface.
 
-So, when I woke up today, I turned back around. Facing back through the tunnel, hopefully the correct way. 
+At the age of twenty, having lived and studied as a university student for two years, I had long thought myself to be a grown-up. To be strong and independent. However, facing nightmares beyond myself had unveiled the truth—that I was, beneath it all, still a child.
 
-My car was slowly running out of gas. Less than 1/4 tank. I found a portable charger in my car (thank fuck) that I charged up as I drove. I need as much time with you all as I can get; I need to feel like I’m still connected to civilization. 
+And though I tried, I couldn’t help myself. I reverted back to being a boy desperate for his mother and father.
 
-Every 10-15 miles down the tunnel, I would reach another service sweet spot. A split second of a bar before it disappeared once again. It’s throwing me a bone. 
+So, I did exactly what the Old Collective expected of me. I took a flight home. And I was very nearly lulled into a false sense of security at Beauvais Airport—by the crowds of everyday people, nattering and chattering about trivial things; but triviality was a coddling blanket, as it tricked me back into my old self—the one who didn’t believe in forces higher than ourselves. The one who believed only in the very grounded and very real world we all see with our eyes.
 
-I watched as my gas sensor conspicuously made its way to “E.” I kept driving, past empty, for about 30 mins until my car sputtered and came to a stop in the darkness.
+It must’ve been a trauma response to the terrifying things I had seen and endured in Paris.
 
-I had been driving for about 3 hours. My car stopped near where I had turned around yesterday, I think.
+By the time I landed in Manchester, I was *blindly* eager to see my parents. All thought of danger had fled my mind. All I thought was that they must’ve been worried sick about me for the past few days. That they may well have been home from the hospital already—sitting at home, awaiting my return.
 
-I sat there, unsure of what to do next, even though in my heart and in my mind, I knew. Something I was dreading. I had to start walking. 
+*They didn’t call*, I reminded myself.
 
-This must be what it wants — for me to be exposed, no longer protected by the steel frame of my SUV, no longer able to hide or speed away at a sign of danger. 
+That might’ve been a cause for concern, had I been thinking clearly.
 
-I was avoiding giving the tunnel what it wanted. I was terrified that as soon as I stepped out of my vehicle, I would be swarmed by whatever was running at me yesterday. But I had no other choice. 
+But when the nurses and doctors at the local hospital told me that no-one by the name of my father had been admitted within the past week, I felt a pang of fear. The mental alarm bells startled to toll quietly, clanging in a near-inaudible rhythm.
 
-I packed a bag with the necessary supplies. All of my food and drink, my portable charger, a blanket, some warm clothes, and a journal and pen in case my phone dies before I get out of here — I still want to be able to document my journey. I also grabbed my emergency flashlight and some extra batteries. I even found an old flare in my car’s tool bag, which I took with me. And, of course, my cigarettes and a lighter.
+Still, I tried my damnedest to ignore my mind, screaming at me to *RUN*, and decided, instead, to escalate the matter. I asked to talk to somebody about the ambulance service’s records, as a vehicle had very clearly been dispatched to my street—I’d heard the siren as I fled. They found a record of my mother’s 999 call. Found a member of staff who’d been dispatched to the street. But—
 
-I sat there with my packed bag for a while, building up the courage to open my car door. 
+“Nobody was there,” the paramedic explained. “We knocked on the door, then tried to access the property, and finally called the fire department to assist. But when we searched your house, we found neither your mother nor father. They may well face legal action for the false call, so—”
 
-I took a deep breath, counted down from 10, and on 1, I swung open my door and stepped out onto the road. 
+“It wasn’t a false call,” I interrupted breathlessly. “They should’ve been there… They…”
 
-The wind’s eerie whistling surrounded me once again. I pointed my flashlight all around me. It was cold,  dark, and damp. Liquid pooled at the base of the rock walls. 
+“Weren’t you with them?” asked the paramedic.
 
-There was nothing to do but start walking, so I did. Leaving my precious vehicle behind was heartbreaking; that SUV is the one constant I have in my life right now. 
+I gulped, then lied. “I… went out to the shop when Mum called me.”
 
-I walked and walked. I knew that the last time I got a bar was about 2 miles before my car stopped. That meant in 8 miles or so, I would hit another sweet spot, and that’s where I would rest. It would probably take me about 3 hours of walking. 
+“Then you waited two days to come to the hospital looking for your father?” the paramedic asked, eyes narrowing suspiciously.
 
-My flashlight did hardly anything in the pitch-black. I could see only about 10 feet in front of me, in only a small circle of light. The air felt heavy. It was getting hard to breathe. 
+I shook my head then started backing away, not looking to find myself in any sort of trouble—for all I knew, eyes were watching me. The news of my parents’ disappearance had woken up something in me. Had reminded me of the very present danger encroaching from all sides, suffocating me.
 
-I jumped at every noise: pebbles I had happened to kick bouncing along the ground, water drip-drops, even my own footsteps sometimes. 
+“I have to… find them,” I hoarsely croaked, turning on my heel and quickly striding away before the paramedic could probe any deeper into the odd turn of events.
 
-I was constantly swiveling my light in all directions. Glancing behind me every few seconds, even though I couldn’t see shit. I felt like I was being watched, as cliche as it is.
+I left the building, eyes stinging with a starting set of teardrops; I was moments away from bursting into full-blown bawling. But then I was overcome by a sudden sense of purpose—a sudden idea, to be exact. The Old Collective had my parents, and I knew how to find them. But I would have to face one of my oldest fears.
 
-I walked for about an hour and a half, telling myself I was halfway to my rest point. I just had to keep pushing. 
+I took a long taxi ride to Cheshire, and was dropped off at Styal Prison. An ominous cluster of buildings, in the sense that they appeared more like haunted houses than the wards of a penitentiary. Red-bricked, two-storey buildings with stunted chimneys.
 
-I stopped for a second to re-tie my shoe laces. As I kneeled down, my flashlight fell out of my pocket and rolled to the other side of the tunnel, light aiming behind me. 
+Only the sign gave away that I had stumbled not into a residential street but a prison:
 
-I watched the light as it rolled. The flashlight hit the wall opposite me with a metallic "clink."
+>***Welcome to HMP & YOI Styal***
 
-The beam of light illuminated something pressed against the wall, about 10 feet behind me. 
+>Building Hope
 
-A black shadow stood out against the shiny, grey rock. It looked like the shape of a person, though elongated and wrong, somehow. Someone standing with their face pressed against the wall, arms at their side. 
+>Changing Lives
 
-I inhaled sharply, trying to act as though I didn’t see anything. I didn’t want to acknowledge the shape. We all remember what happened the last time I acknowledged a presence in this tunnel. 
+And the inmate I had come to visit was, as I’m sure you’ve deduced, my old Religious Education teacher: Miss Black.
 
-I quickly finished tying my shoes and ran across the tunnel to grab my flashlight. I picked it up and continued briskly walking, away from the figure, away from the menacing mass that stuck to the rock like moss. 
+The woman who attempted to steal me from the world as a child.
 
-My heart started racing once again, pounding so hard I worried the sound would echo. 
+“Has she had many visitors over the past six years?” I asked.
 
-Was I being followed? And by what?
+“No,” the officer bluntly replied.
 
-I kept moving; it almost felt like I was floating. My legs were getting numb, from the cold and the trek. 
+And that was the end of the conversation.
 
-I made it to my rest point without another incident. I put on a sweater and sat on the ground, my back against the tunnel wall, wrapping myself in my blanket. The bar had appeared like a sign from God and I started reading more of your comments, just to hear from someone.
+The prison officer led me down dimly-lit corridors in one of the smaller buildings. I looked out of the windows, but sunshine did nothing to cut through the gloom of the place.
 
-I guess, eventually, I started to hum. It’s a habit that my mother had tried beating out of me when I was younger, but no amount of pummeling could stop the music in me. It was always random tunes that I couldn’t really place. This time was no different. 
+I had seen many friendly faces in the prison—inmates and officers alike. But this particular man was the first who seemed cold and distant. I had the strangest feeling that it had something to do with the woman he was taking me to visit.
 
-I hadn’t even noticed the melody vibrating in my throat. Not until I heard it, faintly, from my left. Further down the tunnel, the way I had walked from. 
+“Might I ask why we won’t be talking in the visitor’s centre?” I asked politely as the man stopped in front of a particular door, shaky fingers around the door handle.
 
-I stopped my humming, but the tune didn’t cease. It kept repeating, and I grew more restless each time.
+“We bend the rules for her,” he whispered, voice nearly cracking. “It’s better for everyone when she stays in here.”
 
-A panic crept over me. I listened intently, and realized it didn’t even necessarily sound human. It sounded forced, like whatever was repeating my humming had never hummed before.  Crackling, gritty, hoarse.
+As the prison officer unlocked the door, I turned a little pale and barked, “Wait!”
 
-Then more joined in. From both directions. 
+He sighed and turned to face me. “What?”
 
-A distorted choir I couldn’t see was repeating my nonsensical tune over and over. 
+“I…” I started, shivering. “I don’t know about this.”
 
-I started imagining what these pitiful tunnel demons could possibly look like. Did they appear as human, like I thought the shadow was? Or were they more animalistic? Would my death be quick at their hands?
+And the man simply nodded, as if fully understanding. “Do you want me to lock this door? I should. I should lock it, then you should go home and never come back here.”
 
-The humming was converging on me, getting closer and closer. I turned off my flashlight and threw my blanket over my head, curling up into a ball, like a toddler avoiding the monster under their bed. 
+The prison officer extended his free hand towards me, possibly to comfortingly pat me on the shoulder, but I retreated with wide, fearful eyes, remembering what had happened when Blueman’s skin met mine. I had a horrifying flashback of his body overflowing with piping hot blood, moments before his flesh burst completely.
 
-I lay there, with my eyes closed, focusing on my breathing. “In for 6, hold for 6, out for 6.” Just like my therapist taught me. 
+I didn’t want to risk touching another person again—didn’t want to risk even thinking of another person, as I’d somehow fated the cultists to the same ends by merely letting our minds connect.
 
-The ground trembled. The pebbles skittered around me. The wind picked up speed. 
+I realised I had no control of the thing hiding within me.
 
-After about 5 minutes, the humming came to an abrupt halt. Everything quieted, suddenly.
+Or, perhaps more terribly, that thing had all of the control.
 
-A single set of footsteps was approaching me, slowly. 
+I keep thinking that, perhaps, Adam has always been the real child. As far as I know, *I* am the being hitching a ride in a demonic creature.
 
-I was shaking as I heard the figure coming up on me. I remained under my blanket, pressed against the ground and the wall. I scrunched my eyes closed and pictured myself somewhere, anywhere else. 
+Anyhow, the prison officer seemed startled by my fearful, retreating reflex, but he quickly returned his hand to his side.
 
-The footsteps stopped right in front of me. I sensed the figure lean down; I could hear it breathing directly above me. If this was it, this was it. I accepted my fate. 
+“Why?” I whispered, infected by the man’s contagious terror. “Why are you so afraid of her?”
 
-Drops of what I assumed was drool splattered onto the blanket. I heard something lick its lips. 
+He said, “Because bad things happen to people who so much as look at her. Things I don’t know how to explain. Deaths, maims, and other nightmares that she couldn’t have possibly have caused, but she is somehow always to blame—we all feel it, so we all stay away from her.
 
-I held my breath and thought of every horrible thing I had done throughout my life, and how I would never be able to fix it. How I never made amends with so many of the people I had harmed. How my mother probably wouldn’t even notice I was dead, and if she did, she’d probably be relieved. 
+“It’s happened time and time again to inmates and officers; they go back to their cells, or homes, then they suffer horrible fates. And it’ll happen to you too, kid. So, I’ll ask you one more time: do you want me to lock this door?”
 
-Obviously, whatever it was didn’t kill me. It stood there, above me, salivating and clicking its tongue for a long, long time. 
+I shook my head, and the officer offered me a pitying look, then a head nod. He flung the door open and stepped back, shakily motioning for me to step inside. He mumbled something about me hollering for him if necessary, but there was a pleading tone to his voice.
 
-Somehow, I fucking fell asleep. 
+*I beg of you, kid, don’t holler for me; don’t make me go in there with her.*
 
-“WAKE UP.” 
+Miss Black sat on the bottom bunk of her two-person room which, through a series of horrifying supernatural events, she had snagged for herself. Undoubtedly, given the prison officer’s story, nobody would want to share a cell with such a haunting woman.
 
-I was still wrapped in the blanket, clutching my flashlight and my phone. I had been awakened by that harsh whisper-shout that rang in my ears, like when someone screams in a dream and it continues long after you open your eyes. 
+There was nothing comforting about seeing her with greying locks of hair, and tired eyes winged with crow’s feet. Age had not weakened her in my eyes. If anything, it only afforded greater depths of wisdom and nightmarish power. Made her somehow less human in my eyes.
 
-I listened, but I heard nothing more. 
+“Adam…?” Miss Black whispered, meeting my gaze with teary eyes and a jubilant smile. “You came back to me… To us… As foretold.”
 
-I slowly lifted the edge of the blanket and peaked out. My eyes began adjusting to the darkness, and I couldn’t see any ominous shapes in my immediate vicinity. 
+I shuddered in horror at those two final words. I had come there of my own free will—my own volition. I’d been certain of that. But Miss Black made me doubt everything. Instilled me with dread greater than even that of my fourteen-year-old self. I felt lesser than I had on that day, with my schoolmates calling for Mr Alton to save me—
 
-I bit my tongue and turned on my flashlight, slowly lifting the blanket off of myself and shining my light in all directions. Nothing. 
+Because I was alone this time.
 
-Are they toying with me? Maybe they’re like Stephen King’s “IT,” maybe they want me to be afraid before they eat me so I taste better. 
+“Where are my parents?” I wheezed.
 
-Are they even real? I saw that shape in the tunnel, but maybe it was a trick of the light. I heard the humming and I felt that figure looming over me, but maybe it was all in my head. 
+“The defectors?” Miss Black asked. “I have heard stories of them. Heard stories of you. When you were born, we travelled from far and wide, from all corners of the Earth, to see you. But I was not blessed to—”
 
-My mother always told me I was beyond help. That my paranoid tendencies would take over me until they killed me. Maybe that’s all that’s happening now. I keep trying to tell myself that none of this is real, that I’m just going crazy from hunger and exhaustion and cold and isolation.
+“Please,” I begged. “They’re gone, and I need them.”
 
-It's getting harder to convince myself of that, though. Especially now that I notice the dozen-or-so drops of blood littering my blanket. 
+“*They abandoned you?*” Miss Black hissed, brows suddenly lowering and gentle demeanour turning dark; it almost felt as if the sun had dimmed beyond her barred glass pane. “They defected from us. And they defected from you. They will pay when the crescent moon comes. When you rise to your fullest.”
 
-I think I slept for like 2 hours — it’s almost 2 a.m. I’m about to start the 3 hour walk to my next resting point, my next bar. I have to keep moving.
+My lips quivered. “Please… You have to know something. Where are they?”
 
-Until I can get back online, I’m hoping some of you can help me. 
+The woman smiled. “I am but one of many. Look at me, rotting away in this cage. The Old Ones have not come to collect me, have they? I don’t know why you would imagine that I know a thing about your filthy abductors.”
 
-I don’t think there’s any point in figuring out exactly where I am. I don’t want anybody else coming in here after me. I don’t know if this tunnel is even real at this point.
+“*THEY’RE MY PARENTS!*” I screamed at the woman, fists clenching and eyes burning—with neither tears, nor rage, but something I didn’t understand.
 
-But, maybe you guys can give me some ideas on how to proceed. 
+She smiled widely, and I saw a glint of red in her eyes, but it didn’t come from her.
 
-Should I confront the figures the next time they make themselves known? Maybe acknowledging them is the only way I can get out of here. Maybe I have to face my fears. 
+It was a reflection of my *own* scorching pupils.
 
-What could they be? Ghosts, souls trapped in this tunnel, waiting for it to capture me next? Demons, monsters, deranged mountain people? Has anyone encountered or heard of something like this before? I have a lot of time to think in here. I've been running through every possible scenario.
+I unclenched my fists and stumbled backwards, moaning in abject fear at whatever I’d just experienced. Whatever I’d felt burgeoning within me, threatening to bubble to the surface. I felt the red flit away from my retinas, but it was still there, lurking behind them—lurking deep within me.
 
-Anyways, thanks for being here. Even if you can’t offer me any guidance, just interacting with me is helping me feel more sane. 
+And no matter how lovingly Miss Black looked at me, I knew that I wasn’t the chosen one at all.
 
-Hopefully you hear from me again. 
+I was a vessel for something deeper and darker that had been hibernating within me for twenty years.
 
-[Part 3](https://www.reddit.com/r/nosleep/s/UOHc4uZqsr)
+Something on the verge of coming out.
+
+Of replacing me.
+
+“You are so nearly ready,” she giggled tearfully.
+
+I gulped and turned. “I’m leaving now…”
+
+“*WAIT!*” she screeched, halting me in my tracks. “I’ll help you… I’m connected to the Old Collective. I’m sure they will know what happened to your… *mother and father*.”
+
+Those last three words were practically spat out of Miss Black’s mouth, as if they’d tasted sour and poisonous on her tongue. I knew she was fooling me somehow. Knew that, given her desperation for me to stay, I should leave even more hurriedly—should be doing whatever possible to not give her what she wanted.
+
+But I needed Mum and Dad.
+
+I turned and nodded. “Please.”
+
+She smiled. “As you will it, Adam. *Blessed be*.”
+
+When she opened her mouth, I expected words to come out. Some ritualistic chanting in a foreign language. Something that would summon her fellow cultists to the prison. Instead, however, her mouth kept opening. Wider and wider, in both height and width.
+
+And my own lips could only open so far as I screamed at the impossibility before me.
+
+Screamed as her lips widened to fill the whole room.
+
+Widened and barrelled towards me.
+
+I banged feverishly on the door, shrieking at the top of my lungs for the prison officer to let me out. But either he’d scarpered from the scene or Miss Black had already swept me away from that world.
+
+And then I fell into her blackened maw, shrieking until my vocal cords gave out.
+
+Then came blinding white from the black, and when I rubbed my eyes, my vision eventually adjusted to the blazing sun above. To the blue and yellow above—to the green below. I felt grass scratching my skin and sat up, immediately feeling a lurch in my gut. I recognised that place.
+
+It was the field from the photograph in my parents’ attic.
+
+*I had returned home.*
+
+And not spiritually. Not in some vision that Miss Black had cast. She had, impossibly, flung my body from that cell in Styal Prison to a distant rural land. The land in which I had been born. The land to which pilgrims of the Old Collective had fled from across the world to see me. Their chosen one.
+
+Their bringer of humanity’s end.
+
+“*CHARLIE!*” screamed a voice from behind me.
+
+I shot to my feet and spun to see a horrifying sight.
+
+Swaying upside down from the upper beam of a wooden structure, shaped like a football goalpost, were my parents, bound by their ankles. And behind them, in a group of twenty or thirty, stood members of the Old Collective.
+
+“He has returned to us!” cried a shrill voice from the crowd.
+
+“Yes. Sister Black shall be rewarded,” came a deeper voice.
+
+“*RUN, CHARLIE!*” my mum begged a second time.
+
+She was silenced by a swift thump to the head with one man’s wooden stick.
+
+“Please!” I begged, staggering forwards through the grass. “Just let my parents go.”
+
+“Your parents?” came a woman’s voice from the crowd.
+
+And then they emerged. The blonde couple from the photo. Of course, twenty years later, their hair bore quite a few white strands, but they were unmistakeably the two who had been holding the baby in the picture.
+
+I felt sick.
+
+“Adam,” the man whispered. “We have spent two decades searching for you. Our boy. Blessed be.”
+
+“Blessed be,” his wife blubbered.
+
+The two walked, hand in hand, towards me, and I cast my eyes to my true parents, swinging upside down from the wooden beam—not the ones who created me, but the ones who raised me. The ones who saved me from this nightmare.
+
+“Please…” I begged the blonde couple in fear, then I forced out the words, “Mum and Dad.”
+
+I let them embrace me, as terrified as I felt. Their skin didn’t crack, and blood didn’t spill loose, which only filled me with hellish questions.
+
+Why wasn’t Blueman spared the same fate?
+
+*And what am I?*
+
+“Our son,” my biological father whispered into my fear as the pair squeezed me more tightly.
+
+I shivered, realising that our minds were connected. That he could read my every thought and desire.
+
+That he knew I was lying.
+
+That I didn’t see them as Mother and Father.
+
+That I didn’t care about the Old Collective, and I’d burn it all down to save my real parents.
+
+What horrified me above all else was that they didn’t seem to care. Not a single member of that cult. This only made me fear that they, much like the nightmare dwelling within my body, held all of the cards—held the true power in the scenario.
+
+And that I, Charlie, would die as soon as the time had come. As soon as I had become—
+
+“*Ripe*,” my biological mother whispered tearfully in my other ear. “You are so nearly there, Adam.”
+
+“I’m Charlie…” I sniffled.
+
+And then their hands dug more deeply into my flesh.
+
+I tried to scream, but something held my tongue.
+
+That thing within.
+
+“*YOU ARE ADAM*,” the blonde man hissed. “*CHARLIE IS A LIE THAT WILL DIE UNDER THE CRESCENT MOON*.”
+
+“Soon, my darling,” his wife whispered as the pair pulled away from me. “Blessed be.”
+
+The man sighed, eyeing me softly again. “Blessed be.”
+
+“What do I have to do to free them?” I asked, watching my teary-eyed parents squirm in their restraints. “Who is in charge?”
+
+My cult mother smiled. “The Crescent Moon.”
+
+To add emphasis to this answer, my cult father thrust his finger towards my chest, and I looked down, feeling a jolt course across my skin and through my core. I felt it behind my ribcage. The irregularity. The *dum, ba-ba-dum, dum, ba-ba-dum*—like the beat of a drum, not a heart. We are not built to be conscious of own organs. Our own innards. But my biological father had made me, with the touch of his finger, so horribly, horribly aware of my inner cogs.
+
+*Of my crescent-shaped heart.*
+
+There came chest pain, and I looked down to see something pressing through my chest—pressing through the fabric of my shirt.
+
+A half-moon outline.
+
+I fell to my knees in the grass, hyperventilating as I realised that the members of the Old Collective weren’t waiting for a crescent moon in the sky.
+
+The Crescent Moon was me.
+
+The heart within me.
+
+The living thing waiting to awaken.
+
+*Waiting to ripen.*
+
+“Charlie is a lie,” the blonde man reiterated more softly. “You will come to understand that, Adam, when you, like the rest of us, bow to the Crescent Moon. But we must help you along, boy, for you have been led astray for too many years by these blasphemers.”
+
+My biological father took a few purposeful strides towards my mother and father swaying in the air.
+
+“Go to hell,” my true dad growled.
+
+The blonde man chuckled. “I’ll show you the afterlife of the one true religion, sinner.”
+
+My biological mother offered me what almost appeared to be empathy. “We are sorry for this, Adam.”
+
+Then the cultist, in one swift motion, drew a blade from his belt and ran it across my father’s throat.
+
+My mother and I screamed in unison as a river of red ran out of the wound, spilling over my father’s spluttering mouth.
+
+A moment later, the cultist ran that same blade through the flesh of my mother’s throat.
+
+I wailed in agony, watching my true parents wriggle in the restraints as the blood drained from their still-alive bodies. But it didn’t take long for my father to stop moving. And my mother, desperately trying to mouth some words to me with her dying lips, eventually hung still too.
+
+“And now,” my biological father announced, turning to face me. “It is time to drain you, Adam.”
+
+As the man walked towards me, wielding that blood-stained blade, I felt fear grip every inch of my body. Fear beyond anything primal. Fear existential, as I questioned what would become of me after my throat had been slit and my body had been exsanguinated.
+
+*Would my body rise again as something else?*
+
+I clutched my temples and closed my eyes, trying to ignore the fear in my heart as the man’s feet squelched against the grass and my horrifying end approached.
+
+And then I saw them in my mind’s eye.
+
+The faces of the cultists standing in that field, watching me from the execution site.
+
+Watching my father walk towards me.
+
+Within my mind, I reached out and touched them all.
+
+It was an act of self-defence, and rage, and sorrow. I kept my eyes closed as the screaming started, but I saw the horror behind closed eyes. Saw it through our accursed spiritual connection. The cracking skin fissures, letting blood run free, then the shattering of the bodies one by one.
+
+Only my biological mother and father remained, lying in the grass, when I opened my eyes.
+
+I towered over them, resisting the urge to let that hate flare in my pupils—the redness that I’d seen reflected in Miss Black’s own eyes. But it was too late. As my blonde parents clung to their last moments of life, skin cracking and steaming blood spilling free, they both smiled at me.
+
+“Blessed be,” croaked my mother. “With this act, you have… prepared yourself for the harvest.”
+
+She shattered, and my father didn’t even flinch—didn’t let their smile waver for a second.
+
+“Ripe,” he croaked as his very lips began to fragment, and his body began to fall apart. “*One more time, Adam*.”
+
+And then I was left standing again in an empty field, accompanied only by a gust of ash in the air and my true parents’ pale corpses hanging from a wooden beam.
+
+But the true horror survived within my chest—that crescent-shaped abomination, with a life of its own, threatening to break free.
+
+Threatening, next time, to connect with every last person on Earth, turning them all to ash and leaving me as the last thing alive.
+
+*One more time, Adam.*
+
+I understand now. With every tap into that thing within me, I have made it stronger. Have brought it closer to fully taking the reins. Mum and Dad were shielding me from myself, hoping I would never unlock that part of me. That I would never become what the Old Collective had *made* me to be.
+
+I don’t know how they woke up. Became human again and left the Old Collective behind, taking me with them. But I have to believe that the same can be achieved by others across the world, for they are many. So, so many. And that terrifies me.
+
+Please, I beg of any members reading this, see sense. Stop this nightmare.
+
+Don’t let that thing take me.
+
+Nobody will [survive](https://www.reddit.com/r/dominiceagle).
