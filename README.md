@@ -1,154 +1,85 @@
-# I found an old numbers station on a forgotten frequency. Then the tapes started showing up. FINAL UPDATE
-I wasn’t going to post again.
-I was going to delete everything—the recordings, the images, my Reddit account.
-Burn it all. Pull the power on this whole operation and forget you all.
+# Life 2 Experience: Part 1
+ I'm writing the below in third person, because I'm still processing, and it's too difficult to write in the first person. Here is part one of my brother's disappearance.
 
-But I didn’t.
-Because I couldn’t.
+  
+James took a sip of codeine, melted into the couch, agitated over the phone call his brother was having in the other room. It'd grown more serious as of late, Eric's belief in what he was peddling. Or was Eric just a great salesman? A good person who wanted the best for his customers? James had to tiptoe around the subject of belief, Eric needed something to grasp on to. Some hope while sitting at home on house arrest, awaiting trial for something he definitely did. James was two weeks into rehab when he learned his brother had gotten into trouble. He left rehab as soon as he heard. He wanted to help, but each day it seemed his brother was disappearing. One of those crazies. Shit, after all that'd happened? Who wouldn't?
 
-First and foremost: I’m sorry.
-I didn’t know when I first posted here that I was exposing you. I swear I didn’t.
-I promise everything will be explained in due time. But just know—going in—I’m truly sorry for what I’ve caused. And what’s coming.
+A half-drunk bottle of codeine sat on the coffee table in front of him, the last of the five he'd gone through in the three weeks he'd been here, out in this fucking ramshackle town in this ramshackle house. It helped with sleep. It helped to make him feel a little warmer, too. It did not help with his sales pitch, because he hated the people that called in. He took another sip of the codeine, mixed in with seven-up.
 
-Now before someone asks: how do I know all this?
+Then the red phone rang, an old school landline on the coffee table. He let it go through. Eric was probably giving some pathetic pleading look, *answer the phone*. But nah. James pointed to the clock, then looked over, and saw Eric wasn't even paying attention, too engrossed in whoever was speaking on the other end of the line. You can't connect with people when you're beyond the point of reproach.
 
-The truth is—I don’t know how. I know that.
-Some of it came in flashes. Half-dreams. Pulses of memory that weren’t mine.
-Some was whispered through tape hiss.
-Some I heard in my own voice, but no one else did.
-And some of it I just… woke up knowing. Like it had been installed overnight.
+They played xbox, really just James playing and Eric sitting there with a glint in his eye. James dared to ask where Eric's head was at.
 
-That’s what they do.
+Eric thought a moment, a flicker of a smile. *It's like, really connecting with these people, hearing their life stories, and then dreaming together about Life 2.*
 
-It rewrites you.
-It edits your memories.
-It triggers emotions from the deepest corners of your soul—rage, grief, awe—until you surrender to it.
-Willingly.
+*So that's all well and good until you admit you're frauding these people,* James said.
 
-The signal isn’t just some numbers station on 14225 kHz.
+And then Eric didn't say anything. And James shot a look at him.
 
-It’s a virus. A living code.
-And it attaches itself to information.
+*Yeah, man, I don't know -- is it fraud?*
 
-The broadcasts on 14225? My posts?
-All infected.
+*Selling a ticket to an experience that doesn't exist?*
 
-It uses information as a doorway.
-And once you’ve opened it...
+*It's not about that, it's the conversation we get to have.*
 
-...it can’t be shut.
+*So now you're the therapist? Well, let me tell you from my experience, as an actual therapist, lying to your patients and indulging in make-believe isn't the recommended kind of treatment.*
 
-I haven’t spoken to anyone in three days.
-Not on the phone. Not in person.
+*Well. There's many ways to heal. And you didn't finish.*
 
-But I hear it.
-In the walls.
-In the static.
-From the back of my throat when I close my mouth too long.
+*I don't need a phD to feel a little concerned about ripping people off.*
 
-Mitch is laughing. Janelle too. My mom. I think...
-Its like, there’s static in their lungs.
+Their conversation ended there. But it hurt James more than he let on.
 
-And lately… I’ve started whispering numbers.
-While I sleep.
-While I eat.
-While I stare at myself in the mirror until I forget which version should blink first.
+The red phone rang again. James felt his brother staring at him. Fine. He leaned forward. Whoa. Codeine really doubles gravity's powers. Funny. But by the time he picked up the phone it had stopped ringing. James collapsed backwards. Eric returned to his notebook, noting the sales he made, and whom he needed to call back. After, he walked through the cold room making sure the windows were properly shut, in a buckskin coat since their heat didn't work. James knew it was for him -- Eric didn't really get cold.
 
-I found a folder on my laptop.
+*Why didn't you pick up?* Eric suddenly asked.
 
-I didn’t make it.
-Session_A.
+*They'll call back if they really want my help committing suicide,* said James.
 
-Same name I used back when the field recorder still worked—before the SD card melted inside it like the plastic had tried to escape.
+*What the hell, man?*
 
-Inside the folder: one file.
-log940170.txt
+*Yeah. It's called suicide -- no matter how you mask it.*
 
-Each entry had a timestamp and an IP.
-Some of them were mine.
-Some of them were yours.
+*If you're moving onto live another life? That's not -- you're wrong.*
 
-One was labeled:
+*Say you're right. You leave this life to go to something called Life 2 experience. You're gone. I'm here but you're gone. What am I supposed to call that? What happens to your body? Do I have to bury it? Where'd your conscious go?*
 
-ACTIVE RELAY PENDING
+Eric bit his lip. Clearly uncertain. Good, be anxious, James thought.
 
-The username was blank.
+Without an answer, Eric went outside. James called his name, and Eric smiled and said he just wanted to look at the stars. Then, he said, *people just want to feel good, man. And if I can do that for them...then...Cause I would want someone to do that for me.* And then Eric left and shut the door behind him.
 
-Until I hovered over it.
+James sat still for a few minutes, in and out of a blissful, syrupy nothingness. The damn red phone. Who would answer *his* calls? Shoved the phone off the table with the bottom of his foot, the phone falling off the hook. He went to the window and watched Eric, who sat outside. Rain drizzled down.
 
-Then it changed.
+*Eric, come inside,* James stood a few yards behind him on the grass, as Eric stared up at the sky, surrounded at all sides by trees.
 
-“We search, for the One searching.”
+*It's nice out here.*
 
-If you’re reading this, and something in your gut feels off, like you know you know but don't know how?!
+Forget it, James thought, turning to go inside. But Eric continued:
 
-You won’t feel sick. Not yet.
+*Can I tell you a theory, that's probably not true?*
 
-You’ll just start repeating things.
+*Uh. Yeah.*
 
-Whispers at the edge of sleep. Static in your water faucet.
-You’ll see your own name in reflections.
-You’ll smell burnt plastic when nothing’s cooking.
-You’ll hear your "dead" relatives or friends. Or something worse.
+*It's not my theory.*
 
-Eventually, your body will keep moving…
-But you won’t be driving.
+*Just say it, dude. I'm curious.*
 
-You’ll just be watching.
-From the back.
-Unable to scream.
-Merely existing.
+*Rain drops are tears from a loved one in another life.*
 
-Like the others.
+*That's...* James felt his stomach turn. The hope in his brother's voice. The quiver of hope. *That's nice, Eric. I like that theory.*
 
-Mitch is watching.
-Janelle is watching.
-And now, your eyes are beginning to open.
+*Yeah.*
 
-They exist behind the glass now.
-Caught in the static between worlds—faces trembling like old film reels stuck on loop.
+*Sad tears or happy tears?*
 
-Their eyes are bloodshot because they don’t blink.
-I swear one was crying.
-Their mouths are always just about to speak—but something stops them. Something wants them silent.
+*Huh. I guess it depends.*
 
-These are the true Watchers.
-Trapped in the veil.
-Eyes wide in endless torment.
-Condemned to bear witness.
+For a moment, they both looked up at the dark sky from which an infinite number of tears fell.
 
-They weren’t fallen angels.
-They were witnesses.
-They were cast out for seeing too much.
-Now they adjust the pattern by watching it fracture.
-Every disappearance is an edit.
-Every broadcast is a rehearsal.
-And the next relay… is someone still searching.
+James went back inside. He picked the red phone up off the ground and put it back on the table. The cord had pulled out, and he had to jam it back in. Maybe he'd answer the next call, tomorrow, after the payment finally arrived. 
 
-I don’t even know if I’m, let alone what all is real anymore.
-I think I’m just a recording of someone who once mattered.
-I think they used my voice because it needed to sound human enough to let you in.
+But it never came, which pissed James off. They argued, because Eric didn't want to ask the secretive Mr. Silverstein, their boss, about it, so they agreed to play the tortilla game. If James won, Eric would ask. The tortilla game was simple. One person took a mouthful of water. The other took a big flour tortilla and slapped it across the water-holder's face. If they laughed -- due to the hilarity of the slapping noise -- and spit out their water, the water-holder lost. Each would get a turn.
 
-But if I’m wrong, Don’t look for me.
-And don’t think this ends with a screen turning off.
+James wound up bigger than he ever had before, and Eric's eyes went wide. The tortilla cracked hard and loud against Eric's freckled face. Eric spit the water out immediately, dying laughing. And then actually dying. James froze. What's happening? Eric couldn't breathe. Couldn't intake air. Choking on water? How do you choke on water? James looked around, as if someone were there to help. Grabbed his phone. Call 911? For what? Choking on water? How's he actually choking? *Should I call 911?* Eric didn't respond, grabbing a paper bag and breathing into it. And slowly, breath returned. Looking it up later, it had something to do with a spasmodic reaction from your throat protecting you from drowning. James appreciated the body's protective instincts. Did he not have any himself? He didn't even call 911. He just stood there.
 
-Because once they start watching you…
-
-you start watching them back.
-And the moment you begin to listen to yourself...
-
-you’ve already gone too far.
-
-Lastly, something came through on the last signal. A burst of corrupted tape.
-
-Janelle’s voice.
-
-Static. Then panic. Then:
-
-“They’re not angels. Please… stop listening—”
-
-Then nothing.
-
-I don't know who they are but you may be able to get closer than I could as now, my adventure is ending, but yours...yours is beginning! Take charge, find out what I couldn't, and stop them!
-
-See previous entry [here](https://www.reddit.com/r/nosleep/s/1HcqhJVzko)
+He vowed to answer the next call that came but there was only silence, and he fell asleep on the couch. But at 3am he jolted awake to a blaring ringing. Oh. The phone. He pushed himself up onto an arm. Rubbed his eyes. Laid back down. The ringing bouncing around his skull. Reached over, banging his hand against the table til he found the phone and brought it to his ear, eyes still closed.
