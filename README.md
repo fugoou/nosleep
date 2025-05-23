@@ -1,85 +1,60 @@
-# Life 2 Experience: Part 1
- I'm writing the below in third person, because I'm still processing, and it's too difficult to write in the first person. Here is part one of my brother's disappearance.
+# An old man's warning about the quiet.
+I’m retired. My kids don’t talk to me, and my wife is dead. I have a small house up in the mountains. It’s what I always wanted, though. Well, I used to imagine it with my wife, but I guess you can’t have it all. It hasn’t been bad since she passed. I have a garden. I have time to paint and read. There is endless hiking and exploring, and I get to feel like I’m free.
 
-  
-James took a sip of codeine, melted into the couch, agitated over the phone call his brother was having in the other room. It'd grown more serious as of late, Eric's belief in what he was peddling. Or was Eric just a great salesman? A good person who wanted the best for his customers? James had to tiptoe around the subject of belief, Eric needed something to grasp on to. Some hope while sitting at home on house arrest, awaiting trial for something he definitely did. James was two weeks into rehab when he learned his brother had gotten into trouble. He left rehab as soon as he heard. He wanted to help, but each day it seemed his brother was disappearing. One of those crazies. Shit, after all that'd happened? Who wouldn't?
+Things have always been quiet out there. I mean, it’s the woods, so I never hear cars drive by my house. Planes rarely fly overhead. People don’t talk, and I live alone. Bird’s don’t even sing very often. Nothing. In the winter when snow pads the ground, I can hear my own heart beating. I can hear my stomach churning. But you get used to all of that. You stop noticing it. I’ve always been the very quiet and softly spoken type anyway. There’s so many other things to focus on, and I’ve never been the observant type.
 
-A half-drunk bottle of codeine sat on the coffee table in front of him, the last of the five he'd gone through in the three weeks he'd been here, out in this fucking ramshackle town in this ramshackle house. It helped with sleep. It helped to make him feel a little warmer, too. It did not help with his sales pitch, because he hated the people that called in. He took another sip of the codeine, mixed in with seven-up.
+I think that’s why it took me so long to notice that things had gotten, well, especially silent. I think they did, at least. It’s hard to tell. Up until recently it was quiet enough most of the time, but when I made coffee you would hear the pot. If I slammed my door a little too loud, I would notice. I don’t know when those noises faded away. It’s not like you really ever think about stuff like the door shutting when you live alone. 
 
-Then the red phone rang, an old school landline on the coffee table. He let it go through. Eric was probably giving some pathetic pleading look, *answer the phone*. But nah. James pointed to the clock, then looked over, and saw Eric wasn't even paying attention, too engrossed in whoever was speaking on the other end of the line. You can't connect with people when you're beyond the point of reproach.
+I keep a little bit of company around: my cat Lucy. She noticed things were a little off sooner than I did. She tried to warn me, actually, about the unusual quiet, I think. I’m old, you know. I guess my senses have changed. I sleep more now. I’m lucky she’s around, even if it didn’t do much, when the worst of that uneasy-crawling silence pounced
 
-They played xbox, really just James playing and Eric sitting there with a glint in his eye. James dared to ask where Eric's head was at.
+You know how they say the woods go quiet when something bad is about to happen? Or maybe it’s any set of surroundings-not just the woods-getting totally spooky and empty. I can tell you that it’s true now, but at least for me it’s not like the way you usually hear it. It’s not this abrupt thing that suddenly stuns you, driving you off back into the unsuspecting comfort of noise. No. It’s slow and gradual. It disguises itself with the mundaneness of your surroundings. By the time you realize it’s there, it’s already stifling you. 
 
-Eric thought a moment, a flicker of a smile. *It's like, really connecting with these people, hearing their life stories, and then dreaming together about Life 2.*
+Yesterday, I woke up and found scratches on my bedroom door. The only culprit was Lucy, but it was bizarre. She’d been acting strange lately, but she’d never done this before, and it’s not as if I keep her trapped in my room at night. The door is always wide open, so she’s free to leave. Nonetheless, she’d felt the need to scratch at it during the night. She’d really scratched it up too, to the point where I felt I needed to go check on her paws. So, I started my morning off searching for her, and feeling a little uneasy that I couldn’t hear her. She’s a noisy old thing, you know? I figured age must really be getting to both of us now: She didn’t feel like talking, and I was having a hard enough time listening. I tried to ignore that realization.
 
-*So that's all well and good until you admit you're frauding these people,* James said.
+Looking for her made me feel lonely I guess. I’m not one to get lonely, but I think that’s only as long as it’s self induced. It wasn’t this time. Lucy might have needed me last night, but I couldn’t hear her. It didn’t matter what sort of company I’d facilitated for the two of us. I simply couldn’t be present. 
 
-And then Eric didn't say anything. And James shot a look at him.
+I did find Lucy eventually. After about ten minutes of wandering around the property and calling for her, there she was, right in the house. She’s an outdoor cat, however she usually stays close in the morning.
 
-*Yeah, man, I don't know -- is it fraud?*
+Indeed she was home but, rather unusually, asleep in my kitchen. She doesn’t tend to hide out there, and I wondered what drew her in. Maybe it was the dishwasher. The thing runs at night, creating vibrations and sounds and the likes. I assume Lucy found comfort in that. 
 
-*Selling a ticket to an experience that doesn't exist?*
+To my surprise, she did not react at all as I approached. She’s a skittish cat, and doesn’t tend to have much of an interest in being touched or pet unless it's on her terms. This time, however, only once I touched her did she even start. She lurched suddenly with some sense of being startled and clawed at my arm leaving a firm scratch. I didn’t mind, especially since now I knew she was alive and seemingly well. 
 
-*It's not about that, it's the conversation we get to have.*
+I expected her to bolt, but after her little warning she stayed unusually close. She seemed stressed, if I might try to identify such a feeling in a cat as aloof as Lucy. She was scanning the room and pacing around my legs as if she was on guard. I began to feel uneasy myself, a renewed version of that lonely-anxiety I’d felt upon waking up some twenty minutes ago. I suppose Lucy and I had grown accustomed to each other’s unwavering conviction about our isolated living situations, and so neither of us liked seeing the other so… off.
 
-*So now you're the therapist? Well, let me tell you from my experience, as an actual therapist, lying to your patients and indulging in make-believe isn't the recommended kind of treatment.*
+In an effort to calm my nerves I went to brew a pot of coffee. As I poured out the beans this lingering uneasiness I felt cemented itself into a cold hard reality. Something was very wrong. The beans fell into the pot silently. It’s like someone had dunked my head underwater the moment that first bean touched my kettle. Let me try and be more clear: When you pour out an item, you expect a noise. I think of pouring beans into a pot as a visual sort of thing, but it’s also just as much an auditory thing. In this case, instead of pouring out pattering-bean-noise, I was pouring out silence. Everything became completely stifled in an instance. 
 
-*Well. There's many ways to heal. And you didn't finish.*
+The stifling was nothing like the densely packed snow I appreciated. I wished I could hear my organs and my heart beating. In fact, I wished I could hear anything at all that told me my body was still working. Instead, I suffered in a way that I still find difficult to describe. Maybe the equivalent is if someone turned on a beaming torch in my face and it blinded me. It’s the type of loss of vision you don’t expect, and it burns your eyes. Alternatively, it’s like when your leg falls asleep and you start to move it and notice how it’s all tingly and lost lots of feeling. It was like that for my ears, my head-my whole body; mercilessly having the sensation sucked out of it.
 
-*I don't need a phD to feel a little concerned about ripping people off.*
+This emptiness was shocking and painful. My ears ached, desperately straining to get some sort of idea of what they should be feeling and hearing. My instincts racked my senses, begging for some kind of impulse or nerve trigger. I screamed. Well, I think I did. I couldn’t hear or feel myself beneath this relentless and oppressive lack of everything.
 
-Their conversation ended there. But it hurt James more than he let on.
+In those miserable moments, I strained to rationalize: I’ve gotten hard of hearing in my old age. Hell, even my mother lost all her hearing in her later years. Nothing explained this, though, and that was perhaps the hardest for me: The unknowingness; the crushing lack of everything, including an end in sight.
 
-The red phone rang again. James felt his brother staring at him. Fine. He leaned forward. Whoa. Codeine really doubles gravity's powers. Funny. But by the time he picked up the phone it had stopped ringing. James collapsed backwards. Eric returned to his notebook, noting the sales he made, and whom he needed to call back. After, he walked through the cold room making sure the windows were properly shut, in a buckskin coat since their heat didn't work. James knew it was for him -- Eric didn't really get cold.
+I can’t say how long we rotted like that, minutes? Seconds? Well, it eventually ended. Vibrations that felt like foreign and distant creaks and screams came rushing back in, rattling my whole body. A sort of overwhelming rush of silence, actual normal silence, pummeled my senses. My vision worked well enough I guess, but I felt so disorientated and out of balance I couldn’t help but stumble around and crash against my fridge before slumping to the ground. I caught a glimpse of Lucy having a similar reaction. She was frantically pacing with her mouth agape, her back arched, and her ears strained. 
 
-*Why didn't you pick up?* Eric suddenly asked.
+Indeed the overwhelming destruction of sensation adjusted back towards normalcy in the way your eyes acclimate after a sudden-blinding light. Lucy and I lay there terrified and incapacitated. Two older souls, and as much as it pains me to say, older minds as well, trying to recover from such intensity. 
 
-*They'll call back if they really want my help committing suicide,* said James.
+Lucy wandered apprehensively towards her food, and took a few nervous bites. I dragged myself up after her, and stared into the pot of coffee I’d tried to prepare. I winced just looking at the beans, perfectly still and silent. At that moment, more than anything, certainly far more than usual, I wished for another person. Another voice to help with that silence. I decided then that the least I could do was exercise my own voice. 
 
-*What the hell, man?*
+It felt immense to simply utter those words. I had to build up courage while fearing some mysterious disaster might befall us if I mustered even the slightest sound. Nonetheless, I called out for Lucy. It came out dull and raspy, like a cylinder of sandpaper being dragged out of my throat and along my tongue. It coughed, but nothing else happened. Lucy perked up and came over. For the briefest moment, I felt relief. She could hear me. I bent down to give her a reassuring pet when the second attack came.
 
-*Yeah. It's called suicide -- no matter how you mask it.*
+This time, it came from elsewhere, though. It hadn’t occurred to me the first time that this overwhelming sensory devastation had a range and proximity. You could say it came in explosions with seemingly random catalysts. And this second time, the explosion was outside the house, not that we didn’t feel the shockwaves. I screamed again in response. It felt like my voice was being ripped away from my mouth. The noise I created was torn away from me and stifled into oblivion at an aggression and instance far greater than the speed and force of sound. 
 
-*If you're moving onto live another life? That's not -- you're wrong.*
+I fell to my knees yet again as the shockwave tore through us. Lucy fared worse. She knocked out and with deep concern I could see blood coming out of her ears. A mixture of rage and desperation filled me as I dragged myself towards her and scooped her up. The explosion, which I will call it for now, beat down on us relentlessly. I could just barely keep my wits about me as I hobbled Lucy and I towards the front door. I had to get us out of there.
 
-*Say you're right. You leave this life to go to something called Life 2 experience. You're gone. I'm here but you're gone. What am I supposed to call that? What happens to your body? Do I have to bury it? Where'd your conscious go?*
+I burst out into a sunny day, and the explosion ceased. Adjusting back to reality for a second time was very painful. My head pounded and my body felt weaker than ever, but I pushed myself towards my driveway. It was beautiful outside. The serenity felt cruel and misleading. I glanced around with terror, wondering if whatever caused the last explosion was waiting to attack us, but there was nothing except the beautiful trees I knew all too well. The sun warmed my skin. I was deceptively comforted. I felt the urge to tell myself what had just happened was simply a newfound hysteria, onset with my age. Maybe I’d finally cracked. But Lucy. What about her? 
 
-Eric bit his lip. Clearly uncertain. Good, be anxious, James thought.
+Thank the gods for Lucy, and that I held on to my suspicion anyway. I think both showed me the true nature of the silence and the stillness. The woods were too serene. They were too inviting, after what I had just experienced. I thought back to Lucy scratching at my seemingly safe and protective house last night. We were flies, lulled in and trapped by sweet sticky leaves of a looming-invisible venus flytrap, and it was snapping shut.
 
-Without an answer, Eric went outside. James called his name, and Eric smiled and said he just wanted to look at the stars. Then, he said, *people just want to feel good, man. And if I can do that for them...then...Cause I would want someone to do that for me.* And then Eric left and shut the door behind him.
+Committing to my suspicion, I threw open the driver’s side door and climbed in. I placed Lucy on the seat next to me and took a deep breath. I grit my teeth and started the engine. Immediately, a violent wave of stimulation came crashing into my eardrums. I was ready this time. Well, as ready as I could ever be for something like that, so I fought desperately to keep my hold on some sense of control. I backed my car onto the dirt road that connected my house to the rest of civilization. 
 
-James sat still for a few minutes, in and out of a blissful, syrupy nothingness. The damn red phone. Who would answer *his* calls? Shoved the phone off the table with the bottom of his foot, the phone falling off the hook. He went to the window and watched Eric, who sat outside. Rain drizzled down.
+I gunned it forward and the miserable sensory drain worsened. It evolved into into its truer self. It took me further and further into its depths of nothingness, and revealed something far more horrifying than before. It sounded-no, more like it pulsed-nothingness. To my confusion, it pulsed like music. I mean, it was rhythmic. Somehow it was a rhythmic assault of lack that tore into my auditory senses which were desperate for any familiar reception to plug their bleeding, abandoned nerve-endings. It was horrifying how much it reminded me of actual music: Harmonious human-like voices and sounds were coming together, despite being the worst thing I’ve ever heard. It felt as though my soul was being battered, licked, and taunted, only moments away from being wrenched out of my body and annihilated by whatever unnatural anthem assaulted me. 
 
-*Eric, come inside,* James stood a few yards behind him on the grass, as Eric stared up at the sky, surrounded at all sides by trees.
+I reached the third bend from my house, and all at once the explosion stopped. I could hear the sound of my revving engine fade back into existence. I looked around wide-eyed, wondering what had changed. I couldn’t tell at the time, so I just drove for a long time, getting far away. I think I now know why it stopped, though: Lucy. She’d been claimed-digested.
 
-*It's nice out here.*
+I’m sorry to tell you she passed away. I cried as I buried her at the edge of the woods, and then I ran. I’m staying in a motel as I write to you. I’m afraid to go home, and I’m afraid to tell my kids. They’ll think I’m crazy. Maybe I am. I’m getting old, after all. Even I find it hard to believe those horrific experiences and how I handled them really ever made any sense. Writing out my thoughts, I feel like a buffoon, you know? I feel like you’ll shake your head, and sigh at the apparent delusions of an old, fading man. But I’m doing this anyway, because that haunting-excruciating song has been stuck in my head. It’s relentless.
 
-Forget it, James thought, turning to go inside. But Eric continued:
+The miserable echo has worn me down as I rest here in my motel. To be honest, this place feels safe now. It’s been so long since I stayed somewhere cozy and subdued like this. I forgot how beautiful and still even the plainest little motel room could be: The wallpaper is serene, my bed is soft and inviting, and I haven’t had to speak a single word in days.
 
-*Can I tell you a theory, that's probably not true?*
+I don’t think I have it in me this time; to make coffee or get up and paint. I’m all alone now, I’m very-very comfortable, and I just don’t think I can face the music again. I suppose I will embrace the silence, even if it means rotting and digesting in its enticing tendrils…
 
-*Uh. Yeah.*
-
-*It's not my theory.*
-
-*Just say it, dude. I'm curious.*
-
-*Rain drops are tears from a loved one in another life.*
-
-*That's...* James felt his stomach turn. The hope in his brother's voice. The quiver of hope. *That's nice, Eric. I like that theory.*
-
-*Yeah.*
-
-*Sad tears or happy tears?*
-
-*Huh. I guess it depends.*
-
-For a moment, they both looked up at the dark sky from which an infinite number of tears fell.
-
-James went back inside. He picked the red phone up off the ground and put it back on the table. The cord had pulled out, and he had to jam it back in. Maybe he'd answer the next call, tomorrow, after the payment finally arrived. 
-
-But it never came, which pissed James off. They argued, because Eric didn't want to ask the secretive Mr. Silverstein, their boss, about it, so they agreed to play the tortilla game. If James won, Eric would ask. The tortilla game was simple. One person took a mouthful of water. The other took a big flour tortilla and slapped it across the water-holder's face. If they laughed -- due to the hilarity of the slapping noise -- and spit out their water, the water-holder lost. Each would get a turn.
-
-James wound up bigger than he ever had before, and Eric's eyes went wide. The tortilla cracked hard and loud against Eric's freckled face. Eric spit the water out immediately, dying laughing. And then actually dying. James froze. What's happening? Eric couldn't breathe. Couldn't intake air. Choking on water? How do you choke on water? James looked around, as if someone were there to help. Grabbed his phone. Call 911? For what? Choking on water? How's he actually choking? *Should I call 911?* Eric didn't respond, grabbing a paper bag and breathing into it. And slowly, breath returned. Looking it up later, it had something to do with a spasmodic reaction from your throat protecting you from drowning. James appreciated the body's protective instincts. Did he not have any himself? He didn't even call 911. He just stood there.
-
-He vowed to answer the next call that came but there was only silence, and he fell asleep on the couch. But at 3am he jolted awake to a blaring ringing. Oh. The phone. He pushed himself up onto an arm. Rubbed his eyes. Laid back down. The ringing bouncing around his skull. Reached over, banging his hand against the table til he found the phone and brought it to his ear, eyes still closed.
+Whatever, I’m probably crazy, but before I go-however I go-I advise you stay sharp and present when it gets quiet, just in case.
