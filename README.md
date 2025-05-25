@@ -1,358 +1,111 @@
-# They Call It the Hour of Violence. One Night, I Lived It.
-You've probably never heard of **Furo Manor**. Good. It's not the kind of place anyone would want to know about. There are no listings, no website, and not even a whisper about that cold-blooded stone carcass in those travel blogs that risk death for clicks and clout.
+# I still don’t know what we saw that night...
+*Everything I’m about to share is true to my memory. I don’t care if you believe me. I just want it off my chest. I still can’t sleep properly because of what happened that night.*
 
-It probably isn't even known by that name, but I'll just call it that. Try looking it up. You won't find *anything*.
+Okay… I’m trembling as I write this. Not because it just happened recently, but because the incident was so horrific that even putting it into words makes my heart skip a few beats.
 
-So I’m no professional ghost hunter. *Just a hobbyist.* I have this bad habit of chasing rumors and urban legends about forgotten places all across the globe and then trying to experience them myself. I know it sounds dangerous, but more than half of such stories are bogus... *well, with some exceptions.*
+Hi. My name is Duke. Not *the* Duke you might be imagining—but that’s what my friends call me. This happened years ago, back when I was in high school. I can't remember the exact year, but it's something that’s burned into my memory forever.
 
-I'm part of a larger network of people like me, which is how I even found the place to begin with. I won't give you directions, and trust me, you *won't want* them either.
+Back then, I was the typical party kid—staying out late, hanging with friends, living for the moment. That night was supposed to be like any other. We planned a simple sleepover at my friend Darren’s place. Darren was that one guy whose parents *never* gave a damn about anything. Parties, music, drinking—you name it. So we figured, why not chill at his place, drink a few beers, and talk about life under the moonlight?
 
-I visited it last winter just before the holiday season. I had decided to spend at least a week there. My cab driver to this place was a local from the nearest town in the countryside and he **literally begged me** to think twice before actually agreeing to get to this place. He didn't want to be morally responsible should *anything* happen to me.
+So night came. It was me, Kyle, and Lenny who showed up at Darren’s place. His parents were out visiting an aunt, and he had the house to himself. We started drinking, talking, and just enjoying the night.
 
-When I arrived, it was already late night. Visibility was terrible with the bitter winter chill and a dense fucking fog. The place was a chateau of lost grandeur, all carved in stone with an iron-wrought decadence and a large courtyard behind it. Across this courtyard was the actual *Furo Manor*, now an eccentric museum of art and antique. The chateau had been converted into a hotel, and it was impressively well-maintained.
+Then things started to get... weird.
 
-The guards at its grand entrance were rather unwelcoming and grim. Something about their faces suggested that they *wouldn't hesitate to bash my brains in* had I annoyed them. Inside, the reception area was decorated with elegant aged wood furniture under a golden chandelier light.
+We were in the middle of a deep conversation when the power went out. But here's the strange part—only Darren’s house lost power. The streetlights and neighboring homes still had electricity. It was odd, but not *scary*… at first.
 
-A woman behind the desk vanished into a side room just as I approached. She returned minutes later - flushed from some argument, her voice sharp as she slammed the door shut. ***"That's not my problem! You do your job and I'll do mine!"*** she shouted, before she spotted me and slipped into practiced professional warmth.
+We shrugged it off since the moonlight gave us enough visibility through the windows. But it was still a bit dim, so Kyle asked Darren to get a candle or something. Darren nodded and started to get up—
 
-After an unexpectedly smooth check-in, I lingered by the lounge, watching the other guests as they lounged about. I waited for a lobby boy to take me to my room. It was then I noticed a portrait hanging in the lounge.
+Then **a lamp** flew into the room.
 
-It depicted a mustached man in an immaculate crimson suit with a gilded monocle over his right eye; with an expression fierce, proud and predatory. The plaque read: ***Sir Furo***
+It came out of *nowhere*—from the direction of the hallway. It smashed on the floor, glass everywhere. We just froze.
 
-***“Quite the presence, isn’t he?”*** said Alan, the lobby boy (evident from his badge). He had a soft voice and an apologetic manner. ***“He built this place, his legacy. An unconventional philanthropist.. and to be honest, not exactly known for his kindness.”***
+Darren, being the curious one, decided to go check it out. He grabbed his phone and stepped into the hallway. The rest of us stayed behind, waiting. A minute or two passed in silence.
 
-***“How so?”,*** I asked, rather confused.
+Then we heard **screaming**.
 
-***“Story goes, he once disfigured a petty servant with a metal club for not pressing his overalls properly. Wasn't out of the line for him.. you know.”*** Alan delivered it like an indifferent fact, not horror. He tested the air for my sudden loss of words. Breaking the silence, he offered, ***"Follow me, sir. Let me take you to your suite."***
+We jumped up, ready to run to him, when Darren suddenly burst back into the room and locked the door behind him. He was pale, shaking. We all asked what had happened, and his voice was trembling as he told us.
 
-I reminded myself to re-check the local folklore and history later. It wasn't the first time I'd heard sayings about malefic figures, but something about this place felt *too wrong.*
+He said he thought maybe a thief had broken in and was messing with us. But as he searched the downstairs area, he suddenly heard voices… **his parents’ voices**.
 
-We walked in silence to the second floor. The hallway was dim, its ornate crimson carpets muffling our footsteps. Gilded frames lined the walls, each holding portraits of long-forgotten figures. I didn't even know who they were.
+Which made no sense—they were supposed to be out of town for two days.
 
-I really had underestimated the size of this place on first glance. It was much bigger inside than it appeared from the outside. Had it not been for Alan, I would have had a hard time getting to my suite.
+He called out: *“Mom? Dad? Is that you?”*
 
-The suite. It was beautiful, but *too perfect* \- like it didn’t want to be lived in. Velvet curtains draped the tall windows; dark wooden furniture gleamed under soft lighting. A standing lamp by the curtain, almost veiled. A neat TV on the wall across. The bed was large, neat, and pristine with perfectly pressed linens. It was luxurious, yet clinical - like an exhibit in some museum.
+And the voice replied: *“Yes… please come here.”*
 
-After an hour or so of readying myself for the night, I decided to set up a camera with night vision by the dresser. After all, I was here to document the place.
+Something about it felt *off*, but Darren hesitated only for a moment before heading toward the living room. He pointed his flashlight across the room… and that’s when he saw it.
 
-There were rumors of my peers capturing apparitions reside in the rooms once they left. Unnervingly so, the reported spirits were known to stare into cameras - as if they wanted to be acknowledged.
+Two figures, crouching behind the couch. He recognized the shapes—it was his parents. Or at least, it *looked* like them. He could see their backs, their clothes.
 
-Some photos did circulate, but they looked staged, like someone had hired prop actors to play the mutilated dead. I kind of wished I wouldn't experience this. For the sake experiment though, I did begin to setup my camera on a tripod by the dresser.
+He whispered, *“Mom? Dad?”*
 
-With the setup ready, I decided to step out. I didn't care about the bad weather. I put on some warm clothes and locked the doors behind me. The hallway lights stung after the room’s shadows. Alan spotted me from across the stairway.
+Then the living room light **flickered briefly… and went out again**.
 
-*“You're up late sir,”* he asked, then hesitated, *“Is.. something the matter?”*
+In that short flash of light, the two figures stood up slowly and said:
 
-*“Just a walk in the courtyard. Need some fresh air.”* I replied.
+**“Come closer, sweetheart.”**
 
-*"I would advise against that,"* He frowned.
+Darren said his body froze. Something wasn’t right. So he took a step back and asked, *“What the hell is going on?”*
 
-*"Why's that? Does Mr. Furo haunt the courtyard?"* I joked.
+Then the two figures fully stepped out from behind the couch…
 
-*"Not quite sir, not quite. It's just that it's too cold outside and the fog's still thick. You wouldn't want to ruin your stay with the rather unpleasing fever and chills."* he replied.
+And **they had no heads**.
 
-*"I'll take my chances."* I said, *"Is there anything else I should be aware of?"*
+Blood was pouring from where their necks should’ve been. Their bodies were swaying as if they were puppets held up by invisible strings.
 
-Alan frowned again as he hesitated. ***“Be careful sir. If you see any staff outside... standing unnaturally still - don’t talk to them. Just walk on.. or leave.”***
+That’s when Darren screamed and ran back upstairs.
 
-I laughed it off nervously, but his warning stuck. Maybe he was into the lore of this place?
+As he finished telling us this, we were all trying to process it. Was this a prank? But that didn’t explain the flying lamp—or the look of sheer terror on Darren’s face.
 
-Descending to the lobby, I passed staff moving with eerie precision. Polishing, sweeping, arranging. Too focused. Too mechanical.
+Then, **a knock on the door**.
 
-I headed to the historical wing where the courtyard entrance was. The air was growing colder, the lights dimmer. At the large doors, stood a grinning guard - eyes frozen onto a blank wall. His smile was too wide. He didn’t blink. I stood unnerved at his behaviour before I could even approach the door.
+Three knocks.
 
-But then, just as if he read my mind - his eyes turned to me, grin faltering into a subtle smile. *“Evening, sir,”* he said, though it was well past midnight. He opened the door slowly, silently. I stepped out without hesitation, almost immediately.
+We all went completely still.
 
-The courtyard was swallowed in fog, dreamish lights from lampposts cutting through. Gravel crunched underfoot. The silence was oppressive. I wandered, disappointed at first. I hadn't heard many things about the courtyard itself, but those that I had (not worth mentioning) didn't come through.
+Then a voice spoke from the other side:
 
-Not that it was paranormally unimportant - it was. The courtyard was the only bridge to Furo Manor, and the only place you could catch a glimpse of the window.
+**“Darren, honey… can you please open the door?”**
 
-**The window? Oh yes.**
+It was his mother’s voice.
 
-There were whispers among our circle; an *urban legend* we called ***the Hour of Violence.***
+Or… something *trying* to sound like her.
 
-It was said to occur on certain midnights, halfway through the hour. No one knew what it meant. It was never documented.
+None of us answered. No one dared move.
 
-But if you were lucky - or rather, unlucky - you might see a pulsing red, crimson glow in the topmost window of the manor (hence the name since it resembled blood).
+Then the voice came again, a little more insistent:  
+**“Please, sweetheart. Open the door.”**
 
-The window was of an attic sealed off long ago. Renovation crews had cemented the stairwell. You’d have to break through the walls from beneath *to even reach it.*
+Still, we stayed frozen.
 
-And say, fortunately (unfortunately) - I was lucky (unlucky) enough to witness the glow, on the very first night, yes.
+Then, the voice changed. It deepened, twisted—*wrong*.
 
-At first, I thought I was hallucinating. But no, it was real. The glow. I couldn't believe it had revealed itself. Heart pounding, I pushed forward, using the crimson pulse as a guide.
+**“OPEN THE DOOR. I SAID!... OPEN IT!!”**
 
-There it was, just beyond the fenced gates -
+We backed into the farthest corner of the room, all of us staring at the door, waiting for it to burst open.
 
-The lone attic window, glowing deep red. Pulsating like a heart. Beckoning. A shade of red.
+But it never did.
 
-I... I stared too long. And then, came the thoughts.
+Then, out of nowhere, Lenny—yes, *Lenny*—pulled out a cigarette and lit it up.
 
-***Alan must die. Why? Alan. Yes, Alan. Kill him, quick, before—before what? Stop thinking, just do it. (No, no, not me. Not my thought.) Alan. His neck. Break his neck.***
+I gave him a look like *Are you serious right now?* But he whispered back that in his culture, lighting a flame—especially a cigarette—wards off evil spirits.
 
-***Snap—quick, it’s easy. Alan must die. Must die. Must. Do it. Do it now. (Hands twitch.) So easy. Too easy. Won't it feel so good? No- no- no.***
+We were desperate, so we didn’t question it.
 
-***Alan must die. Smash his head. Yes, good.. smash his head... he must die.***
+And almost immediately… the voice behind the door **stopped**.
 
-No- not mine. Not my thoughts. Not at all. Something evil. it was speaking to me from within...
+Just like that.
 
-I felt fear creeping over my body. My spine began to bend - I felt a sudden tension.. as if it was being ripped apart.
+We stayed up the rest of the night—completely sober despite all the beer—huddled together. Every hour or so, Lenny lit up another cigarette, just to be sure.
 
-And then I saw him. A thin man in a staff uniform, standing motionless beyond the gate, eyes locked on the glow like it was revealing divine truth.
+Morning finally came. Darren called his real parents. They were still at his aunt’s place, just like they said they would be. They rushed back after hearing what had happened.
 
-He trembled - not from cold, but from *anticipation*. ***Violent anticipation.*** I didn't wait to see more... I felt dread begin to choke me.. and so I ran.
+Since that day, none of us ever did another sleepover without a full pack of cigarettes. And definitely *never* home alone.
 
-Just as I took of, behind me, I heard a sudden burst of motion - rapid, inhumanly fast. I glanced over my shoulder just long enough to catch him - the same man, now sprinting, legs swinging with unnatural rhythm, closing in on me far too quickly.
+Now, maybe this story doesn’t sound scary to *you*. But even now, I still remember that voice behind the door—Darren’s “mom” begging us to open it.
 
-Panic took over. I couldn't even remember his face. I didn't think. I just ran harder.
+I still wonder…
 
-I burst into the chateau, threw the door shut behind me, and stumbled toward the hall. I was in the historical wing once again - but it was different this time. That uncanny guard wasn't there.
+**What would’ve happened if we did?**..
 
-Hell, I could even swear that the layout had changed. I jumped the stairway skipping two stairs at a time and found my way to the suite.
-
-*The lobby was empty. Not a soul in sight, not even Alan.*
-
-In a rush I swung open the door and shut it behind me. I dropped onto the couch - but it was... warm? Like someone had just been sitting there...
-
-**The camera by the dresser - it was powered off. Had I not turned it on previously?**
-
-I took it off from the tripod and sat on the bed's edge. Switched it on.
-
-At first, the footage was uneventful. Fast-forward, nothing.. and nothing at all. A quiet room.
-
-***Until minute 23.***
-
-Static flickered. A pale man sat on the couch - right where I had just been. He didn’t move. The left side of his face was crushed inward, totally disfigured.
-
-His eyes locked on the camera. Unblinking. Unmoving.
-
-That stillness wasn’t human.
-
-The recording ended with a rising hiss of static; sharp, almost sudden.
-
-Yes, I barely slept that night. The bed was uncomfortable, the couch just aside. I turned my back against it. I could still feel a presence. But.. I had asked for this. I had to accept it.
-
-I found my eyes darting to the couch again and again. I tried to quiet my thoughts. I did fall asleep at some point.
-
-The morning light brought no relief. However, the place looked deceptively normal in the daylight - calm, serene, even charming.
-
-As I freshened up, I heard a knock on my door. *"Ah, good morning sir,"* Alan smiled. *"Hope you managed to rest. I wanted to introduce you to* ***Leon.*** *He'll be taking care of your suite during your stay."*
-
-He stepped forward. A wiry, tired-looking man in staff uniform. His eyes were ringed with shadows like he hadn't slept in weeks. *He looked familiar.. yet so uncannily off.*
-
-He gave a small nod, avoiding my gaze. *Was he... the one in the courtyard the previous night?*
-
-I watched him go about doing his errands in the room, fidgeting about, yet he was too quiet - his movements odd. As he left, he gave me a shy nod and whispered something, disappearing downstairs.
-
-I caught Alan near the servant quarters on the floor. I told him of my experience last night - not everything, but the fact that I thought Leon chased after me manically in the courtyard.
-
-Alan's face changed subtly, but unmistakably. His easy smile faltered. *"That's... unacceptable,"* he said firmly. His brow twitched, his voice now a notch lower. *“You’re certain it was Leon?”*
-
-I hesitated. *“I think so. I mean, I—I can't be a hundred percent. It was dark. But the frame, the uniform. The way he stood. It matched.”* Alan paused for a moment too long, then he left me with a cold, determined ***"I’ll look into it."***
-
-No denial. No explanation. Just a **cold** promise.
-
-As I returned toward the main wing, a sliver of motion caught my eye - just beyond the half-glass of a service corridor door.
-
-**Alan and Leon.**
-
-Pinned against the wall, Leon shrunk under Alan's looming presence. I heard the snap in Alan’s voice - it was quiet, venomous.
-
-*“I don’t fucking care how tired you are. One more slip, and I swear- I'll ..”* He leaned closer. He exhaled, *“.. You ruin a guest’s stay again... and you won’t have a job.. or a face. You understand me?”*
-
-Leon barely nodded, his mouth trembled like he wanted to speak back but thought better of it. Through the translucent window, Alan looked my way.
-
-I backed away before either of them saw me. I decided to go on with my day. There was nothing to document in the daylight, so I thought I'd spend time in the courtyard and the Furo Manor itself.
-
-**The day passed in a fog of normalcy.**
-
-I visited the courtyard again, retracing my steps. Nothing. Just gravel, large, fresh garden beds; and a fountain in the middle of it all surrounded by perfect topiary.
-
-Furo Manor was open to guests during daylight. A guided self-tour, mostly antiques behind glass, heavy curtains, and old oil paintings where the eyes followed you a little too well, but nothing too remarkable.
-
-Oddly enough, there was no visible way to access the upper floor. *No stairs. No elevator. No signage.* It was as if that part of the building didn’t exist- or wasn’t meant to.
-
-Later, in the comfort of my room, I typed up some brief notes to send to the circle. Nothing conclusive yet, but enough to raise eyebrows.
-
-That night, there was another knock on my door.
-
-**Alan.**
-
-He stepped in, looking a bit out of breath. His collar slightly wrinkled. His smile didn’t quite reach his eyes.
-
-***“Just wanted to inform you - Leon.. he’s no longer with us,”*** he said plainly. I raised an eyebrow.
-
-*“He attacked a fellow staff member in the kitchen. Stabbing spree, apparently. Didn’t hurt anyone, thank god. He’s been.. taken care of."* he chuckled, *"Fired immediately.”*
-
-I didn’t know what to say. The image of Leon pressed against the wall earlier that morning surfaced. Something didn’t sit right.
-
-Alan clapped a hand on my shoulder with just a bit too much force. *“To make up for this inconvenience, I’ll take personal responsibility.. for your comfort during your stay.”*
-
-He smiled again, a little ***too wide*** this time. Something behind that calm hospitality had cracked. I could feel it.
-
-After dinner, I returned to my suite and something felt.. wrong.
-
-The chair next to the dresser was pushed back, not quite where I'd left it. A drawer just barely ajar. I walked the suite twice. Nothing was missing .. and there were no signs of forced entry.
-
-Someone had been here. And left, just before I arrived.
-
-I documented it anyway. A few photos. A short clip - nothing that was substantial.
-
-That earlier midnight I couldn't capture the glow - so I felt tempted to try my chances once again. I knew it was unlikely for it to reveal itself again, and that sooner or later... it was coming.
-
-I fought against the urge to visit the courtyard once again. I was living on a sleep deficit. I had to sleep, or try to - and so I did. I turned the lights off and let exhaustion pull me under.
-
-**Until the room landline rang.**
-
-At **2:11 AM.** That old landline buzzed like it hadn't in decades. Groggy and unnerved, I picked it up.
-
-It was nothing but thick, wet and heavy breathing - like someone sucking in air through blood. Faint whispers underneath. I hung up. Maybe a misdial?
-
-Another call. ***"You're..."*** a light chuckle, ***"you're going to die soon, you.. bastard.."*** hissed a voice, shaking bitterly, *"And yes,... yes, you know that, oh don't you? You.. you should've never come here. Your time is running out."*
-
-Click. I felt paralyzed - but I broke out and slammed the phone shut.
-
-A few minutes later - another call. *"Learn... I'm.. I'm going to carve into you,"* he rasped, ***"Oh yes.. tear you apart - slice through your cheeks as you writhe.."***
-
-Laughter followed - not joyous. Broken, and sobbing through a smile.
-
-I waited. Another call. Another and Another. The line buzzed again and again.
-
-I ripped the cord from the wall and flung the damn thing across the room. It had to be Leon.
-
-**That deranged son of a bitch. He wanted me dead.**
-
-Something in his voice.. *it didn't sound entirely alive.*
-
-Once again, I barely slept. In the morning, I forced myself to meet the receptionist, telling her, almost flatly, that I'd check out next morning - earlier than planned. She ignored me at first, and then with a smug attitude, *"Oh of course.. I'll make a note of that."* I wanted to punch her in the face. She *deserved* it.
-
-Her voice was off and hollow. Eyes darted away too quickly.
-
-Not only was she acting weird - so were the others. Even I found this sudden surge of energy - that agitated me to the core.
-
-Staff walked the halls mindlessly, doing nothing - lips murmuring to themselves under breath. One guest was furious at a janitor just outside the dining hall. It wasn't about service, it felt personal, unhinged, and as if he wanted to jump him.
-
-Something had shifted. The atmosphere was tense, I didn't feel comfortable. Alan was busy in himself, and had become curt. He actively avoided me. *Good for him, I didn't want to act anymore.*
-
-I kept to myself that day. Something about the way everybody was behaving screamed that ***it was coming***, and that this would ***be its night***.
-
-I packed my bags and readied myself as soon as the sun set. It was dinner time, a *slow* descent.
-
-There was a heavy lean on the meats tonight. Everything came *red*, rare cuts, thick sauces, what not. Wine *dark as red ink* was poured generously.
-
-The waiters looked distant, like their minds were elsewhere, or nowhere. They grew impatient.
-
-**The guests fed themselves like pigs. Gluttonous, dirty pigs.**
-
-I kept looking at their faces and something had twisted in me. *A surge of excitement and hatred.*
-
-**So I left early.**
-
-Back in my room, something was off again. The closet was open a crack. My coat had fallen. A bottle had rolled off the dresser. I checked everything, then checked again. Nothing stolen. But it wasn’t my room anymore.
-
-I sat at the edge of the bed, hands twitching. Sleep wasn’t coming. I turned on the TV - something low-effort. Some garbage sitcom with a laugh track that sounded like *dying crows.*
-
-I let it drone in the background.
-
-By **1:41 AM**, something shifted in the corner of my eye. By the standing lamp- just behind the curtain that never quite shut all the way.
-
-**A man stood there.**
-
-Wiry frame, hunched. Jaundiced eyes glowing raw and red. His mouth was shaking, drooling. His whole body trembled like it couldn’t hold itself together. His hair was wild. In his hand - he held a serrated knife.
-
-Excited, that finally, after what was probably hours - I noticed him. *God knows how long he had been here.*
-
-***The man - Leon.***
-
-He didn’t charge. He twitched.
-
-And then he lunged.
-
-I sat there, almost **paralyzed** for a moment.
-
-The blade came down into the mattress just as I rolled away, toppling backwards. He pounced - maddened, erratic, and fast. I kicked, scrambled.
-
-With *unnatural* force, that wiry man pinned me to the floor, straddling my chest as he began to drive the dagger into my arm. *A thin wound tore open, my skin splitting beneath the pressure.*
-
-His face hovered inches from mine, ***drooling*** like a hungry animal.
-
-Sadistic... slow. He pushed the blade deeper, watching me writhe with a grin so wide it split his face. I screamed, the pain blinding, and managed another desperate kick - his head hitting the wall beside the TV.
-
-*I staggered upright, bleeding and disoriented.*
-
-He lunged again, grabbing for my collar. I swung my arm - caught him across the face and then ran toward the door, throwing on my backpack with my fumbling hands. He flung the dagger at me. *It missed, falling to the floor by the couch.*
-
-I yanked the door open and tried to slam it shut behind me.
-
-**But his arm jammed the gap.**
-
-As I turned, breathless, *Alan stood by the doorframe* \- expectant, silent, holding a club, **eyes cold and hateful.**
-
-*He swung. It missed my jaw by inches, glancing off my left shoulder and leaving it throbbing.*
-
-But the second blow.. it landed..
-
-**... hard on Leon.**
-
-The club came down on Leon’s skull with a sound I’ll never forget - wet, cracking, final. He dropped. Just a pile of limbs now.
-
-Then I heard the *screams*.
-
-*From the hallway. From downstairs. From everywhere.*
-
-**The Hour of Violence had begun.**
-
-Alan didn’t stop. The club rose and fell and rose again. Leon writhed under it, Alan yielding blindly. I should’ve run.
-
-But I didn’t. I wanted in. It gave me... satisfaction. And I couldn't tell why.
-
-I won't describe what I saw - but it was a grotesque sight.
-
-Finally, Leon stopped moving. Alan stood over the body, breathing hard. His face was soaked, his knuckles white around the club. And then, he turned to me.
-
-*Something in his eyes was smiling. A twisted joy. His mouth curled - part grin, part snarl, like a man trying not to moan.*
-
-***“You know,”*** he said, low, trembling, and breathing heavy - ***“I’ve thought about beating you to death. Really thought about it.. over the past two days.”***
-
-He looked at the club. Then at me again. A pause, ***“But.. you must.. learn to appreciate mercy... Run while you can.”*** a grin then *stretched* his lips.
-
-I bolted without a second thought. I was already in pain, the wound still fresh and sizzling. *I didn't want to die.*
-
-**He didn’t follow. Not right away.**
-
-I heard him run toward the servants' quarters with a guttural cry - footsteps pounding like he was *off to war*.
-
-Then came more screams from the distance. **Crashes.** A roar from down the hall. The others had joined, the staff, guests alike, tearing each other down.
-
-I started filming. Shaky, scattered footage, but I had to. I ran through the outer wing, outside to the foggy courtyard.
-
-It was glowing again, it was crimson, deep red. Burning like something that was bleeding up into the earth. The manor loomed.
-
-**I turned and snapped a few photos. Fast. Blurry. Didn’t even check them.**
-
-I climbed one of the courtyard walls and dropped hard onto the far side. My hands scraped stone. My legs almost gave out. I kept running, straddling with all will I could gather. Across the countryside, quiet, wet fields. *No lights or roads - just grass paths and fear.*
-
-After minutes of distancing myself and closing into to some town, I found a taxi *(or whatever that was)* parked by the roadside. The driver was asleep, radio humming. I banged on the window, startling the poor chap - and threw myself inside.
-
-He was too shocked to ask questions. I told him I needed to get into town, I was injured - I needed help.
-
-As the engine pulled away, and I began to piece myself together - doubting everything I’d just been through, questioning if it had even happened... I finally looked at the pictures I’d taken in the courtyard.
-
-Most were blurred .. motion, poor focus - nothing resolute.
-
-**Except one.**
-
-In the upstairs, crimson window of the Furo Manor, perfectly centered in the frame, stood the faint apparition of a man.
-
-**Furo - that same suit, that same face. That same expression.**
-
-His eyes were locked onto mine, not through the window, but through the lens.. *like he had seen me see him, and now he knew where I was going.*
-
-The driver dropped me off at a clinic in a small town on the edge of the countryside. The city wasn’t far, about an hour, maybe less.. but I didn’t want to stay any longer than I had to.
-
-As I rushed in - I told the driver almost assertively to take me to the airport or somewhere close to it. Promised I’d pay him double. *Yeah, I was desperate.*
-
-I was trying to go home. But I really just needed to get anywhere else.
-
-...
-
-I still think of the experience to this day. The picture is a cursed memoir - *a temple of violence.* **It possesses me with an energy - so unholy.. so magnificently wrong - it makes me wanna rip my heart out.**
+Thanks for reading this all the way to the end... I had a more terrifying incident with my friends after this one... So let me know if you want to see more of it...
