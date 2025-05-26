@@ -1,111 +1,108 @@
-# I still don’t know what we saw that night...
-*Everything I’m about to share is true to my memory. I don’t care if you believe me. I just want it off my chest. I still can’t sleep properly because of what happened that night.*
+# The man with the upside-down head controls my life by flipping a coin.
+Just a year ago, I was at rock bottom. And not like I fell to the bottom — no, I had firmly settled there, clutching a bottle of whiskey with a divorce and job termination behind me. The divorce papers were stained with cigarette ash and wine glass rings. No friends from work remained. Everything I had amounted to nothing. I drank all day — for breakfast, lunch, and dinner. I didn’t even eat. I didn’t care. I drowned in debt and absolute depression. I often thought about ending it all. Pills, a razor blade, or a noose — I simply wondered which would be quicker and easier, but never followed through.
 
-Okay… I’m trembling as I write this. Not because it just happened recently, but because the incident was so horrific that even putting it into words makes my heart skip a few beats.
+The day the nightmare began, I was walking through the rain to the liquor store, and something terrible found me on the way. It was a simple flyer, soaked through and plastered to a lamppost like a moth to glass.
 
-Hi. My name is Duke. Not *the* Duke you might be imagining—but that’s what my friends call me. This happened years ago, back when I was in high school. I can't remember the exact year, but it's something that’s burned into my memory forever.
+"Wanna try your luck?"
+That’s all it said, along with a phone number.
 
-Back then, I was the typical party kid—staying out late, hanging with friends, living for the moment. That night was supposed to be like any other. We planned a simple sleepover at my friend Darren’s place. Darren was that one guy whose parents *never* gave a damn about anything. Parties, music, drinking—you name it. So we figured, why not chill at his place, drink a few beers, and talk about life under the moonlight?
+I smirked, but something inside urged me to call. As I dialed, I told myself it was just for a laugh — but looking back, I think I truly was reaching for any kind of help. The call was answered on the second ring. No voice. Nothing. Just static. I tried to speak, but no one responded. I hung up and laughed bitterly.
 
-So night came. It was me, Kyle, and Lenny who showed up at Darren’s place. His parents were out visiting an aunt, and he had the house to himself. We started drinking, talking, and just enjoying the night.
+After spending nearly my last dollars on booze, I stumbled home, tossed my coat to the floor, and lost myself in bourbon. In the morning, I drank to remember. In the evening, to forget.
 
-Then things started to get... weird.
+And then it happened.
 
-We were in the middle of a deep conversation when the power went out. But here's the strange part—only Darren’s house lost power. The streetlights and neighboring homes still had electricity. It was odd, but not *scary*… at first.
+My bedroom door creaked open with a long, eerie moan that made my heart plummet. I never left it open. I turned, and from the bedroom stepped something — slowly, rhythmically clicking its heels. A man, maybe thirty, dressed like a corpse from the 19th century: tailcoat, vest with tarnished copper buttons, black leather gloves, and golden wristwatch. But none of it mattered — because his head... his head was turned completely around. Along with his face.
 
-We shrugged it off since the moonlight gave us enough visibility through the windows. But it was still a bit dim, so Kyle asked Darren to get a candle or something. Darren nodded and started to get up—
+His skin was taut and smooth, unnaturally stretched. His chin sat where his forehead should be. Bulging brown eyes stared from upside-down sockets like marbles, and his crooked smile revealed yellow teeth. Filthy hair clung to his neck. He tossed a silver coin in one hand, catching it with dirt-caked nails. I screamed, pressing myself against the wall. My entire body crawled with terror. I could barely breathe.
 
-Then **a lamp** flew into the room.
+“You called,” he whispered.
 
-It came out of *nowhere*—from the direction of the hallway. It smashed on the floor, glass everywhere. We just froze.
+His mouth barely moved. He kept tossing the damn coin every second.
+“Who are you?” I choked, gasping in fear.
+“A Player. We can play a game — one that will change your life. Generous rewards... and brutal losses.”
 
-Darren, being the curious one, decided to go check it out. He grabbed his phone and stepped into the hallway. The rest of us stayed behind, waiting. A minute or two passed in silence.
+I don’t know what I was thinking. Maybe I believed it was a drunken hallucination, maybe I’d lost my mind — but I agreed. And oh, how wrong I was. It was real. But back then, I had nothing left to lose. That’s when he laid out the rules.
 
-Then we heard **screaming**.
+“Heads, and you stay alive — with a chance to win in future games and earn rewards. Tails... and I take your life. Right here, right now.”
 
-We jumped up, ready to run to him, when Darren suddenly burst back into the room and locked the door behind him. He was pale, shaking. We all asked what had happened, and his voice was trembling as he told us.
+My lips moved before my mind caught up. I agreed. He flipped the coin — and time slowed. I saw it twirl, silver like the moon.
+Heads.
+“We’ll meet again, winner.”
+He smiled faintly and disappeared into my bedroom. When I rushed to check, the room was empty. My knees buckled with fear and confusion. But it was only the beginning.
 
-He said he thought maybe a thief had broken in and was messing with us. But as he searched the downstairs area, he suddenly heard voices… **his parents’ voices**.
+The first few days were normal. I drank and smoked from morning till night. By the third day, I had no money left. The fourth morning, I stood at a crosswalk, eyes bloodshot, staring at the red light. That’s when I heard it — like a knife to the back.
 
-Which made no sense—they were supposed to be out of town for two days.
+“Heads — and you’ll cross safely. Tails — you’ll die under a car.”
 
-He called out: *“Mom? Dad? Is that you?”*
+My heart froze. I turned. There he was — smiling, flipping the coin between his fingers. I begged him not to, but his smile widened, revealing yellowed fangs. He flipped the coin.
 
-And the voice replied: *“Yes… please come here.”*
+Heads.
 
-Something about it felt *off*, but Darren hesitated only for a moment before heading toward the living room. He pointed his flashlight across the room… and that’s when he saw it.
+I crossed. In the grass on the other side, I found an envelope. Inside: twenty thousand dollars. I burst into tears, then laughter. I couldn’t describe the madness surging through me — hysteria, holding that envelope in shaking hands.
 
-Two figures, crouching behind the couch. He recognized the shapes—it was his parents. Or at least, it *looked* like them. He could see their backs, their clothes.
+I paid off my debts. Cleaned my apartment for the first time in months. Nearly stopped drinking. How I wished it had ended there. But now I know — that first coin toss wasn’t a game. It was a contract.
 
-He whispered, *“Mom? Dad?”*
+A week later, I was brushing my teeth when I heard a snap behind me.
 
-Then the living room light **flickered briefly… and went out again**.
+“Heads — your tooth cracks. Tails — no cavities to worry about.”
 
-In that short flash of light, the two figures stood up slowly and said:
+Coin flips.
+Heads.
 
-**“Come closer, sweetheart.”**
+I saw it split in the mirror — the pain was blinding. I crawled, bleeding, to the dentist. And after that, he came more often. Wherever I went — elevator, car, street — he was there. Tossing the coin. Each toss shaped my day.
 
-Darren said his body froze. Something wasn’t right. So he took a step back and asked, *“What the hell is going on?”*
+I slipped in public and broke my nose. Found wallets full of cash. Met stunning women who seemed programmed to fall into my bed. A streak of tiny wins. A parade of tiny losses. One morning, I didn’t wake up naturally — I awoke to him standing over me.
 
-Then the two figures fully stepped out from behind the couch…
+“Heads — the stock market bows before you. Tails — you lose everything.”
 
-And **they had no heads**.
+Heads.
+I made a fortune. Bought my dream home, car — lived carefree. He appeared only to toss the coin. I kept winning. Maybe luck was with me... or maybe he wanted me to win.
 
-Blood was pouring from where their necks should’ve been. Their bodies were swaying as if they were puppets held up by invisible strings.
+One coin toss later, I had a girlfriend. Then a wife. Her laughter was like bells. Her eyes — oceanic.
 
-That’s when Darren screamed and ran back upstairs.
+“Heads — she’ll give you beautiful children. Tails — she dies in her sleep.”
 
-As he finished telling us this, we were all trying to process it. Was this a prank? But that didn’t explain the flying lamp—or the look of sheer terror on Darren’s face.
+He said it one night, standing by our bed.
 
-Then, **a knock on the door**.
+I couldn’t speak. Tails.
 
-Three knocks.
+She never woke up.
 
-We all went completely still.
+The stakes grew. He became constant. When he wasn’t physically there, he appeared in puddles, windows, mirrors — smiling, flipping his coin. I’d turn — nothing. My house emptied. I should have grieved, but I had just won another game — and lost my love for her.
 
-Then a voice spoke from the other side:
+Otherwise, I’d have spiraled into depression again.
 
-**“Darren, honey… can you please open the door?”**
+Money flowed in and out. Then I lost — and got lung cancer. I heard him chuckle as I coughed blood. Another toss: both legs shattered with a grotesque snap. One win healed me — the cancer vanished. Another loss would’ve given me dementia.
 
-It was his mother’s voice.
+Even winning stopped bringing joy. All I felt was fear — fear of him coming back to toss the monstrous coin again. Losses began outweighing wins. I stopped shaving — what if a toss said I’d slit my throat? I stopped bathing, stopped doing anything. He didn’t care. He came anyway.
 
-Or… something *trying* to sound like her.
+He stepped from my closet, silver coin blackened and stained.
 
-None of us answered. No one dared move.
+“Heads — you go blind in one eye. Tails — in both.”
 
-Then the voice came again, a little more insistent:  
-**“Please, sweetheart. Open the door.”**
+I screamed, begged him to stop, said I’d give up everything. He listened... then flipped.
 
-Still, we stayed frozen.
+Heads. I went blind in my left eye. 
 
-Then, the voice changed. It deepened, twisted—*wrong*.
+Before my eye surgery, lying on the table, I saw him on a chair beside me. He whispered:
 
-**“OPEN THE DOOR. I SAID!... OPEN IT!!”**
+“Heads — a surgical error takes your hearing. Tails — you die on the operating table.”
 
-We backed into the farthest corner of the room, all of us staring at the door, waiting for it to burst open.
+Terror froze me. I wept. “That’s not fair,” I whispered.
 
-But it never did.
+He flipped. Heads.
 
-Then, out of nowhere, Lenny—yes, *Lenny*—pulled out a cigarette and lit it up.
+I’m half-blind. Completely deaf. My heart pounds. Sweat pours constantly. I can’t sleep — when I do, he’s there. When I’m awake, he’s still there.
 
-I gave him a look like *Are you serious right now?* But he whispered back that in his culture, lighting a flame—especially a cigarette—wards off evil spirits.
+He no longer appears in reflections — he just sits beside me, silently mirroring my every move. A man with a backward head, draining my life with each second. No words can describe the horror of being near him. I tried to shoot myself — heads, the gun didn’t fire. Tried to hang myself — heads, the rope snapped just in time.
 
-We were desperate, so we didn’t question it.
+Then he vanished for a whole day.
 
-And almost immediately… the voice behind the door **stopped**.
+Only to reappear at dawn, sitting on my windowsill, head tilted grotesquely upward, driving a finger into his chest. With his blood, he wrote on my wall:
 
-Just like that.
+“Tomorrow, 7:00 AM — final game. Heads — you die quickly, painlessly. Tails — you’ll scream as loud as you can... until you die.”
 
-We stayed up the rest of the night—completely sober despite all the beer—huddled together. Every hour or so, Lenny lit up another cigarette, just to be sure.
+I begged. Sobbed. Screamed without hearing myself. With my one working eye, I saw him grinning, enjoying it, as he vanished again.
 
-Morning finally came. Darren called his real parents. They were still at his aunt’s place, just like they said they would be. They rushed back after hearing what had happened.
-
-Since that day, none of us ever did another sleepover without a full pack of cigarettes. And definitely *never* home alone.
-
-Now, maybe this story doesn’t sound scary to *you*. But even now, I still remember that voice behind the door—Darren’s “mom” begging us to open it.
-
-I still wonder…
-
-**What would’ve happened if we did?**..
-
-Thanks for reading this all the way to the end... I had a more terrifying incident with my friends after this one... So let me know if you want to see more of it...
+I’m typing this now, watching the clock. It’s 6:53 AM.
