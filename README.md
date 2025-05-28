@@ -1,95 +1,64 @@
-# I Hear My Mom Calling Me From the Basement [Part 2]
-\-[Part 1](https://www.reddit.com/r/nosleep/comments/1k8medw/i_hear_my_mom_calling_me_from_the_basement/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\-  
-  
-I’m writing this from my closet.
+# A Howl in the Mountains
+The old diesel truck coughed loudly before falling completely silent, parked next to the tool shed. The engine had a life of its own, just like the house’s power generator, which had already failed three times that week. "It's a gas guzzler," Dad used to say. We always kept a can of gasoline next to the outdoor cabinet — an emergency measure we knew we’d eventually need. Life out there was like that: patched together, fragile, but functional — at least most of the time.
 
-I don't know where else to go.  
-When the footsteps reached my bedroom door, I did the only thing I could think of — I slipped into the closet and pulled the door shut behind me, trying not to make a sound.
+The night before, the usual calm of the farm was broken by the frantic barking of the dogs. Dad, used to small intrusions by wild animals, grabbed his shotgun and walked out with heavy steps. I followed, carrying a flashlight. "Stay behind me," he ordered, his eyes fixed on the darkness.
 
-I’m still not sure if it saw me.
+The dogs were circling the pigpen, their bodies tense as if facing something invisible. There was a metallic smell in the air — a mix of blood and damp earth. As we got closer, we saw the scene: one of the pigs was dead, thrown against the broken fence. Its skin had been torn off in patches, exposing its ribs. The eyes seemed to have been gouged out.
 
-For a while, it was just standing there.  
-I could hear its breathing — a wet, ragged sound, like someone struggling to suck air through waterlogged lungs.
+"Cougar," Dad said, but the word came out hesitant. I looked at him, noticing the doubt in his voice. "Was it a cougar, Dad?" I asked, my eyes wide. He didn’t answer right away. He inspected the surroundings, but there were no tracks, no clear signs of a struggle.
 
-The air inside the closet is hot and stale. I can smell old laundry, dust, my own sweat. Every breath feels too loud, like it’s echoing off the walls. I pressed my back against the far corner, squeezing myself as small as possible between the hanging coats.
+Back inside, he reinforced the door locks and muttered to himself, "Just an animal. I'll take care of it tomorrow." But deep down, something was bothering him. That strange smell, the silence that took over the forest after the barking stopped — it was as if the woods themselves were too scared to breathe.
 
-Then it spoke.
+That night, I had trouble sleeping. I woke up twice, swearing I heard something scratching at the wood outside. The second time, I tried to ignore it, but an inexplicable chill ran down my spine.
 
-Not a knock. Not a whisper.  
-It spoke, low and broken, right outside my door.
+Dad didn’t sleep either. He stayed in the living room, shotgun within reach, listening to the generator’s intermittent hum outside. When the machine failed for the third time, he almost went to check it, but changed his mind. "In the morning," he thought, as if making an empty promise.
 
-"Let me in, sweetheart. I'm so cold."
+He had no idea that dawn would bring more than just a simple generator repair. Something was lurking out there — something that wasn’t a cougar, or anything he could face alone.
 
-It sounded wrong. The words hit the wrong notes in my ears, like someone playing a familiar song on an out-of-tune piano.  
-The voice had a shape to it, if that makes any sense — thick and heavy, like it was trying to force its way under the door and wrap itself around me.
+And it was just getting started.
 
-I pressed my hand over my mouth to keep from making a sound.  
-Tears stung the corners of my eyes, but I didn’t dare let out even a sniffle.
+The sun had barely risen when Dad went out. I followed, dragging my feet, still heavy from lack of sleep. The smell of the dead pig already filled the air — sour and nauseating. The fence was still broken, and the chickens wouldn’t stop clucking, restless, as if something was still prowling nearby.
 
-After a long moment, the door handle jiggled.  
-Softly at first, then harder.  
-Like it was testing how much pressure it would take to snap the lock.
+"Go get the tarp from the shed," Dad told me, holding the flashlight. I hesitated, glancing at the forest around us, but obeyed. When I came back with the tarp, he had already dragged the pig out of the pen, trying to ignore the animal’s gruesome state.
 
-I don’t know why — maybe some leftover instinct — but I started whispering a prayer under my breath.  
-I haven’t been religious in years. Neither had my mom, really.  
-But right then, it was the only thing I could think to do.  
-The words felt shaky and unfamiliar, like trying to walk a path I’d forgotten.
+The body was almost unrecognizable. The claw marks were deep and distorted, as if the creature that attacked it had inhuman strength. Dad tried to rationalize it. "It was a cougar. It had to be a cougar." But the absence of tracks and the mysterious silence from the day before still unsettled him.
 
-Eventually, the rattling stopped.
+We wrapped the pig in the tarp and dragged it to a hole near the back fence where Dad usually buried dead animals. The work was slow and unpleasant, and even the crows that usually hovered around stayed away, as if sensing danger.
 
-Now... it's quiet.  
-Too quiet.
+"Done. It's over," Dad said, wiping sweat from his forehead with the back of his hand. But he knew he was lying.
 
-I want to believe it’s gone. I want to believe I’m safe to come out.  
-But I can feel it.
+The rest of the day was filled with an uncomfortable silence. I tried to keep up with daily chores, but the tension in the air was palpable. "Dad, are you going to leave the fence like that?" I asked late in the afternoon, but he just shook his head.
 
-Something is still out there, just beyond the door, waiting.  
-I can see its shadow through the gap at the bottom — a thick, unmoving smudge that blocks the hallway light completely.
+"I'll take care of it tomorrow. I'll check the generator before dark," he replied, grabbing his tools from the shed. He spent the whole afternoon trying to get the damn motor running properly, but the problem seemed bigger than he thought. The gas can next to the cabinet remained untouched, but every time he passed by it, a strange unease climbed up his spine.
 
-The closet is getting colder.
+The sun began to set, painting the sky blood-red, and the tension on the farm only grew. I brought the dogs closer to the house and locked up the pigpen. "Dad, can we go to bed early tonight?" I asked as the lights started to flicker.
 
-The thin fabric of my pajama pants clings to my skin, damp with sweat. My hands are trembling so badly I almost dropped my phone while typing this.
+"Yeah, we are," he replied. But Dad had no intention of sleeping. Something inside him screamed that the night would bring worse problems than a broken generator.
 
-And worse — when I strained to listen a second ago, I heard something else.
+While we were having dinner, the dogs started barking again. This time, it wasn’t just a warning — it was pure terror. Dad stood up, grabbed his shotgun, and looked at me. "Stay inside."
+"But what about you, Dad?" I asked, clutching his arm tightly.
+"I'll be right back. I just need to see what it is."
 
-Another voice.
+But deep down, he knew he wasn’t ready for what awaited him outside. The night was alive, breathing through the house like a beast stalking its prey. And it hadn’t shown its teeth yet.
 
-From the direction of the basement.
+When he went out, the sight was horrifying: two of the dogs were dead, their bodies twisted at impossible angles, as if crushed by something monstrous. The third was barking at the darkness but suddenly fell silent, letting out a final agonized yelp before being dragged into the woods.
 
-Faint... but this time, not calling for me.
+Dad smelled it. It wasn’t just blood — it was something deeper, like rotten flesh mixed with sulfur. He pointed his flashlight at the trees, and what he saw made his blood run cold: glowing yellow eyes, burning like embers.
 
-It was calling to something.
+"Who's there?!" he shouted, his voice betraying his fear. The answer came as a guttural growl, a sound that seemed to vibrate through the very ground. Then, a figure emerged. It wasn’t a man, nor an animal. It was something in between, with deformed muscles and black fur that seemed to pulse. Its long, filthy claws gleamed under the weak beam of the flashlight.
 
-I couldn’t catch the words. Just the tone — low, urgent, almost pleading.
+The creature lunged with impossible speed. Dad fired. The shot echoed through the night, but the monster didn’t stop. The impact only seemed to enrage it. It knocked him to the ground with a brutal blow, his shotgun flying out of reach. As he tried to get up, he saw the creature tearing into one of the dogs like it was just a snack.
 
-Whatever it said, the thing outside my closet heard it — because just now, it started moving again.
+Inside the house, I heard my father's screams and started praying, but I knew prayers wouldn’t be enough. I grabbed the machete Dad kept behind the door, my heart pounding as heavy footsteps approached.
 
-But not like footsteps this time.  
-It’s dragging itself.
+The door burst inward, and the creature entered, its eyes locked onto me. I screamed, terrified, but didn’t back down. As the monster lunged, I swung with all my strength, striking its face. A horrible howl filled the air, but the machete got stuck in its thick flesh.
 
-Slowly, heavily, across the floorboards, as if its legs don’t work properly.  
-There’s a sticky, scraping noise with every pull.  
-The sound of something too heavy, too broken, trying to crawl toward me.
+Dad, wounded, crawled to the door and saw the scene: I was struggling while the monster gripped my arm, lifting me like a rag doll. "Let go of my daughter, you bastard!" Dad grabbed the gasoline can with trembling hands and doused the creature before striking a match.
 
-Closer.
+The fire engulfed the monster, which thrashed in agony, dropping me. The smell of burning flesh was nauseating, but even in flames, the creature didn’t die. With a final roar, it ran into the woods, disappearing into the darkness.
 
-Closer.
+We survived, but we didn’t come out unscathed. My father lost his right arm that night, and I was left with scars that will never fade. Despite everything, we decided to stay on the farm. We reinforced the fences, took turns keeping watch, and always kept our weapons close.
 
-The closet door creaked just now.
-
-I can see the edge of the handle shifting slightly, almost imperceptibly.
-
-I’m holding my breath so hard my chest hurts.  
-My heart is pounding so loud, I'm sure it can hear it.
-
-I don’t know how much longer I can stay quiet.  
-I don’t know if it’s waiting for me to scream — or if it’s just playing with me before it forces its way inside.
-
-If I survive this... if there’s even a chance... I’ll update again.
-
-But if you don’t hear from me —  
-if this is the last thing I post —
-
-Please.
-
-Don’t answer when the basement calls you.
+But the howl of that creature still echoes in my nightmares. I know it’s not dead.
+I know one day it will come back to finish what it started.
+And all we can do is be ready to face it.
