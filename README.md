@@ -1,264 +1,154 @@
-# Two weeks ago, a family disappeared while hiking… I hope they’re never found again
-We never expected to find them—the family that went missing. The trails had all been combed over the past week and a half. And we were, after all, not experienced hikers ourselves. My sibling Ace and I had never really roughed it, never detoured from established trails. At least, not intentionally.
+# The Cannibals of the Mountains
 
-Somewhere in the pines the official trail markings vanished. Our phones lost all signal, and the narrow track we followed wound upwards along the steady slope through the trees before finally petering out into nothing.
 
-We were about to turn back when we spotted, just ahead, a clear, smooth patch of land with the remnants of a stone circle for a campfire and some discarded soda cans. Ace grumbled and went to collect the cans—only to call out to me when they found a bright pink backpack. Inside was a notebook, a crumpled paper lunch bag, and a sloth plushie.
+Renato and I were hanging by a thread. The fast-paced life in São Paulo had drained us: our patience, our humor—even our silence. Everything was noise, lines, traffic, pressure. So when we saw that ad on the vacation rental website, it felt like a sign. *“Rustic house high up in the mountains, perfect for those seeking peace and isolation.”* Exactly what we needed.
 
-“Found a snack for you.” Ace tossed me the lunch bag.
+The drive there was long and bumpy. By the time we left the asphalt and hit the dirt road, the sun was already beginning to set. We passed through thick forest, a few abandoned fields, and then... nothing. No houses, no human sounds. Just the wind and the song of birds I had never heard before.
 
-“Dude! That is foul!” Catching the bag, I caught a whiff of the rot inside—remnants of a sandwich, now stale and furry, and a mushy apple. I plucked out the mushy apple and flung it at my older sibling, who swore and ducked. Then together, we both examined the backpack.
+The house was older than the pictures had shown, but it had a certain charm—sloped red-tile roof, wooden porch, a collapsed fence on one side. I opened the door and the smell hit right away: damp wood mixed with something else... hard to describe. A musty scent, like cloth stored in a basement. Renato made a joke, calling it “the smell of peace and quiet.”
 
-The same thought must have crossed both our minds then—what if the backpack belonged to the family that went missing? We’d strayed off the path. What if this was the same way they came, only they got lost and never found their way back?
+Inside, the house was simple. A living room with an old couch, thick rug, a small kitchen with white cabinets. The bedrooms were upstairs, but one thing caught my eye immediately: an old, solid wood cabinet that didn’t match the others, which were modern and metallic. The wall behind it stood out too. It didn’t match the rest of the kitchen. It was wooden, while the others were made of brick and mortar. I ran my hand over it out of curiosity.  
+— “Weird wall,” I said to Renato.  
+— “You and your horror movies,” he laughed.  
+I let it go. It was just a wall.
 
-According to the news, the family—parents Patty and Joel, their daughter Emily, and Patty’s brother Mike—all went missing during what was meant to be an overnight backpacking trip. Witnesses saw them park their car at the trailhead and hike into the crisscrossing, well-worn trails of the pines.
+That first night was quiet, which alone made the whole drive worth it. Used to horns, sirens, and street yelling, the forest silence was almost deafening. We went to bed early.
 
-That was over a week ago.
+I woke the next morning with *that feeling*. You know the one—like someone’s watching you, even when no one’s there. I went to the kitchen to make coffee and stepped onto the porch in my pajamas, trying to shake off the weight in my chest with the smell of trees and earth.
 
-Now, I squeezed the sloth plushie, its fur matted from being cuddled so long—could this have been the daughter’s? Ace flipped through the notebook, showed me a long-haired stick-figure sketch of “smelly Uncle Mike.” We both smirked, but stopped smiling when flipping to the inside cover revealed a scrawled name: “Emily B.”
+That’s when I noticed the footprints.  
+In the soft dirt by the side of the house—human footprints. They led up to the living room window... and stopped. They didn’t return. Didn’t go further. Just stopped, as if whoever made them had vanished into thin air.  
+I called Renato. He tried to laugh it off.  
+— “Probably the caretaker.”  
+— “There is no caretaker.”  
+— “Maybe from an old guest.”  
+But the prints were fresh. The earth was still dark and damp. Hard to ignore.
 
-“Emily and her uncle, Mike. Those were the names, right?” I said, chilled.
+That night, we locked everything up. I checked the doors and windows twice. A third time, just to be sure.
 
-“Shit… yeah.” Ace turned to eye the woods around us. “We need to let the authorities know.”
+At two in the morning, I woke up to a low sound coming from the kitchen. A slow creaking. Like a door being opened very carefully.
 
-The afternoon sunlight slanted down on us. There were no other traces of the family around the campsite. They’d clearly packed up and trekked on from here—but which direction? I scoped out the woods, wandering further out. Something pink fluttered in the distance—
+I called Renato. He got up to check. Came back saying everything was fine—but I knew better. A small voice inside me told me to stay alert.
 
-“Rowan! Don’t get lost!” Ace called.
+ 
 
-I clambered up through the bramble and over dead leaves and snatched up the pink fabric, caught on a fallen trunk. “It’s a girl’s sweater!” I hollered. Nearby, a trail wound up the slope.
+The next day, after breakfast, Renato and I decided to explore the area around the house. The mist still clung to the woods, but gradually, the sun tore through the white veil and revealed the landscape: hills covered in low brush, a few twisted trees, and a silence broken only by birdsong.
 
-Ace’s lanky figure remained rooted far below for several moments. Then, they riffled in their bag, and wrapped some blue tape around a branch by the campsite. They disappeared further downwards—probably to mark where the trail we’d been following petered out. Finally, they clambered up to me. I stood waving the pink fabric impatiently.
+It was beautiful, I won’t lie. A silence that seeped into your skin. We walked slowly, hand in hand, saying little. It felt like the whole place was waiting for us to be quiet—to listen better.
 
-“Don’t go running off—” began Ace.
+After about forty minutes of walking, we saw the “neighbor’s house” the ad had mentioned—the only one for miles, according to the owner. An old structure with mud walls and a crooked roof. There was a low fence and a wooden gate hanging by one hinge.
 
-“Look!” I turned the collar of the sweater inside out to show the tag, on which was written in sharpie: *Emily B.* “It looks like there’s a trail that goes up that way,” I added, pointing along the slope.
+That’s when I saw him.
 
-“That’s not the way we came from though.” Ace squinted up the slope and then back toward the campsite. “We’re way off track…” They tore another piece of blue tape from the roll and added it to a branch nearby.
+A boy. Skinny, maybe 17 at most. Worn-out shirt, pants too big, dark hair falling across his face. He stood at the edge of the woods, about twenty yards from the house. Not moving. Just watching us.  
+— “You see him?” I asked.  
+— “Yeah. Is he... staring at us?” Renato squeezed my hand.
 
-“We have to find them—” I began.
+The boy didn’t say anything. Didn’t move. Just stared with an intensity that sent chills through me. It wasn’t curiosity. It felt like he was studying us.
 
-“We could get just as lost as they are.”
+I felt exposed. Like we were naked in that landscape. The discomfort rose so fast we didn’t even need to speak—we turned and walked back the same way. Not running, but not looking back either.
 
-“Ace! We can’t abandon them—”
+When the house appeared between the trees, my heart jumped. The door. It was slightly open.  
+— “Did you lock it?” I asked, already knowing the answer.  
+— “Yes.”
 
-“Rowan.” Ace’s eyebrows drew together. “We need to call this in. If we wander off into the woods, we might as well just put ourselves on the missing persons list!”
+We approached slowly. The kitchen light was on. I swear I’d turned everything off before we left. Renato went in first. I stayed by the door, holding my breath.
 
-Back and forth we argued. I’m the rash and stubborn one. Ace is the analytical, *equally* stubborn one. Ever since we were kids, I was always the dreamer, ready to set sail on some grand adventure. On my wrist I wore a bracelet reading, “All who wander are not lost.” Whereas my older sibling followed only carefully charted paths, believing only in hard facts, and never in airy possibilities. Today, the moment they suspected we were off trail, they’d started marking branches with their blue painter’s tape and building piles of rocks alongside the path. After assessing the facts of a situation, they made their mind up, solid as bedrock—you’d move a mountain before you could move Ace.
+Nothing seemed out of place. The living room looked the same, backpacks in the same corner. But something... I can’t explain.
 
-But you’d stop a bullet train before you could stop me, and I growled, “Think of Emily.” I pointed into the woods. “She’s out there, and she needs her sloth. And if we leave and lose all trace of that lost little girl FOREVER, I will *never* forgive you.”
+Renato searched every room, opened cabinets, looked behind doors. Nothing. No sign of a break-in.
 
-Hesitation on Ace’s face. The sun was sinking lower in the afternoon sky, chills starting up my arms, the rays a burning orange that turned Ace’s mop of brown hair into a golden halo but darkened their features so I could barely see their scowl. If we were going to find this family before nightfall, we had to start looking *now*.
+But the feeling didn’t go away. The same one I’d had the night before. Like something in that house was watching us.
 
-Ace made a frustrated sound in the back of their throat. Finally they swore, took out their roll of blue tape, and slammed it into my hand. “This is the STUPIDEST thing you’ve ever done. But fine. You do what you’re gonna do, and I will go call it in and then come back for you. I’ll follow your trail. If you get lost and starve out here and die, I will never, ever forgive *you*. Mark *every fucking tree*, Rowan—”
+And worse: now it knew we knew.
 
-“I will, promise. I will.”
+ 
 
-My sibling hugged me hard, then they spun on their heel and left. “And for the record!” they shouted over their shoulder. “You are a total moron!”
+That night, I woke up with a start. The mattress was moving slowly. When I opened my eyes, I saw Renato getting up, stepping carefully on the wooden floor.
 
-I flipped them the bird. Without even looking back to see this gesture, Ace was already raising their arm to flip me off in return. Then I turned and scoured the slope above—*there.* It was right there, a well-trodden path, winding upwards. I marked it with the tape and started hiking.
+— “Renato... what is it?” I murmured, still half-asleep.
 
-The temperature seemed to drop as I ascended, as if the air up here was thinner, colder. But the trail itself was wide and free of debris, the afternoon sunlight filtering through the pines and dappling the leaf-strewn trail. It was an easy, uneventful climb—so easy I nearly forgot to mark the trees. It seemed pointless with the path being so clear. I only put up the tape because I’d promised my sibling, making sure that each blue ribbon was in eyeshot of the last.
+He paused for a second, then whispered:  
+— “I think I heard something downstairs.”
 
-I’d been hiking for about forty minutes when the path opened up suddenly in front of me, the slope leveling off, and there amidst the trees, in a small clear patch—there was a cabin.
+My stomach dropped. I sat up, straining to hear what he had. Nothing. Just silence. But the way he said it killed any urge I had to argue.
 
-A pink thermos sat on the front steps.
+We grabbed our jackets and went down slowly, one step at a time. When we turned the hallway corner, the kitchen light was on again.
 
-I rushed over and snatched it up. The surface was covered in stickers of anime characters. Emily’s? But then a question entered my mind:
+Standing at the edge of the room, it took us a few seconds to notice. Renato pointed at the floor, eyes wide. The floor was full of marks. Footprints. He knelt down and ran his hand across the dirty tiles.  
+— “Is this... mud?” I whispered.  
+The muddy prints led straight to the wooden cabinet—the oldest one in the kitchen.  
+The trail stopped there. “This doesn’t make sense,” he muttered. I said nothing, just scanned the room, feeling that deep, cold fear you only feel when something’s *really* wrong.
 
-*Why isn’t the cabin on our map?*
+Renato slowly opened the cabinet, expecting... who knows what. But there was nothing—just plates, old pans, some cans of corn.  
+Carefully, he began tapping the sides of the cabinet with his knuckles. Solid wood... until he hit the back. The sound changed. Hollow.
 
-I knew it wasn’t on the map because Ace had checked the map relentlessly the moment they realized we were off trail. Maybe it wasn’t there because the map was too old, or because the cabin was privately owned, or maybe we’d strayed so far that both the path I’d hiked and this cabin were in an entirely different area.
+He looked at me. “There’s something here.” That’s when we saw it—a barely noticeable groove in the wall beside it. He pulled hard and the wooden panel creaked, revealing a short door with a rusty old latch. Renato reached for it. “Don’t open it yet,” I said instinctively. “Let’s think. Let’s call someone…”
 
-But none of that would explain why the missing family had found this cabin, entered… and remained missing, still.
+Renato froze, hand still on the latch, as if struggling inside. I didn’t want to seem hysterical, but everything in me screamed *do not go further*. That’s when we heard it—a sound like a woman screaming.
 
-*They must still be inside.*
+ 
 
-With that thought dread ballooned inside me. If I opened the cabin door, what would I find?
+Renato yanked the latch. It cracked like a dry bone snapping. The door opened a few inches with a groan, and a strong smell rushed out. Something between stagnant water and rotting flesh. I recoiled instinctively, covering my face. My stomach turned.
 
-Suddenly I very badly wished that my sibling were with me. I’ve always been the superstitious one, who gets nervous about walking through graveyards at night. Ace never worries about flickering lights or haunted cemeteries or unknown horrors. Ace sees only electrical problems, or soil filled with decaying organic matter. Their fears are always practical: unpaid bills, authoritarian laws, muggings or violence. Never ghosts, curses, or…
+Renato turned on his phone’s flashlight and pointed it inside. It was a tunnel. Narrow, damp, the walls supported by wooden beams, lined with uneven stones and moss. The floor was dirt and mud, with fresh footprints mixed into the muck. It didn’t look like a basement—more like a coal mine.
 
-… or whatever was waiting in that cabin.
+“This isn’t normal, Renato.” My voice was trembling. He nodded, but looked hypnotized. He crouched and went in, and I followed. The light swung across the walls like it was revealing secrets that didn’t want to be seen.
 
-I glanced down at the plush sloth in my hand and back at the ajar door. The windows were cracked and dark. Grime caked the glass. The steps *creeeeeaaaked* as I reached for the door, and I felt my nose wrinkle and my stomach clench because of the smell. A *terrible* smell. It came wafting on the air. Like garbage and sewage and meat left out to fester.
+The tunnel branched off underground. We followed the one that spiraled downward for a few yards, ending at a wooden door reinforced with beams and chains. On the floor were marks, as if something heavy had been dragged to that spot. The air smelled stronger there—almost unbearable.
 
-An unbearable chill numbed my arm the moment I gripped the knob, and I braced myself and thrust the door open.
+Renato ran his hand along the doorknob. Locked. But there was a small gap between the door and the frame. He brought the flashlight closer, and I leaned beside him to peek inside.
 
-To my surprise, not only was the cabin brightly lit, but several faces turned toward me. A thin, tired-looking man raised a hand to his lips for silence.
-
-“Wha—Are you Joel?” I asked.
-
-The man motioned to his lips again, more desperately. A woman at the seat across from him glared at me and shook her head. Her mouth had strange markings across her lips—like she’d drawn stitches over them. A little girl next to the woman looked at me anxiously, her eyes widening as she noticed the tattered sloth in my hand.
-
-The last person, a long-haired man seated next to the tired-looking man, did not turn around in his seat or move at all, and I could only see the back of his head.
-
-All four of them had their hands holding each other’s on the table, except for the finger that Joel had raised to silence me. He motioned me to sit in the chair to his left.
-
-This was so strange. I had so many questions. I came over and pushed the sloth toward the little girl, saying as I sat down, “Are you Emily? People have been—”
-
-“*Shhhh*.” Again the finger at his lips in a stern reprimand, and then the door to the cabin slammed open.
-
-I yelped, gasping as a hand gripped mine firmly—Joel had hold of my arm—he jerked me closer and pointed to himself, to his eyes, and closed them. I glanced to his wife, his daughter, already with their eyes squeezed shut. That was all the warning I had before I heard the footsteps, and I started to turn my head—
-
-His fingers dug into my arm.
-
-I squeezed my eyes closed.
-
-*Something* stepped inside through the open door. *Thud. Thud.* The scuff of footsteps on the wooden slats. And the sound of chuckling.
-
-There was something vaguely familiar about the voice. I couldn’t place it, but the longer I listened, the more familiar it seemed, like a word on the tip of my tongue, or a name I couldn’t quite remember to a familiar face.
-
-The footsteps, and the soft cackling, drew closer. There was also something unpleasant with the footsteps. A smell. The waft of something rotten, or maybe of body odor. And then a whisper in my left ear, as if lips were just next to my skin. A cold, rotten breath. I think it whispered my name.
-
-The fingers on my arm tightened in warning.
-
-The whispering moved, now to my right ear. *Thud. Thud.* The footsteps moved around the table. I almost opened my eyes to see who or what was in the cabin with us—but instinct told me not to look.
-
-The steps circled around the room, and then receded out the door, which clicked shut.
-
-The pressure on my hand eased, and I opened my eyes. The first thing I saw was four faces turned towards me, three of them anxious and worried. Joel, his wife Patty with her stitched lips (Oh God, were the stitches real?), their little daughter Emily. But the fourth face—I gasped, and Joel’s hand squeezed mine again, *hard*, reminding me not to speak. Or scream.
-
-Sitting next to Joel was the long-haired man who must have been Uncle Mike, in a worn jean jacket, recognizably the long-haired stick figure drawing from Emily’s notebook. But where his eyes should have been were gaping bloody sockets, and his mouth was also stitched with thick black thread.
-
-Joel tapped a finger on the table and pointed to the center.
-
-For the first time, I saw the words etched into the wood:
-
-SPEAK, AND BE SILENCED.
-
-LOOK, AND BE BLINDED.
-
-LEAVE, AND BE BOUND.
-
-WHEN THE LAST CHAIR IS FILLED, YOU WILL BE FREE.
-
-My gaze lifted again to Uncle Mike, and then passed across the faces of the other three, looking at me with anguish. I bolted upright, but Joel seized me, shaking his head fiercely. He jabbed a finger at Emily. At first I thought he was saying, *Don’t you dare abandon my daughter.* But then I realized he was pointing at her hands. She had not reached to pick up her sloth, despite having looked longingly toward it. Then I saw the little girl’s frightened eyes drift from me to her hands. Her hand holding her mother’s. And her other hand on the table.
-
-They weren’t *holding* hands.
-
-Their hands were nailed to the table.
-
-Joel squeezed my arm again and mouthed the words: *LEAVE, AND BE BOUND.*
-
-All the air left my lungs. I collapsed back into my seat. The wheels of my mind ground to a halt with panic. *Impossible*, was all I kept thinking. *Impossible. Impossible.* Terror numbed my brain, blocking all rational thought. Who was keeping them captive? Why? And why did their captor sound so familiar? Next to me, Joel still held a grip on my arm, but used his other arm to push the sloth to his daughter. She laid her head down on the plush fur. “Thank you,” she mouthed to me.
-
-I nodded numbly. I couldn’t speak, so I carefully freed my arm from Joel’s grip and mouthed slowly, “Are there cameras? How is he watching you?”
-
-Confusion on Joel’s face. I repeated the mouthed question, and then I started tracing out letters on the table. His gaze followed and he nodded. In this painstaking way, we were able to have a conversation.
-
-Me: Who is he?
-
-Joel: We don’t know.
-
-Me: How long have you been here?
-
-Joel and Patty shrugged. Tears from Emily who only shook her head.
-
-Me: Does he always know if you try to leave?
-
-More helpless shrugging. Joel eventually conveyed to me that Emily and Uncle Mike were the ones who spotted the path and found the way to the cabin. It looked dilapidated to Joel, but Emily and Uncle Mike thought they heard someone calling from inside, so the whole family entered. That’s when they noticed the writing on the table. They were trying to decipher what it meant when *it* came inside. Uncle Mike had *looked*, and *it* had taken his eyes while he screamed at everyone else to run. Patty took Emily one way while Joel ran the other. Joel tried to lead their pursuer off, but he got lost in the woods. Patty and Emily somehow got turned around while fleeing and wound up back at the cabin with *it* on their heels. They tried to hide inside and barricade the door, but *it* forced the door open. By the time Joel returned to the cabin he found his wife and daughter with their hands nailed to the table, his wife with her mouth sewn shut.
-
-Now, he traced out his message on the table with his finger while mouthing the words.
-
-Joel: I can’t leave them.
-
-I pointed to myself and mouthed words as I traced back: You don’t have to. *I’ll* escape and get help.
-
-Joel: But you would need a distraction to even get out of the cabin.
-
-Me: Can you distract it long enough for me to get clear?
-
-Joel gave me a pained look. It was obvious he was afraid of bringing even more harm on himself and his family.
-
-Me: I’ll bring help! It’s the only way to save Emily!
-
-Joel shook his head and sighed. But his wife, who could neither speak nor move her hands, stomped her foot and caught his eye. She gave a fierce nod. Emily looked at me with shining eyes. “Thank you for my sloth,” mouthed the little girl. “Please save us.”
-
-Joel exhaled and pressed his palms to his eyes. I didn’t know if he was scared, or just in despair. But he sat like that for a long time and finally he turned his head to me and actually shouted, “RUN!!”
-
-His booming voice startled me out of my chair. Behind me, the door burst open. “Don’t look!” Joel added as he lunged past me, putting himself between me and the intruder, and I don’t know if his eyes were open or not. All I know is he screamed, and Emily let out a sob, and I felt my way blindly to the wall and along it toward the door even as that sinister chuckling passed right by my ear. Joel groaned, and there was a loud *WHAM* as he was slammed back into his seat. And then the *thud thud thud* of a hammer.
-
-Then I was outside! Pulling the door shut behind me, I opened my eyes and bolted for the trees.
-
-The sky was deep purple, just enough light for me to see. How many hours had passed? How long ago had sun set? I ran down the slope, and ran, and ran, and ran, not even caring which direction. All I thought was, *AWAY!* My legs and lungs burned as I flew down the slope—
-
-And stumbled to a halt, because in front of me was the cabin.
-
-Laughter sounded from inside. The door creaked open.
-
-Turning away, I sprinted back into the woods. By now I had a stitch in my side. This time I went upwards.
-
-I was still stumbling through the bracken when the chuckling, which had been behind me, was suddenly in front of me. No matter how many times I tried to go deeper into the woods, the laughter of that maddeningly familiar voice kept returning, too close, herding me back, and sometimes calling my name: “Rowaaaaaaan…”
-
-And then I was at the cabin again, all the wind gone from my lungs, the voice whispering my name just behind me.
-
-NO!
-
-I rushed inside and slammed the door shut.
-
-Joel’s hands were nailed to the table. His eyes were squeezed shut. Patty and Emily looked at me in despair.
-
-I took my place quickly. Then the door burst open.
-
-*THUD THUD*—footsteps, clunking fast after me, and then that rotten breath wafting into my ear, heavy and close, fingers squeezing into my shoulder.
-
-Panicked, flailing, I fought blindly against my assailant’s grip. My fist connected with a *smack* against skin and bone, but the—thing? Person?—was unfazed, the grip tightening, stronger than ever, and the thing was laughing. Laughing in my ear.
-
-“NOOOO!” The scream tore from my throat.
-
-ROWAAAAN, its eerily familiar voice growled in my ear. It didn’t sound human. And yet I *knew* its voice, familiar the way a tune is familiar when you’ve forgotten the words. A tune like a lullaby. Like I’d known this thing from before I was even born.
-
-“LET ME GO!!!” I shrieked.
-
-I screamed, I spat, I fought with everything I had, but its powerful grip only dug in harder, more painfully, like talons. I felt myself dragged, writhing, from my chair, my heels scraping across the floorboards as it hauled me across the cabin floor—
-
-“ROWAN! ROWAN, STOP IT! IT’S ME, ACE!”
-
-Suddenly it was just a voice—a human voice—barking at me over and over as I was hauled down the creaking steps and into the dirt. Ace’s lanky silhouette leaned over me, their face flushed as they panted with exertion.
-
-Gasping, I blinked up at my sibling. The sun was so low in the sky that the stars shone through the skeletal branches.
-
-“Ace?” I groaned.
-
-“Yes—thank fuck!” gasped Ace, dropping down into the dirt beside me. “Oh thank fuck! I think you broke my nose…”
-
-“What happened?”
-
-“What *happened?* Hell if I know! Why were you sitting in there holding hands with rotting corpses?”
-
-Corpses?
-
-I whirled to look back at the cabin. We were in the dirt just below the front steps. The door hung open. Inside was dark, but the smell… the smell that wafted out made my stomach buck. Ace snatched my arm and pulled me towards the trees. “Let’s get the fuck away—”
-
-I jerked back instinctively—“But, Emily,” I said. I was too confused to do much more than cast a quick look behind me as my sibling tugged me into the pines. The cabin looked even more dilapidated than I remembered, the window panes cracked and missing and the roof sagging like it was about to collapse. Through the darkness of the open door, I could make out vague shapes, still and solemn, positioned around the table—
-
-And then Ace was pulling us into the bramble. I asked why we didn’t take the path back down, and my older sibling snapped, “There’s no path. I was barely able to find your markers.”
-
-It felt like I was lost between dream and wakefulness, in some strange limbo while Ace shined their phone flashlight around, trying desperately to catch the beam on the occasional blue tape wound round branches, or on piles of stones or pieces of clothing tied around trees—apparently Ace had supplemented my trail with their socks, a headband, and other items from their pack. Even so, it was harrowing trying to find our way through the darkening twilight. We reached the campsite just as pitch black descended.
-
-“Are the police coming?” I asked.
-
-“No.” Ace still had hold of my hand, as if afraid to let go. “I didn’t get very far before I decided I’d rather die being stupid with you than go for help and risk losing you.”
-
-“Oh.”
-
-So. There were no authorities coming to look for us.
-
-We built a small fire and huddled together to wait for dawn while Ace told me slowly, haltingly, what they’d seen.
-
-They followed my blue tape trail to the cabin and found me sitting at the table, eyes squeezed shut. When I didn’t react to my name being called, they noticed the family appeared to have simply died sitting around the table holding hands. And I was holding their hands, too. It freaked them out. Then they saw one of the family had no eyes—that the eyes had been wrenched out and one of the eyeballs was held in the free hand. The man had apparently plucked out his own eyes. Between this and the reek of decomposition, Ace rushed out and threw up. When they finally stopped being sick and came back inside to get me, I came bursting out past them and ran—ran and ran and ran, and they chased me around the cabin two or three times before they found me sitting back in the chair holding hands again. That’s when they grabbed me, and I punched them in the nose.
-
-“Oh,” I said quietly. And then, dreading the answer: “Did you… see anything on the table?”
-
-Ace was silent for a long time before grunting, “Yeah… Something about ‘when the last chair is filled.’ And it was freaky as shit, because all the chairs were filled except the last one.” A strange laugh bubbled in their throat. “Y’know I almost felt like sitting down? Weird impulse.”
-
-*Thank God you didn’t*, I thought. It was Ace’s total lack of imagination, their dismissal of that thought as nonsensical, that probably saved them *and* me.
-
-We waited until the sky turned grey, and then we finally staggered to our feet and found our way to the deer trail and back to civilization, where we reported our finding of the missing family.
-
-… But the family is still missing. The authorities got as far as the campsite before being unable to follow our markers. They are all still there, their spirits trapped within that cabin. Nailed for eternity, for as long as their souls will have to wait. Waiting for me to bring help. I’m sure I could find my way, but… I’m too afraid. I don’t know what happens if that last chair is filled. I know something will change, but the thought of it happening fills me with the deepest, most terrible dread.
-
-If I tell you where to look, will you go and save Emily?
-
-You wouldn’t be stuck forever, I don’t think.
-
-WHEN THE LAST CHAIR IS FILLED, YOU WILL BE [FREE.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+And that’s when we saw, for the first time, proof that something horrifying had happened there.
+
+There were remains. Bones. Some small, others far too big to belong to animals. Torn fabric stained with dried blood. A chain hanging from a hook in the wall. A rusty bucket in the corner. We had no idea how long we stood there, paralyzed. But when we finally turned to go back through the tunnel—guided only by the weak phone flashlight—we were horrified to discover the passage we came through... was now closed.
+
+ 
+
+Something heavy was blocking the path. Renato pushed hard, but it was useless.  
+"What do we do now?" I whispered, barely able to speak.  
+Before he could answer, we heard voices coming from the dark tunnels behind us. Twisted laughter and the sound of footsteps in the mud. Renato turned off the flashlight, and we stood still in total darkness, listening to our own hearts pounding too loud.  
+When they noticed our presence, they began to shout and run toward us.  
+Without thinking, we bolted through the tunnel, stumbling and hitting the dirt walls. We ran blind, guided only by the instinct to survive, trying to escape the maddened voices that seemed to close in from every side.
+
+That’s when we found another door. Old wood, the lock nearly rotted through. We knocked, pushed, but it seemed locked. Behind us, the voices drew closer.  
+The door creaked and suddenly opened. A small room, stinking of mold and rot. And inside, almost invisible in the dim light, was the boy we’d seen outside — thin, filthy, eyes wide open. Without a word, he made a quick gesture for silence.  
+We rushed inside, and he quietly closed the door, sliding a piece of wood across it to act as a lock. From the other side, we heard our pursuers arrive and start banging, trying to break it down.  
+The boy pointed to another exit — a trapdoor hidden under a pile of torn clothes.  
+With hurried gestures, he guided us. We crawled through a tight passage that led into the kitchen of the house. There, we saw a woman — his mother, I assumed — with her back to us, cooking something on a wood stove. She was humming a children’s song off-key, unaware of our presence.
+
+With quiet steps, we crossed the room. The boy opened the back door. The cold night air hit us like a slap. And we escaped into the yard, running without looking back.  
+He stayed at the threshold, motionless, watching as we disappeared into the darkness.
+
+We ran through the yard, not looking back. The tall grass cut our legs, branches scratched our arms, but the only thing that mattered was getting out. Renato chose not to turn on his phone flashlight again so we wouldn't give away our position. The moonlight barely lit the path, but even in the dark we could see our car parked at the front of the house, just as we’d left it.  
+Renato pulled the keys from his pocket and tried to unlock the car, but it didn’t work.  
+"Damn it…" he muttered, pressing the button over and over.  
+That’s when we noticed all four tires were slashed and the hood was slightly open — the battery was gone. They wanted to keep us trapped.
+
+The voices and footsteps were getting closer. We could clearly hear more than one — several — coming toward us. They shouted nonsense, some laughing like kids playing tag.  
+"Run! Run!" Renato yelled.  
+We left the car and dove into the dense underbrush, heading the opposite way from the voices. The cold night air burned our lungs with each frantic breath. Thorns tore our clothes, but the adrenaline kept us from feeling any pain.  
+After what felt like an eternity of blind running, we saw something ahead: metal structures reflecting the faint light. As we got closer, we saw what it was — an empty lot filled with old, abandoned cars swallowed by weeds.  
+We didn’t think twice. We began opening doors, trying to find a vehicle that could still save us.
+
+Most were just junk: rust, rotted seats, broken steering wheels.  
+Then Renato whispered, "Here! This one!"  
+It was an old car, but intact. And miraculously, the key was still in the ignition.  
+Without hesitation, he turned the key. The engine coughed once, twice… then caught, sputtering but alive.  
+As Renato revved the engine to keep it going, I saw through the broken windows of the junkyard — shadows approaching. Three of them, running, waving their arms like rabid animals.  
+"Go! Go! Go!" I shouted.  
+Renato floored it. The car jerked forward, bumping into old shells of metal and wood. As we reached the dirt road, we could already see some of the pursuers coming out of the brush, their faces twisted with rage.
+
+We left that hell behind. The house, the tunnel, the pursuers — all disappearing in the rearview mirror, swallowed by the darkness. But the car didn’t make it much farther. The engine died, leaving us stranded in the middle of the woods and night. Still, it was far enough to get away from that nightmare.
+
+After hours of walking through the forest, exhausted, filthy, and still terrified, we finally reached the main road. We flagged down the first car we saw, and the driver, seeing our condition, didn’t hesitate to take us to the nearest police station.  
+Sitting under the cold lights of the lobby, we recounted everything we had been through: the isolated house, the tunnels, the pursuers, the mute boy who helped us. As we spoke, the officers exchanged glances — some serious, others with a mix of disbelief and unease.  
+Despite everything, they agreed to go with us to the place, now in broad daylight, to verify our story.
+
+We arrived at the house, now bathed in sunlight. From a distance, it looked like just another old farmhouse. But as the officers inspected the area, they began to find signs: trails, debris, fresh marks in the dirt.  
+Inside, the scene showed signs of a rushed abandonment — still-warm pots, clothes strewn about, inner doors flung open. In the tunnels, the officers found disturbing evidence: personal belongings from several people, IDs, broken phones, torn clothes.  
+One of the officers muttered while examining the items:  
+"We’ve suspected that family for years... The Hobolds."  
+They explained that the family, of German descent, had long been investigated for the disappearances of tourists in the region, but there had never been enough proof. Now, with our testimony and the evidence found, they could finally act.
+
+As I got into the police car, I looked back one last time. For a moment, I thought I saw the silhouette of the mute boy at the window, watching us. I felt a bitter mix of relief and sorrow. He had saved us... but was still trapped in that nightmare.
