@@ -1,50 +1,28 @@
-# I keep seeing triangles and other things.
-This happened in 2024, roughly November. It lasted for a long few weeks.
+# The Room That Shouldn't Be There.
+A few years ago, I moved into a new apartment building. It was a standard 8-floor building with a mix of students and young professionals. Everything seemed normal at first. The walls were thin, the elevator was a little slow, but nothing out of the ordinary.
 
-It started when I went to sleep one night, on a Monday.
+I’ll never forget my first week in apartment 5C. It was just a regular Thursday night, I was having a quiet evening, and I went to bed early for a work presentation the next day. But around 2 AM, I was woken up by a loud, sharp knock on my door. It was strange because no one ever came to my door at that hour, but I decided to ignore it.
 
-A dream. A nightmare, even.
+The next morning, I ran into a neighbor I hadn’t met yet in the hallway. Her name was Claire, and she was in her mid-thirties—slightly older than me. We exchanged pleasantries and she asked how I was settling in. I mentioned that the night before, I had heard knocking on my door.
 
-It was strange and warped, and I don't remember it well, but it was me on the sidewalk outside of my grandparents house. I was in a third person view, but it wasn't me I was looking at—a twisted version of me with white skin and black and red marks, my face blurry and unrecognizable. My view slowly advanced toward my face, but it didn't become clear or visible. Just blurry. Not me.
+Her face turned pale. She looked almost… concerned. She told me to be careful, that I should avoid the apartment at the end of the hall—Room 8E. I was puzzled. I’d never seen anyone go in or out of 8E, and when I asked her why, she simply said, “People who live there don’t stay long.”
 
-I thought nothing of it the next morning; I've always had weird, prophetic dreams and whatnot.
+I brushed it off, thinking she was just trying to spook me, but that evening, something strange happened. As I was walking down the hall, I saw a door that I swear had never been there before. It was at the very end of the hallway. I hadn’t seen it before, and the door was completely different from the rest. It was an old, weathered door, like it hadn’t been touched in years. The number "8E" was faded, but still visible.
 
-But things got worse. I kept seeing your average stereotypical old man in my dreams—grey hair, hunched back, black cane, dark blue jeans and a flannel shirt. He didn't say anything, just stared or was in the background of my dreams. The same exact man.
+I decided to check it out. The handle was cold, and when I turned it, it opened with a creak. Inside, it was a perfect replica of my apartment. Same furniture, same layout, same everything. But everything was... off. The air felt thick and heavy, like the room hadn’t been disturbed in ages. There was a strange humming noise coming from the far corner, like an old appliance that hadn’t been turned off for years.
 
-Then I kept seeing triangles in my dreams. Everywhere. On a tree, someone's clothes, I mean everywhere.
+I quickly backed out and slammed the door shut, my heart racing. I couldn’t explain what I had just seen. I ran back to my apartment, locked the door, and tried to forget about it.
 
-And then I saw them in real life. Outside my dreams.
+But that night, I heard the knocking again. The same sharp, urgent knocks on my door at exactly 2 AM. This time, I was paralyzed with fear, too scared to get out of bed. The knocking continued for what seemed like hours.
 
-Stars aligned in a crooked but unmistakable triangle.
+The next day, I went to speak with the building superintendent. When I asked about Room 8E, he seemed genuinely confused. He told me there was no such room in the building. I insisted that I’d seen it, but he just stared at me with a blank expression and said, "There’s no Room 8E, there never was."
 
-Roots jutting out of the ground in the formation of a triangle.
+That’s when I started to lose it. I walked down the hall again, and there it was—Room 8E, exactly where it had been before. But this time, it was locked. I knocked on the door, and a voice from inside answered, “I’ll be out in a minute. Just give me some time.”
 
-In the faint patterns of scratches on my walls; a triangle.
+I didn’t know who was inside, but it couldn’t have been Claire. She had moved out weeks before, and I hadn’t heard anyone mention renting out the apartment. But that voice—it sounded exactly like her.
 
-Everywhere I looked—Triangle. Triangle. Triangle.
+I started to investigate, calling neighbors, going through old tenant records. But every time I looked into the building's history, it seemed like the information had been erased. I couldn’t find a trace of Claire or anyone else who had ever lived in Room 8E. The whole building was wrapped in a thick veil of secrecy.
 
-I was sick of that word. Absolutely sick of it. Dream after dream, thought after thought, those wretched connected three lines haunted me. Sometimes, they even had a line in the middle of it, like a closed eye. In my dreams, the eye would slowly open but never enough so I could see beyond the lid.
+I tried to leave. I couldn’t take the constant knocking, the eerie hum from the room, and the feeling that something—or someone—was watching me. But when I went to the front desk to sign out, the receptionist told me the same thing: “There is no Room 8E.”
 
-I searched up what it meant. "The Holy Trinity." It was a triangle, yes, meant to be a sign from God.
-
-But this? This felt sinister. Evil. Devious. If it was from God, I wouldn't have dread after my dreams and sightings of triangles everywhere, and it most likely wouldn't be  associated with a dark, dark red. Red enough to be red, but dark enough to be mistaken as black.
-
-I'd be in a forest of pine trees in my dreams, peaceful as the birds chirped ahead and the rays of the sun danced cheerfully.
-
-But then the chirping would come to an abrupt stop.
-
-All sound, cut off. Later on, with eerie silence, it was replaced by an unbearably loud blaring, like a cruise ship. It wailed forever and ever, then clouds of a sinister dark red would roll in, blotting out the sun and blue sky, instead a black carpet of nothingness. Slowly but surely, outlined in a fiery orange, clean lines would slice across the sky, connecting... Aligning...
-
-Topped off with a bridged line in the center of the lines.
-
-A triangle.
-
-The line in the center, presumably an eye, would open and spread and inside I could see unfathomable horrors. I shudder at the thought. A massive black shape (which I saw flickers of in the corner of my eye outside my dreams) charging through the forest near my house, my town, crushing anything in its path, swallowing it and replacing everything I knew and loved and cared for into a undesirable void of nothing. Pandemonium broke out. The river I swam in, the bridge above it, the same dark water my dad caught a fish for the first time in years in, trees I saw everyday, houses I saw everyday, small little shops I visited and liked, the infamous ice cream shop—renovated into a void of nothing. Unlovable. Undesirable. Unremarkable. The black void flooded the planet I knew and loved and hoped to save from pollution one day. Every opportunity ripped away and every chance at feeling or seeing anything but a void black rippled away.
-
-All hell broke out.
-
-As the void spilled across vast fields, scaled mountains and cast a dark blanket over the oceans and rivers and everything,
-
-All while the three-cornered shape loomed, watching me with its singular eye, filled with all negative things that could happen to me and everyone. All negative things that would happen. Had happened.
-
-Ever since that one dream, I stopped seeing everything like that. Yes, I saw triangles, but not everywhere I looked anymore and no more dreams of them, no more dread, I was completely fine. Left with the confusion on what that dream meant and why I had it in the first place. Now, I get this odd lingering feeling of impending doom whenever I see a triangle. Not unbearable, but an anxious "I have to leave" feeling.
+My search has led me to dead ends. I’m not sure what I’m dealing with—whether it’s something supernatural, or if I’ve just lost my mind. But I can tell you this: I haven’t heard the knocking for a while now. I’m afraid to say it, but I think it might have found someone else. I haven’t heard the voice in the hall anymore, but I still see the door. Every night, I hear the hum. And sometimes, when I’m alone, I swear I hear Claire’s voice whispering through the walls: “Don’t leave. It’s too late now.”
