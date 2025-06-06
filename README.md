@@ -1,104 +1,128 @@
-# I worked in the IT Department of your average American high school. I almost got killed because of that.
-I had to have a routine of sorts when it came to my job.
+# I moved to the woods to find peace. I think somethings followed me.
+I moved here to get away.
 
-I was in the IT department of an average American high school, which meant that my average day to day tasks usually consisted of blocking unapproved websites and fixing Bluetooth issues. But when it came to the last two hours or so of the school day, my boss would often ask me for a favor.
+Not from anything dramatic—just the noise, the deadlines, the constant press of bodies on the subway. I’d been saving for years, watching Zillow like it was a stock ticker, waiting for the right spot to open up somewhere far enough from town to finally feel quiet.
 
-"Check their search history," he'd say.
+The house was modest. Two bedrooms, a weather-worn porch, surrounded by thick pine woods on all sides. The kind of place where the only traffic is deer trails and the loudest thing at night is the wind through the branches.
 
-He was referring to all seven hundred students in the high school, thus where my routine came in. Check their search history, flag anything alarming, and alert the principal if necessary. It got boring after a while, since the students would usually search up stupid things on purpose, such as cream cheese pornography or One Direction fanfiction. 
+It was perfect.
 
-  
-Until the date was Thursday the 29th.
+At least, it was at first.
 
-That day, the principal insisted that I should take a closer look at the search history of each and every freshman, since they appeared to be logging into various unknown websites more often than usual. Naturally, I did as I was told and was bored for the first twenty minutes or so.
+The first night, I barely slept—not from fear or anything, just that weird new-house feeling. Every board creak felt suspicious. Every thump in the walls had my attention. But it wasn’t anything I could put my finger on. No animal sounds. No wind. Just… stillness. Too much of it.
 
-Except when I checked for the 20th student's search history.
+The kind that presses on your eardrums.
 
-He never once searched up anything related to school. And he never once searched up anything unrelated to school. Rather, he just consistently typed one single thing into his search bar.
+By the third night, I started hearing it.
 
-**Coordinates**
+At first, it was faint. Just my name, whispered from somewhere out in the trees. So quiet I thought it was in my head. Just—
+“Chris…”
 
-**Geographical Coordinates.**
+That’s my name. No one knew I’d moved. I hadn’t even updated my address yet.
 
-I did exactly as I was trained to do, and I immediately informed the principal about this. When he stood over my shoulder, however, looking at my computer, his expression never once changed.
+I turned on the porch light. Nothing but fog and pine needles.
 
-"The proper term these days is 'trolling', correct?" He asked. "In that case, the kid is probably just trolling you as usual. Their actions don't exactly have thought behind them."
+The next night, the whisper came again. Closer. Same voice. Like someone standing just beyond the tree line. I grabbed a flashlight and scanned the woods. The beam cut through fog and brambles, casting long shadows. I thought I saw movement—something ducking behind a tree—but I wasn’t sure.
 
-I didn't know for certain if whether or not he was wrong. So, on my evening commute home, I decided to whip out my personal laptop, and plug in the geographical coordinates into Google Earth myself.
+I called out. “Who’s there?”
 
-What popped up next was fairly plain.
+No response. Just silence, and then—again, softer—
 
-It was a forest. A heavily patrolled forest at that. It was often used for camping, so it couldn't possibly have been a site for illegal activity or anything concerning. Plus, it was a Thursday night, and all of my friends ended up cancelling what was supposed to be an excellent game night.
+“Chris…”
 
-So, what was the harm?
+It wasn’t until I replayed the voice in my head that something felt wrong. It didn’t sound quite… human. It was my name, yeah. But the tone—like someone trying to sound friendly and failing. Like something mimicking friendliness without ever understanding what it really meant.
 
-I decided to drive over to the forest.
+The following morning, I found footprints outside the window.
 
-When I arrived, I was instantly greeted by an overly cheery park ranger with a faint southern drawl.
+Bare feet. Long. Too long. And the toes were wrong—almost clawed, like they were pulled forward instead of splayed out.
 
-"Hey there, Miss," He said. "What seems to be your reason for being out here so late?" 
+I told myself it was just some animal. Probably a bear. Maybe a cougar. Something that wandered up close.
 
-"Just wanted to take a walk," I said. "That's all."
+But I didn’t sleep that night.
 
-"They don't got sidewalks, where you're from?" He smiled.
+Around 3 a.m., I heard the porch boards creak.
 
-"Oh, they do," I said. "And they also have park rangers who aren't complete jackasses. You should visit."
+Then scratching on the siding. Slow. Deliberate. Like claws being dragged across the wood.
 
-The park ranger wasn't exactly phased by my insult. But his expression did change a little once he saw my school employee ID. Not going to lie- I was a little bit embarrassed that I had forgotten to take it off.
+I didn’t move. Just lay there in bed, holding my breath, praying it would pass.
 
-"You work in a school?" He asked.
+It did—but only after I heard it again.
 
-I nodded. "I do, yeah. Specifically in their IT department."
+“Chris. Come outside.”
 
-He nodded to himself for a moment or so. As if he was suddenly remembering something.
+That’s when I knew it wasn’t in my head.
 
-"My apologies then, Miss," He smiled. "Come on right in."
+I spent the next day locking everything down.
 
-And he then gave me directions to the nearest parking lot.
+Every window got a plank of wood nailed across it. Not just for privacy, but because I couldn’t shake the feeling that whatever was out there wanted me to see it. To acknowledge it. To let it in.
 
-Truth be told, I genuinely liked walking around the forest for the first five minutes or so. In fact, I actually even felt grateful at one point for finding that kid's search history, since those five minutes were just so damn peaceful. It was close to closing hours, so besides the park ranger, no one else was walking around. There were also a lot of animal traps around, so I didn't feel the need to worry about skunks or bears or anything like that.
+I even boarded up the small bathroom window. The only one that faced the back woods directly. It always felt colder near that window, like the glass itself was holding something back.
 
-But then I heard a voice.
+By the time the sun dipped behind the ridge, the house looked like a bunker.
 
-A deep, dry voice.
+And I felt like a prisoner.
 
-"Your plan really did work, son," The voice chuckled. "She's right here."
+That night, I didn’t go to bed.
 
-That's when I heard the whistle. A high pitched, eardrum rattling whistle that could have only come from an instrument of sorts.
+I made coffee—strong, black, burnt—and sat in the living room with a notebook in my lap and the hammer still in my hand. Not a gun. Just a hammer. I told myself that if I saw it, really saw it, I’d know what to do.
 
-Now comes the part where nobody believes me.
+I just didn’t know if I’d survive knowing.
 
-Seven people (whether they were men or women, I don't know) began walking towards me, chanting. What they were chanting, I still can't figure out to this day. It sounded almost like an ancient language of sorts- one that you could never find in a textbook. And they all chanted in unison- softly and quietly in perfect harmony. They all wore the exact same outfit, too. Black robe, black capirote, black paint that was painted onto their hands and faces, and no shoes. And only one voice stood out from the others. 
+It came around 2:14 a.m.
 
-Because that voice sounded like it belonged to a teenager.
+I heard the crunch of pine needles first. Then the boards groaned on the front porch.
 
-You best believe that I began to run away at that exact moment.
+Then silence.
 
-As I was running away, two of the seven people began chasing after me. The rest simply continued to walk towards my direction, still chanting. However, the two people that were chasing me were both yelling the exact same sentence at me. 
+That same thick silence that presses in around your ears until your own heartbeat sounds too loud.
 
-**"Gloriam eius sentire debes!"**
+And then it spoke again.
 
-**"You must feel his glory!"**
+But not from the woods.
 
-They spoke in Latin, by the way. That was the only time they spoke an actual language.
+From inside the walls.
 
-When I reached the parking lot, I saw that they had all stopped chasing me. They were nowhere to be seen, couldn't be heard at all, nothing. You'd think that it was all a bad dream.
+“Chris. You locked me out.”
 
-But I know it wasn't. I know *damn well* that it wasn't. 
+I stood up so fast the chair fell backward. The hammer felt like it weighed fifty pounds in my hand. I pressed my back to the wall and just listened.
 
-Before I began driving back home, I went up to the same park ranger from before and told him everything that had happened. 
+No footsteps. No creaking. No sound of forced entry.
 
-"Aw, don't get so worked up," He chuckled. "We've all gotten the heebie jeebies before, no?"
+Just the voice—low, stretched like a rubber band pulled too tight.
 
-It was the angriest that I had ever gotten. I just couldn't stop defending myself, I was yelling at him- I *knew* what I saw, I *knew* what I saw!
+“You looked at me. I know you saw me.”
 
-But he kept on shutting me down. And he kept on refusing to believe me.
+That’s when it scraped the walls again. Not outside.
 
-That's when I saw that there was black paint underneath his fingernails.
+Inside.
 
-So, I wished the park ranger a good night, and I quit my job the next day.
+Something long and sharp dragging across drywall, slow and wet, like it wasn’t just clawing—it was tasting the house.
 
+I turned toward the sound and whispered, “What do you want?”
 
+It didn’t answer. Not right away.
 
+Instead, the hallway light—one of the only ones I hadn’t turned off—flickered. Once. Twice. Then died.
 
+And something stepped into view at the end of the hall.
 
+It looked like me.
+
+Same shirt. Same jeans. Same tired eyes.
+
+But its smile was wrong. Too wide. Too still. Its teeth were too clean, like they’d never been used to eat. And its fingers were too long, like they’d forgotten how to stop growing.
+
+It tilted its head—and in my voice, it said,
+“Let me back in, Chris. You brought me here.”
+
+I ran.
+
+Not outside. Just to the nearest room with a door I could lock—the laundry room.
+
+I’ve been in here for almost an hour, scribbling all this into a notebook by flashlight. The thing hasn’t moved. I can hear it breathing just outside the door. Slow. Wet. Eager.
+
+And I think it’s getting in soon.
+
+Because it’s not saying my name anymore.
+
+It’s saying something else now.
