@@ -1,108 +1,140 @@
-# I often talk to my own reflection. Last night, it answered.
-Ever since I was a kid, I’ve had this odd habit of talking to myself in the mirror. Not in a “You can do this!” pep-talk way (well, sometimes), but more like… holding a conversation. I’d stand in front of the bathroom mirror and imagine my reflection was a separate person – a twin who lived on the other side of the glass. I called him Other Me.
+# I made a deal with the vampires that live near my house.
+If you drive past the old city hall and turn left at the dairy farm on the river’s edge, you’ll find an old bridge with three street lamps. That’s where the vampires live.
 
-My parents caught me chatting with my reflection a few times and thought it was cute or just harmless imagination. As I grew up, I did it less, but even in my 20s I’ll admit I sometimes mutter to my mirror self. It’s like a weird self-soothing thing. I live alone, and on tough days I’ll stare at the mirror and softly say, “Man, what a day, huh?” and pretend Other Me is commiserating silently.
+No one knows when they first appeared or why they’re there. We just live with them and hope they don’t harm the ones we love.
 
-I never expected a response. Why would I? It was just me, after all.
+My name is Violet and I’m the only person who’s ever seen them…and returned home to talk about it.
 
-But last night… last night, Other Me talked back.
+It was just last month. Mom and Dad had sent me to bed. Vanished into their room to binge TV. It’d been an intense night of arguing.
 
-It was around 2 AM. I hadn’t been sleeping well; too much on my mind. Some personal failures, a recent breakup, job stress – the usual late-night demons. I got up to get a glass of water and ended up standing in front of the small mirror mounted on my living room wall. (There’s a mirror in practically every room of my apartment – not because I’m vain, but they were left by the previous tenant and I just never removed them.)
+We’d fought like that, nonstop, ever since my brother, Jaime, died in the car accident. It was the heartache, splitting us apart. Making us miserable.
 
-The living room was dark, only faint city light filtering through the blinds. My reflection was just a pale ghost outline in the dimness. I don’t even know why I stopped there, but I found myself whispering, “I wish I could just be on the other side of this mirror. Maybe things would be better there.”
+Well…I found a way to solve all of it.
 
-It was just a passing weird thought – the kind you have when you’re melancholy. I started to turn away, chalking it up to overtired brain, when I heard my own voice whisper back from the silence:
+As soon as my parents were asleep, I cracked open my window. Grabbed my backpack. And climbed down to my bicycle below.
 
-“Do you really?”
+It took about two hours before I finally reached the bridge. The place was eerie, surrounded by darkness except for those three street lamps.
 
-I froze. A chill rippled over me. The whisper had been soft, barely audible, but unmistakably real. It sounded like me – but not an echo. The cadence was slightly off, the tone quieter.
+I dismounted my bike, leaned it against the railing, and waited.
 
-At first I thought I had finally cracked – full on auditory hallucinations. Heart pounding, I faced the mirror again and leaned closer. In the low light, I could make out my face, wide-eyed, looking as freaked out as I felt. “Hello…?” I breathed, feeling immensely silly and scared.
+About five minutes passed and I heard rustling. A slight breeze brushed my hair as…
 
-My reflection’s lips moved, but I hadn’t moved mine. “Hello,” he said.
+…a pale figure, six feet tall, descended onto the railing, bound in a black leather trench coat, ears pointed like an elf’s.
 
-I stumbled backward because in that split second I realized the reflection’s mouth didn’t sync perfectly with the word. There was a tiny delay. Also, I hadn’t actually heard the word with my ears – it was more like I “felt” it echoing in my head, but still distinctly not originating from me.
+This was Pointy Ears.
 
-I flicked on the nearest lamp. Bright light flooded the mirror and I stared. It was me there – same rumpled hair, same old Iron Man t-shirt, same shocked expression. He copied as I raised a trembling hand. For a long minute I thought I had imagined it all.
+“You shouldn’t have come here, Warm Blood,” he said, stepping down from the railing.
 
-Then Other Me’s lips curled into a small, wry smile. My own face in the real world was still frozen in fear, mouth open. But mirror-me smirked slightly. I lifted my hand to touch my lips – I definitely wasn’t smiling. Yet he was.
+I unslung my backpack. Pulled out a clove of garlic.  
 
-I jerked back, my mind doing somersaults. This can’t be happening, I thought. Reflections don’t just… go off-script. By nature, they copy you exactly, simultaneously. Unless I had somehow delayed perceptions or a brain aneurysm making me see things?
+“I didn’t come all this way to talk to a lackey,” I said. “Where’s your leader?”  
 
-Determined to test reality, I slowly raised my right arm. The reflection raised his left arm (as expected, since mirrors flip) – but there was the tiniest hesitation, like he reacted a hair too slow. I waved my arm gently; he waved back, motion almost mirroring mine… almost.
+Pointy Ears slunk back. The garlic’s strong scent frightened him. He knew I was serious.
 
-My voice came out a shaky whisper: “Who… what are you?”
+Then, another cold breeze swept past us.
 
-Other Me cocked his head. I saw fear in his eyes too, or maybe I projected mine. His lips parted, and I braced. In my head, I heard (or thought I heard): I’m you. Who else would I be? It sounded playful, almost teasing, but with an underlying tremor.
+Two other forms, wearing the same garments as the first, appeared before me.
 
-My reflection’s expression didn’t exactly match the tone. He looked a bit sad, if anything.
+One was gaunt and looked like a creature who hadn’t fed in centuries. The other was a woman, or used to be, with flowing hair and deep rose-colored eyes.
 
-I swallowed. This was insane. Maybe I was dreaming? I bit my tongue – it hurt. Awake, then.
+This was Rose Eyes. She was the one I was after, the leader of the vampires.  
 
-“People don’t talk to their reflections,” I said slowly, feeling ridiculous for stating the obvious to… myself.
+“You must have a death-wish, Warm Blood,” she hissed, with a voice both beautiful and dark. “What do you want?”
 
-Other Me shrugged (I did not, I stood rigid). The effect was jarring – seeing me move independently. He responded, audibly in my mind again: We’ve talked every day for years. You just never listened until now.
+“To make a deal.”
 
-A memory stirred. All my childhood mirror chats, my venting sessions as an adult… those were one-way, right? I never heard a reply. Surely I’d remember that. Unless it was always subconscious, and now… what, the barrier broke?
+She leapt to the ground. The other two crept close on either side, hemming me in.
 
-I realized I was trembling. I forced myself to breathe. If this was some psychotic break, might as well ride it out. If it wasn’t… then it was something unreal and potentially dangerous, but it hadn’t threatened me. It – he – was basically me, seemingly.
+“The dead do not make deals with the living.”
 
-I opted to continue the conversation, carefully. “Why now?” I asked. “What changed that you… can speak?”
+I held out the garlic. Fear knotting my stomach. For the first time, I felt uncertain: ‘What was I doing here?!’
 
-My reflection bit his lip (a nervous habit of mine). You wanted me to, he said. You needed someone and you wanted me to be real. There was a weight to those words, a gentle reproach.
+With the speed of a cobra, Rose Eyes snatched the garlic from my fist. Crushed it in her palm. Licked the juice from her fingers.
 
-Tears suddenly pricked my eyes. He wasn’t wrong – I’d been desperately lonely and talking to an empty apartment for weeks after my breakup. But hearing it from my mirror self gave it a whole new pathetic sheen. I looked down in shame.
+Pointy Ears laughed as I gawked in disbelief. This wasn’t supposed to be happening. Vampires were afraid of garlic, right?!
 
-He spoke again, voice soft in my head: Hey, it’s okay. That’s why I’m here.
+“How did you—?”
 
-I looked up, blinking. He had pressed a palm to the glass on his side, an empathetic gesture. Reflexively I raised mine to meet it. A thin sheet of cold glass separated my skin from… whatever his was. Mirror-me’s eyes, identical to mine, gazed at me with understanding.
+“Your history books don’t mention my kind,” Rose Eyes hissed. “If they did, you’d know the standard deterrents don’t work.”
 
-It was utterly surreal, yet my fear eased, replaced by a tentative wonder – and relief. I can’t overstate how relieving it was to feel like someone truly understood my feelings, even if that someone was technically me. It was like all the self-directed pep talks suddenly gained a comforting new dimension.
+“What are you?”
 
-We “talked” like that for what felt like hours. I honestly don’t remember everything; some part was like a lucid dream where you just know what the other is conveying without formal language. I recall we sat on the floor, me on my side, him on his. I occasionally spoke aloud in whispers; he mostly replied in my mind, or maybe I just heard him through the glass – the distinction blurred.
+She just smiled.
 
-I poured out my anxieties: how I felt like a failure, how I worried I’d die alone, how sometimes I saw no future for myself. He listened patiently, nodding, sometimes interjecting a “I know” or “I feel it too.” It was oddly comforting to have this essentially perfect empathetic reflection (literally) of my innermost thoughts responding.
+My mind drifted back to my house. I envisioned my parents waiting for me on the porch. Begging me to come home. Praying for a second chance for us to be happy.
 
-At one point I joked, “Am I just talking to myself in a really elaborate way?” He smirked and said, Perhaps. But does it matter? Good point, honestly.
+I reached into my bag. Grabbed my crucifix.  
 
-By the end of it, I felt emotionally spent but a little lighter, having gotten so much off my chest. I noticed dawn was lightening the window. My reflection noticed too, glancing toward the horizon beyond his own window (which weirdly, I saw the faint shape of behind him – was I glimpsing his room? It looked identical to mine).
+“That won’t be necessary.” Rose Eyes said, waved her hand.
 
-“It’s morning,” I said, suddenly panicked. “This wasn’t a dream, was it?”
+I went still. The crucifix and backpack fell. Trinkets scattered: a bottle of blessed water…a wooden stake.
 
-He gave me a sympathetic half-smile. No, it wasn’t. But you’ll be okay. He looked like he wanted to say more, but a sort of heaviness seemed to fall in the air. The first rays of sun crept across my floorboards.
+Pointy Ears and Gaunt One leapt back, startled by the items. But Rose Eyes perused each one, curious, then shoved me back toward the railing. Her face inches from mine.
 
-I realized that in the entire conversation, neither of us had crossed a certain line – physically. We stayed each on our side. Some instinct told me that was important.
+“What do you want?”
 
-I stood up and he mirrored me. We regarded each other in full morning light now. It was still me – same messy hair, slightly puffy eyes from crying, stubble needing a shave. But that independent glint remained.
+“…to be like you.”
 
-I wasn’t sure how to conclude… whatever this had been. “I guess… thank you,” I said lamely. “I really needed that.”
+She tilted her head, curious.
 
-My reflection placed his hand on the glass again. I did too. He quietly replied, Anytime. Then, with a small, slightly sad smile, he added: Don’t forget I’m here, even if you can’t hear me.
+“My parents hate me. All we do is fight. My brother’s…gone. No one at school likes me and there’s no reason for me to live so…” I exhaled, feeling the weight lift off my shoulders. “I want to be dead. Like you.”
 
-I nodded, throat tight, and turned away. I desperately needed sleep, or coffee, or both.
+Rose Eyes turned to Gaunt One. He just licked his lips, said: “Give her what she desires.”
 
-As I left the mirror, I swear I saw out of the corner of my eye something odd: my reflection wasn’t walking away at the same time I was. He stayed at the mirror, watching me leave. I didn’t turn back to look straight on. I… didn’t want to break whatever spell or agreement kept this peaceful.
+Rose Eyes slammed me against a street lamp. Tore open my jacket, exposed my throat. Bared her fangs.  
 
-I collapsed into bed and slept a solid few hours. When I woke just before noon, the events of the night rushed back. To my astonishment, I hadn’t hallucinated or dreamt it (at least I don’t think so). The emotional clarity and catharsis I felt was real. But I was also left with so many questions.
+“Wait!” I shouted. Peering up at her. “Does it…hurt?”
 
-What exactly is Other Me? A sentient reflection? An alternate universe version of me that I somehow communicated with? A figment of my subconscious given form? He claimed to be me, but clearly he has his own perspective. Perhaps the mirror is a barrier between parallel worlds and ours touched briefly?
+“Of course it does.”
 
-It’s crazy, but a part of me wants to experiment more, see if it happens again. Another part is scared – what if I open some floodgate that’s better left closed? What if by acknowledging him, I’m weakening the natural laws that keep reflections non-sapient?
+Her teeth sank into me. Ripping into my flesh. It was agonizing. My knees buckled as I gasped. Held in her impossible grip.
 
-My biggest concern: what does he want? So far, it seemed just to comfort and help me. But is there a chance he envies me for being on this side? Is his world the same as mine, or a prison of glass? He did ask, “Do you really [wish you were on the other side]?” as if maybe he’d trade places given the chance.
+I wanted to scream. But a hand pressed against my mouth. It was Pointy Ears, silencing me.
 
-I recall in folklore, mirrors can hold spirits or demons. I don’t sense malice from Other Me. If anything, he was benevolent and caring. But if he is truly me, he has my darkness too – my anger, my envy, my capacity for selfishness. Would he eventually act in his own interest above mine?
+I was so scared. Fear flooded my face as I stared into Rose Eyes’ merciless gaze.
 
-For now, I’m proceeding cautiously. Last night, I tried deliberately to call out to him in the mirror again, but got nothing. Just my normal reflection. I even said, “If you’re there, can we talk?” Nada. I wasn’t in a particularly emotional state though. Perhaps the connection only manifests when certain conditions are met (time of night, emotional need, etc.).
+And yet…I felt peace at the same time. I was so tired. I just wanted to sleep.
 
-I’m writing this partly to get it off my chest (though ironically I did that thoroughly with myself already), and partly to see if anyone else has experienced something similar.
+…just wanted to sleep…
 
-As insane as it sounds, I’m now half-convinced that reflections are more than they appear. Maybe 99.999% of the time they mimic us exactly – but in that tiny fraction of liminal moments (early hours, mental vulnerability, whatever), maybe the mirror opens a bit, and the echo gains a voice.
+***
 
-I miss him – is that weird? It’s only been one real “conversation” but it felt like finding a long-lost twin. I’m worried about him too: if he is another me, what’s his life like when I’m not looking? Does he only exist when I see him, or does his world continue parallel to mine? The glimpse of his apartment window in the mirror… maybe he has a full life over there.
+When I opened my eyes, I was in my bedroom. Still in the same clothes. Blankets piled on top of me.
 
-And the thought creeps in: perhaps I’m the reflection, and he’s the original. But no, that’s solipsistic paranoia.
+I remembered the night before. Sat up. Felt my neck, fingers searching for a scar. Found none.
 
-Anyway, I’ll update if anything new happens. I’m a little nervous that by posting this, I might anger whatever cosmic or psychological forces allowed it to happen. The last thing I want is to lose the one “person” who truly understands me.
+I held up my phone. Scanned every inch of my throat with the camera. No signs of any struggle. And there, under the bed, was my backpack filled with trinkets.
 
-So I’ll keep talking to my reflections, even if they stay silent – with a newfound respect that maybe, just maybe, someone is listening on the other side. And if your mirror ever answers you… well, you’re not alone (in more ways than one).
+“Damn.” I stared at the clock: Six AM.
+
+The entire sequence had been a dream.
+
+I glanced to the window. The sun was rising. School, the place I hated most, would be starting soon.
+
+I hopped out of bed. Pulled the curtain aside.
+
+“Ouch!” I stepped back. Pain shotgunning through my body.
+
+I looked down. There on my wrist was…a small patch of burned skin.
+
+The sunlight had hurt me!
+
+I closed the blinds. Breathing heavily, allowing the oxygen to fill my lungs.
+
+It was the first time I noticed…my eyes…in the vanity mirror.
+
+They were rose-pink.
+
+And my teeth…
+
+I opened my jaws and they came out…incisors sharp as a piranha’s.
+
+Rose Eyes had fulfilled my wish.
+
+She had given me a new life.
+
+Not as a vampire…but as something else.
+
+I couldn’t wait to start my day.
+
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1kqbpso/the_legends_are_real_dont_go_near_the_old_bridge/?share_id=8T4b2skgoWJu4SckZfLoz&utm_content=1&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
