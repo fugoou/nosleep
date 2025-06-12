@@ -1,140 +1,22 @@
-# I made a deal with the vampires that live near my house.
-If you drive past the old city hall and turn left at the dairy farm on the river’s edge, you’ll find an old bridge with three street lamps. That’s where the vampires live.
+# The Tune That Took Me
+I don’t know how to start this, but I need to get it out before it gets worse. I'm just a dude who works at a warehouse and likes to game. Nothing weird about me, never believed in ghosts or any of that crap. But something’s happening, and I can’t shake it. It’s this… song. Yeah, a song. Sounds dumb, right? But it’s not. It’s in my head, and it’s not just a catchy tune—it’s doing something to me. To my life. I’m posting this here cause I don’t know where else to go. Maybe someone’s heard this thing before.
 
-No one knows when they first appeared or why they’re there. We just live with them and hope they don’t harm the ones we love.
+It started two weeks ago. I was scrolling YouTube late at night, you know, the usual rabbit hole of dumb videos. Found this weird clip, no thumbnail, just a black screen with the title “Listen Once.” No channel name, no comments, no likes, just… there. I clicked it cause I was bored. Big mistake. It was this melody, no lyrics, just a looping tune—kinda like a music box but off, like it was played on rusty strings. It wasn’t creepy at first, just… stuck with me. I hummed it after the video ended, couldn’t stop. Didn’t think much of it, closed my laptop, went to bed.
 
-My name is Violet and I’m the only person who’s ever seen them…and returned home to talk about it.
+Next morning, it’s still in my head. Like, LOUD. I’m brushing my teeth, and I’m humming it without thinking. I try to listen to my usual playlist—metal, rap, whatever—to drown it out, but it’s like the tune weaves into every song. I’d hear Metallica, but underneath, that creepy melody was there, twisting the riffs. I got annoyed, figured it was just an earworm, you know? Like when “Baby Shark” gets stuck in your brain. But this felt… heavier.
 
-It was just last month. Mom and Dad had sent me to bed. Vanished into their room to binge TV. It’d been an intense night of arguing.
+By day three, shit got weird. I’m at work, moving boxes, and I notice I’m stacking them in a rhythm. The same rhythm as the tune. My coworker,  he’s like, “Yo, you good? You’re humming that creepy shit all day.” I laughed it off, but I didn’t even realize I was doing it. That night, I’m home, and my dog, Rusty, starts acting up. He’s whining, staring at me, like he’s freaked out. I’m humming again, and he bolts to the corner, tail tucked. I stop, and he calms down. I start again—by accident—and he loses it, barking like I’m a stranger. I shut up quick.
 
-We’d fought like that, nonstop, ever since my brother, Jaime, died in the car accident. It was the heartache, splitting us apart. Making us miserable.
+I tried to find the video again. Searched “Listen Once” on YouTube, Google, everywhere. Nothing. Like it never existed. I even checked my browser history—gone. That’s when I started feeling watched, you know? Like something was listening to ME hum the tune. I’d be in my apartment, alone, and hear this faint echo of it, like it was coming from the walls. I’d stop humming, and it’d stop too. But sometimes… it didn’t. One night, I woke up at 3 a.m., pitch black, and the tune was playing. Not in my head—out loud, from my living room. I grabbed my bat, crept out, but nothing was there. No phone, no speakers, just silence when I flipped the light on. My heart was pounding so hard I thought I’d pass out.
 
-Well…I found a way to solve all of it.
+Things got worse. I started seeing stuff. Not like monsters or ghosts, but… patterns. The tune was changing things around me. I’d pour coffee, and the steam would swirl in the same rhythm as the melody. The clock in my kitchen—digital, mind you—started ticking in time with it. One night, I’m walking home from a bar, and the streetlights are flickering, matching the beat. I know it sounds crazy, but it’s like the world was syncing up with this damn song.
 
-As soon as my parents were asleep, I cracked open my window. Grabbed my backpack. And climbed down to my bicycle below.
+Then came the voices. Not clear ones, not like “hey , I’m a demon.” Just whispers, mixed into the tune, like they were part of it. I’d hear them when I was alone, saying stuff like “keep going” or “sing it.” I stopped humming after that, clamped my mouth shut, but the tune kept playing in my head, louder, like it was pissed I wouldn’t let it out. I tried earplugs, blasting music, even went to a doctor. He said it was stress, gave me pills. They didn’t do shit. The tune got so loud I couldn’t sleep. I’d lie there, feeling it pulse in my skull, like it was trying to crawl out.
 
-It took about two hours before I finally reached the bridge. The place was eerie, surrounded by darkness except for those three street lamps.
+Last week, it took over. I was at the warehouse, and I blacked out. Not like fainting, but like I wasn’t me. My colleaguesaid I was stacking boxes, humming that tune, but my eyes were… wrong. He said they were blank, like I was sleepwalking. I don’t remember any of it. When I “woke up,” I was standing in the break room, holding a box cutter, and Mike was yelling at me to snap out of it. There were scratches on my arms, deep ones, in a pattern that matched the tune’s rhythm. I didn’t do that. I swear I didn’t.
 
-I dismounted my bike, leaned it against the railing, and waited.
+I stopped going to work after that. Locked myself in my apartment, unplugged everything, even taped over my laptop’s webcam. But the tune’s still here. Last night, I saw something in the mirror. Not my reflection—well, it was, but it wasn’t ME. My face was smiling, humming the tune, while I stood there, frozen, not making a sound. The reflection’s mouth moved, and I heard the melody come from it, clear as day. I smashed the mirror, cut my hand bad, but the blood on the floor… it pooled in shapes, like musical notes.
 
-About five minutes passed and I heard rustling. A slight breeze brushed my hair as…
+I don’t know what this thing is. It’s not just a song. It’s alive, and it’s using me. I can feel it digging deeper, like it’s rewriting who I am. I’m scared to sleep, scared to leave my place, scared to even think too loud. If I hum it again, I don’t know what’ll happen. Maybe it’ll take me completely. Maybe I’ll end up like that reflection, just a puppet for the tune.
 
-…a pale figure, six feet tall, descended onto the railing, bound in a black leather trench coat, ears pointed like an elf’s.
-
-This was Pointy Ears.
-
-“You shouldn’t have come here, Warm Blood,” he said, stepping down from the railing.
-
-I unslung my backpack. Pulled out a clove of garlic.  
-
-“I didn’t come all this way to talk to a lackey,” I said. “Where’s your leader?”  
-
-Pointy Ears slunk back. The garlic’s strong scent frightened him. He knew I was serious.
-
-Then, another cold breeze swept past us.
-
-Two other forms, wearing the same garments as the first, appeared before me.
-
-One was gaunt and looked like a creature who hadn’t fed in centuries. The other was a woman, or used to be, with flowing hair and deep rose-colored eyes.
-
-This was Rose Eyes. She was the one I was after, the leader of the vampires.  
-
-“You must have a death-wish, Warm Blood,” she hissed, with a voice both beautiful and dark. “What do you want?”
-
-“To make a deal.”
-
-She leapt to the ground. The other two crept close on either side, hemming me in.
-
-“The dead do not make deals with the living.”
-
-I held out the garlic. Fear knotting my stomach. For the first time, I felt uncertain: ‘What was I doing here?!’
-
-With the speed of a cobra, Rose Eyes snatched the garlic from my fist. Crushed it in her palm. Licked the juice from her fingers.
-
-Pointy Ears laughed as I gawked in disbelief. This wasn’t supposed to be happening. Vampires were afraid of garlic, right?!
-
-“How did you—?”
-
-“Your history books don’t mention my kind,” Rose Eyes hissed. “If they did, you’d know the standard deterrents don’t work.”
-
-“What are you?”
-
-She just smiled.
-
-My mind drifted back to my house. I envisioned my parents waiting for me on the porch. Begging me to come home. Praying for a second chance for us to be happy.
-
-I reached into my bag. Grabbed my crucifix.  
-
-“That won’t be necessary.” Rose Eyes said, waved her hand.
-
-I went still. The crucifix and backpack fell. Trinkets scattered: a bottle of blessed water…a wooden stake.
-
-Pointy Ears and Gaunt One leapt back, startled by the items. But Rose Eyes perused each one, curious, then shoved me back toward the railing. Her face inches from mine.
-
-“What do you want?”
-
-“…to be like you.”
-
-She tilted her head, curious.
-
-“My parents hate me. All we do is fight. My brother’s…gone. No one at school likes me and there’s no reason for me to live so…” I exhaled, feeling the weight lift off my shoulders. “I want to be dead. Like you.”
-
-Rose Eyes turned to Gaunt One. He just licked his lips, said: “Give her what she desires.”
-
-Rose Eyes slammed me against a street lamp. Tore open my jacket, exposed my throat. Bared her fangs.  
-
-“Wait!” I shouted. Peering up at her. “Does it…hurt?”
-
-“Of course it does.”
-
-Her teeth sank into me. Ripping into my flesh. It was agonizing. My knees buckled as I gasped. Held in her impossible grip.
-
-I wanted to scream. But a hand pressed against my mouth. It was Pointy Ears, silencing me.
-
-I was so scared. Fear flooded my face as I stared into Rose Eyes’ merciless gaze.
-
-And yet…I felt peace at the same time. I was so tired. I just wanted to sleep.
-
-…just wanted to sleep…
-
-***
-
-When I opened my eyes, I was in my bedroom. Still in the same clothes. Blankets piled on top of me.
-
-I remembered the night before. Sat up. Felt my neck, fingers searching for a scar. Found none.
-
-I held up my phone. Scanned every inch of my throat with the camera. No signs of any struggle. And there, under the bed, was my backpack filled with trinkets.
-
-“Damn.” I stared at the clock: Six AM.
-
-The entire sequence had been a dream.
-
-I glanced to the window. The sun was rising. School, the place I hated most, would be starting soon.
-
-I hopped out of bed. Pulled the curtain aside.
-
-“Ouch!” I stepped back. Pain shotgunning through my body.
-
-I looked down. There on my wrist was…a small patch of burned skin.
-
-The sunlight had hurt me!
-
-I closed the blinds. Breathing heavily, allowing the oxygen to fill my lungs.
-
-It was the first time I noticed…my eyes…in the vanity mirror.
-
-They were rose-pink.
-
-And my teeth…
-
-I opened my jaws and they came out…incisors sharp as a piranha’s.
-
-Rose Eyes had fulfilled my wish.
-
-She had given me a new life.
-
-Not as a vampire…but as something else.
-
-I couldn’t wait to start my day.
-
-[Part 2.](https://www.reddit.com/r/nosleep/comments/1kqbpso/the_legends_are_real_dont_go_near_the_old_bridge/?share_id=8T4b2skgoWJu4SckZfLoz&utm_content=1&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
+If anyone’s heard this song, or seen that video, please, tell me. I need to know how to stop it. I’m posting this now cause I don’t know how much longer I can fight it. The tune’s playing as I type this, louder than ever, and my fingers are moving to its rhythm. I don’t want to sing. I don’t want to let it out. But it’s so hard to stop.
