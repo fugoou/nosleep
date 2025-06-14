@@ -1,19 +1,88 @@
-# A beautiful house
+# My Daughter’s Imaginary Friend Knows Things She Shouldn’t—Now She’s Not Imaginary Anymore
+I should’ve known something was wrong when my daughter, Lucy, told me her new imaginary friend had a last name.
 
+“Her name’s Iris Weaver,” she’d said, matter-of-fact, clutching her stuffed rabbit. “She lives in the wall behind my closet.”
 
-For the past i dont now how many years well i know exactly how many years i have hated this life not necessarily my own life but this boring life on earth. Watching movies and TV shows really has affected my brain and i always go to sleep expecting some supernatural will occur when i wake up the next morning .I had tried every thing putting up charms when i go to sleep or researching about astral travels and how people have been able to go to other world through it . It has been about 6 years since i have been expecting something like that to happen.
+I laughed at first. Kids are weird. But the details started piling up—details too specific to be made up. Iris liked strawberry ice cream. She hated thunderstorms. She used to have a brother who drowned in a creek when she was “almost seven.” Lucy even drew pictures of her. Pale girl, long black hair, black eyes. Not brown—black. No whites.
 
-But i thought to myself to put an end to it. i wanted myself to pull out from this world that i had created myself in my head that didn't exist i thought that maybe something really supernatural will happen and i will be able to live the life that i wanted to live. A  life full of hope and adventure and i would have gladly given up this life of mine to live that life at any cost. I thought that maybe that is something i always had been using to cope and escape from my real world problems, so i gave it up I STOPPED hoping for anything supernatural or out of this word to happen and when i went to sleep forever letting go of that hope that something will finally change.
+“Why doesn’t Iris come play when Mommy’s home?” I asked once, joking.
 
-The first few weeks i felt happier than i had ever been before . But something really were changing at that time that i had put up a blind eye to. The G string of my guitar that would always go out of tune or that face of a baby i saw when ever i entered my room. I thought these were mere nothings and coincidences cause i didn't want my self to expect something magical to happen to me again  and cling on to that world of imagination and runaway from my life. The "coincidences" that i thought that were mere nothings really started to pile up in my 3rd week. Now, at this point my house was filled with eyes that were constantly staring at me but i thought of this as something my brain was creating out of frustration.
+Lucy’s answer made my skin crawl.
 
-Months passed, but i never stopped seeing weird things now i had been basically living with them. Everywhere i went i  saw them staring at me every moment. My life had been filled with them but i pretended not to notice them at all and kept continuing with my ordinary life. After about a month i stopped seeing those faces but the eyes haunted me every where i went. I started doubting if i was the only one who saw these things so i asked my coworker but he reacted weirdly. That's then i knew that something was wrong with me i hoped that just like how those faces disappeared these eyes would too but 3 months passed nothing happened. At this moment i started seeing eyes Infront of my mirror when i tried to see my reflection and in photos when i clicked a picture of myself. I started to look at my old group photos in my highschool days what i found shocked me there was just a big eye instead of me. I started to freak out i panicked I started vomiting because of the disgust but later those vomits would also contain eyes who would only look at me.
+“She says Mommy doesn’t believe, and that makes her angry.”
 
-Several months had passed but one day i was able to astral travel a thing that i had not been able to do in my entire life. I saw a dark room whispereing one sentence in a loop "you want a different word?". At that moment i was happy that what had been a dream for so long would finally come true. My brain stopped thinking because of my happiness. I said yes in a loud manner the moment i answered yes i woke up. I was happy to know that i would be in a different world.
+The next day, our cat, Pickle, clawed a hole through Lucy’s closet wall. I found him dead that night in the hallway, mouth full of blood and fur, eyes wide open. The vet said he must’ve had a seizure.
 
-I RAN outside to see but what i saw was a world where there was no one and that word which resembeled mine a word where there were eyes every where staring at me constantly not only in my house but in the buildings, sewers, i look up tp the sun but there was a massive  eyeball looking down on my i was terrified i saw shadows of people i knew whispering i just saw shadows roaming around my i was so terrifies that i could have gotten a heart attack. Breathing heavily i continued to explore this world i saw dead bodies of people i didn't know. Bodies that were hanging in the streets.
+I tried to ignore it. Told myself Lucy was just creative. Kids invent things to cope, right? Her mom had left a year ago. Maybe Iris was just grief in a cute dress.
 
-I felt like i needed to leave this world i started to notice notice loud noises from the sewers. I cried and begged and cried so hard that my eyes would have popped out i begged so hard that my lungs would come out i begged and begged to get out of this world. 3 days i begged and cried. My vocal chords were destroyed. I realized that no matter how much i begged this eyes would just stare at me. One more month passed, then i realized everything. I was the one who chose this world i kept seeing eyes everywhere because i was still wishing for something supernatural to happen. Deep down i still hated my own world and at the end when i was given an option to accept that word i rejected it without thinking twice. As a result my own world rejected me that was the reason no matter how much i begged i couldn't go back. i thought to my self if i had answered "no" maybe i could have lived a live worth living with no eyes staring at me i would have made friends, got married and had children and lived an ordinary life.
+Until Lucy stopped sleeping.
 
-At the end i grabbed a rope which was on dead body. I went up to a building i found a fan and i hung myself while i was surrounded my the eyes. I regretted the decision that i had made. When i was close to death i saw the faces that i used to see in my room that had disappeared surrounding me and staring at me. Thats where i closed my eyes forever. THE END.
+“She watches me,” she whispered one night, trembling under the covers. “From the closet. She doesn’t blink.”
 
+I moved Lucy into my room. Bolted her closet door shut. Set up a baby monitor just in case.
+
+That night, I heard whispering.
+
+It wasn’t Lucy.
+
+It wasn’t English.
+
+The monitor crackled with a voice that sounded like water—gurgling, dripping, gasping. It got louder, until it was shrieking.
+
+I ripped the plug out of the wall.
+
+The next morning, Lucy was back in her closet. I found her sleeping in the fetal position with dirt under her fingernails and mud streaks on her face. The bolts hadn’t been tampered with.
+
+I checked the wall where Pickle had scratched. It felt…soft. Like wet plaster. I pressed harder and the drywall caved in—like a bubble. Behind it was a cavity. Too large to be a normal wall gap. Almost like a narrow hallway.
+
+I didn’t go in.
+
+That night, I set up a camera in the hallway, facing Lucy’s door. I was too scared to put one in her room.
+
+At 3:13 a.m., the hallway camera glitched—then showed the door creak open on its own.
+
+Then a hand—white, too long, with six fingers—wrapped around the edge and pulled the door shut again. There was a low scraping noise, like something dragging across the floor.
+
+I showed the footage to a friend who works in video editing. He went pale and asked, “What’s wrong with her arm?”
+
+“It’s not Lucy,” I told him.
+
+I started sleeping in Lucy’s room. Nothing happened for three days. I thought maybe it was over. Maybe my mind had snapped from the stress, and now it was going back to normal.
+
+Then, Lucy whispered something that cracked me.
+
+“She wants to be born again,” she said, not looking at me. “She said she needs skin. That you’d fit.”
+
+I checked my chest in the mirror later that night. Just to see.
+
+There were fingernail marks—deep ones—below my ribs.
+
+I took Lucy and drove to my sister’s house three towns over. We stayed the night. Lucy was quiet, but didn’t cry. I started to think maybe it was working.
+
+Until I heard the closet door open in the guest bedroom.
+
+I ran in, expecting to find Lucy sleepwalking.
+
+But she was awake, staring at the wall.
+
+“Iris came,” she said. “She’s mad we left. She said you promised.”
+
+“I never promised anything.”
+
+“Yes, you did. The night Mommy left. You said you’d do anything to keep me safe.”
+
+Lucy smiled.
+
+“She heard you.”
+
+That night, I had the worst nightmare of my life. I was in the wall—her wall—and it went on forever. A wet, rotting tunnel of pale arms and faces whispering my name, over and over. I felt something growing inside me, like roots. When I woke up, my stomach was bleeding. I’d carved something into it in my sleep:
+
+I.W.
+
+I’m not safe. Lucy isn’t safe. We can’t run. She’s in the walls. She’s in me now.
+
+I’m writing this not for help, but for warning. If your child says they have an imaginary friend, listen. Ask questions. Check the walls.
+
+Because Iris Weaver is looking for a new home.
+
+And she only knocks once.
