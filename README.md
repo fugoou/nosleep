@@ -1,88 +1,39 @@
-# My Daughter’s Imaginary Friend Knows Things She Shouldn’t—Now She’s Not Imaginary Anymore
-I should’ve known something was wrong when my daughter, Lucy, told me her new imaginary friend had a last name.
+# Sanders Natural Area
+Beginning 4 years ago with an old classmate of mine called Glenn "Olive" Cure, Sanders Natural Areas previous reputation as a tranquil, if somewhat dull woodland area had altered due to missing persons cases piling up, with people travelling solo or in groups seemingly vanishing upon entering the woods. Does this sound like an ideal place to go camping for 2 days? According to me and my friends Billie, Frankie, Paula and Gerry, yes. 
 
-“Her name’s Iris Weaver,” she’d said, matter-of-fact, clutching her stuffed rabbit. “She lives in the wall behind my closet.”
+With it nearing Halloween, my droogs and I had decided to change our usual celebrations. The 5 of us were known to go all out for Halloween parties (2 of which got us on the Dean's shit list as well as the respect of the fraternity and sorority zombies), this time however the idea was to do something less expensive but still ballsy, something that would either secure our status as Halloween royalty or result in our photos being on the local news. My close friend Billie's failure to keep his mouth shut meant that any hesitancy or alternate plans for the 30th and 31st were now off the table. 
 
-I laughed at first. Kids are weird. But the details started piling up—details too specific to be made up. Iris liked strawberry ice cream. She hated thunderstorms. She used to have a brother who drowned in a creek when she was “almost seven.” Lucy even drew pictures of her. Pale girl, long black hair, black eyes. Not brown—black. No whites.
+October 30th had come, the drab but soothing sounds of October Rust comforted our ears while driving to what could be our burial ground. Speaking for myself though, exploring Sanders Natural Area was oddly relaxing, I guess the woods resembling a green and orange paradise along with the wind rustling the leaves making the perfect soundtrack will do that. Having been made responsible for Paula's camera, it was during filming that I noticed we weren't the only ones who decided to put their lives at stake, as my eyes were drawn to a figure in the distance appearing to wear a green hoodie and blue jeans. We were too pussy to enter that far as the blue sky darkened, but also Billie pointed out something vital, asking "Y'all know we forgot to set up camp right?" 
 
-“Why doesn’t Iris come play when Mommy’s home?” I asked once, joking.
+Darkness finally fell, unfortunaley the ambience was breif as while chowing on our nutritious meal of canned chilli and a party bag of tortilla chips (I'll admit it was refreshing to see Gerry use his lighter for something other than his daily pack of 20), the sound of feet crushing leaves caught everyone's attention. Innocent thoughts of an adorable critter went down the drain once the heavy breathing became more vocal, to the point we all yelled "What the fuck?" in unison. I'm still not sure how any of us got to sleep after that "Freaky shit", to quote Frankie. 
 
-Lucy’s answer made my skin crawl.
+A combination of the noises heard during dinner and the regret of agreeing to this slasher movie waiting to happen meant sleeping became a chore. The moon's beam was relaxing... For a few minutes as those footsteps made a comeback. Being the only one awake (to the best of my knowledge), a pseudo heart attack was developing as thoughts of whether to risk looking out or not went through my mind, it was then that I noticed I hadn't fully zipped the tent up so thankfully spotting who was out there without possibly being murdered was an option. 
 
-“She says Mommy doesn’t believe, and that makes her angry.”
+Moonlight proved to be a surprisingly spectacular spotlight to see who was raiding our designated site, and it turns out they appeared in a familiar green hoodie. This time though, details of their fashion that the distance had previously hid were noticeable, a slim frame whose green hoodie had seen better days, an admittedly cozy looking flannel shirt and shredded, dirt drenched light blue jeans practically holding on by a thread. A black surgeons mask meant anonymity was achieved, however something gave me a sense of deja vu. 
 
-The next day, our cat, Pickle, clawed a hole through Lucy’s closet wall. I found him dead that night in the hallway, mouth full of blood and fur, eyes wide open. The vet said he must’ve had a seizure.
+Before I could question where and when I had seen a similar, if more polished version of the ensemble, that pseudo heart attack rapidly felt real as The Figure started to approach my tent, sweat drenched me when my eyes caught a glimpse at a pair of chunky scissors. It seemed coincidental that I soon felt light headed as many questions forced their way into my brain. At the risk of sounding cowardly, it caused me to pass out. But before the darkness could shield my eyes and my hearing fully cut out, I picked up the faint sounds of a zip and Paula speaking, although to be honest a ringing sound made what she said a mystery. 
 
-I tried to ignore it. Told myself Lucy was just creative. Kids invent things to cope, right? Her mom had left a year ago. Maybe Iris was just grief in a cute dress.
+How long was I out for? Not sure, although thanks to a nostril piercing odor I'll describe as a hybrid of copper, onions, expired ham and, to be a bit more explicit, shit, I knew I wasn't dead. Unfortunately the relief didn't last long, not just because I woke up in a room with torn, blood stained wallpaper and mold in every corner, but also 4 important questions entered my mind:
+What happened to my shoes?
+Where am I?
+Are my friends OK?
+And most importantly,
+How long before I'm dead? 
 
-Until Lucy stopped sleeping.
+Thankfully whoever abducted me (take a guess who the culprit was) must have lacked intelligence because they forgot about the possibility of me escaping. The door being unlocked also appeared as an apparent sign of stupidity... At first. 
 
-“She watches me,” she whispered one night, trembling under the covers. “From the closet. She doesn’t blink.”
+This is when I understood my abductors intentions because as soon as I took one step out the room, a nail greeted my foot. A nail that not only pierced through the sole and the dorsum, but was so deep, I had to pry it out with a knife. I tried to hold back a scream but instead let out a demonic shriek, or I guess since I heard footsteps, an alarm would be more accurate. On one hand it seemed like any other house/cottage, albeit one that was due for demolition. Although on the other hand, I've obviously never been here before and if you combine that with dread along with practically being no better than prey, trying to find an exit was difficult. 
 
-I moved Lucy into my room. Bolted her closet door shut. Set up a baby monitor just in case.
+After finally finding the front door, brief moments of relief and bliss turned into paranoia, as if this was too good, it was then that my body started shivering. Then I noticed, blended into the green wallpaper was The Figure (this time with bloodier jeans and hoodie) waiting for me at the bottom of the stairs. Shivering turned into paralysis as they started moving closer.  Although something was off, their arms widened, no weapons in their hands or outlined in their pockets, and while they were still wearing their surgeons mask, I swear I could make out a smile. 
 
-That night, I heard whispering.
+My sanity had become non existent, do you want to know why? I let The Figure hug me. You're not reading that wrong, I let them wrap their arms around me. I let this possibly murderous masked maniac in blood and dirt soaked clothes who smelt only slightly better than the room they placed me in, hug me. This didn't snap me back into reality however, what really did was when his unusually soft tones uttered... 
 
-It wasn’t Lucy.
+"Hello M..." 
 
-It wasn’t English.
+And just before my name was spoken, I used what little strength I had to push him and I'll tell you what, when his head crash into the stairs, I rammed into the door so hard it broke off the hinges. Looking back or even stopping to take any splinters or shards of glass out only crossed my mind in retrospect, the only goal was to get far away from the cottage and make it back to camp before The Figure hunted me. While sprinting, my inner voice kept on demanding I look for Billie, Frankie, Paula and Gerry, regrettably I was too self-centered to listen or even think about taking the time to seek them. I suppose a reason (maybe a bullshit excuse) for being selfish was that daylight wasn't exactly my best friend. 
 
-The monitor crackled with a voice that sounded like water—gurgling, dripping, gasping. It got louder, until it was shrieking.
+As soon as the sky started to darken, accompanied by the sound of owls whistling and bats shrieking, panicking started to set in, despite searching for what felt like an hour there was still no sign that I was remotely close to the site. Having been out of breath I took a breif break next to a river, and even though daylight was fading I could still make out what was staring at me, a pale, bruised, frail, grimy greasy hair individual who regretted everything associated with this trip... Along with a carved and bloodied Billie tapping my shoulder. Even though I didn't feel his usually tender touch, it was still enough to cause a resurgence of energy, and while I didn't find the campsite, a family in a mini van willing to provide water and a ride to the hospital was still better than nothing. 
 
-I ripped the plug out of the wall.
+It's now June, yet despite the winning combo of graduating and getting a job in the field I was studying in, the events at SNA still haunt and remain fresh as if they just happened minutes ago. Every wall, window and fence in my hometown is plastered with at least 1 missing persons poster of my friends, reoccurring nightmares where I'm back at the woods being stalked by The Figure, sometimes by my friends looking at me with tears and disappointment, even by all 5 on a few occasions, not to mention the voices of my clique asking in distressed tones "Where are you?" 
 
-The next morning, Lucy was back in her closet. I found her sleeping in the fetal position with dirt under her fingernails and mud streaks on her face. The bolts hadn’t been tampered with.
-
-I checked the wall where Pickle had scratched. It felt…soft. Like wet plaster. I pressed harder and the drywall caved in—like a bubble. Behind it was a cavity. Too large to be a normal wall gap. Almost like a narrow hallway.
-
-I didn’t go in.
-
-That night, I set up a camera in the hallway, facing Lucy’s door. I was too scared to put one in her room.
-
-At 3:13 a.m., the hallway camera glitched—then showed the door creak open on its own.
-
-Then a hand—white, too long, with six fingers—wrapped around the edge and pulled the door shut again. There was a low scraping noise, like something dragging across the floor.
-
-I showed the footage to a friend who works in video editing. He went pale and asked, “What’s wrong with her arm?”
-
-“It’s not Lucy,” I told him.
-
-I started sleeping in Lucy’s room. Nothing happened for three days. I thought maybe it was over. Maybe my mind had snapped from the stress, and now it was going back to normal.
-
-Then, Lucy whispered something that cracked me.
-
-“She wants to be born again,” she said, not looking at me. “She said she needs skin. That you’d fit.”
-
-I checked my chest in the mirror later that night. Just to see.
-
-There were fingernail marks—deep ones—below my ribs.
-
-I took Lucy and drove to my sister’s house three towns over. We stayed the night. Lucy was quiet, but didn’t cry. I started to think maybe it was working.
-
-Until I heard the closet door open in the guest bedroom.
-
-I ran in, expecting to find Lucy sleepwalking.
-
-But she was awake, staring at the wall.
-
-“Iris came,” she said. “She’s mad we left. She said you promised.”
-
-“I never promised anything.”
-
-“Yes, you did. The night Mommy left. You said you’d do anything to keep me safe.”
-
-Lucy smiled.
-
-“She heard you.”
-
-That night, I had the worst nightmare of my life. I was in the wall—her wall—and it went on forever. A wet, rotting tunnel of pale arms and faces whispering my name, over and over. I felt something growing inside me, like roots. When I woke up, my stomach was bleeding. I’d carved something into it in my sleep:
-
-I.W.
-
-I’m not safe. Lucy isn’t safe. We can’t run. She’s in the walls. She’s in me now.
-
-I’m writing this not for help, but for warning. If your child says they have an imaginary friend, listen. Ask questions. Check the walls.
-
-Because Iris Weaver is looking for a new home.
-
-And she only knocks once.
+The local legend surrounding Sanders Natural Area has grown and is now dominated by rumors of apparent ghost sightings, and according to a phone call from my cousin who went there with his partner, it seems that while tattered and caked in dirt, the tents, Frankies car and an extinguished campfire and cast iron pot (flooded with rain water) might've been the catalyst. And for anyone curious, it's been weeks since that phone call.
