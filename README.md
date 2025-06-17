@@ -1,206 +1,137 @@
-# A job my coworker did at the theatre
-As I walked into the shop it was 8:05am. Smiling as if it was an improvement on yesterday’s 8:20am. I punched in and said hi to the heating boys and walked over to our new shop in the yard. As I exited the main shop to head to the plumbing shop, I could hear a high-pitched cawing followed by a low-pitched growling. I looked up to see Turd hanging by his fingertips from the sign, about 12 feet off the ground, on the new shop staring daggers at a pigeon. He was desperately swinging a box cutter in his free hand at it. 
+# In the curch where I work, all the icons are cursed. I'm trapped here forever.
+I came to work at the Church of Saint Anselm to escape everything. At the time, I thought a quiet position as a caretaker in a small town would give me room to breathe, a chance to forget.
 
-As I walked inside the boys were sitting in their usual spots waiting for Bob to give them the day's work. The shop's roster was for the better part lacking these days. Dennis, Bob, Darryl and Izzy were the only ones around after Trent and they left. 
+I wasn’t religious, but there was something in the calm of this place that touched me deep inside. Maybe it was the soothing silence of the pews or the way sunlight filtered through the antique stained glass, like the breath of God. I just needed quiet—and the church had plenty of it.
 
-“Morning boys! Sign looks good on the shop, they must've finished after I left last night,” I said with a smile on my face. 
+The church is located in Marrowick—a godforsaken town in upstate New York, lost among thick forests and forgotten highways. The people here are polite but guarded, the way folks tend to be in small towns. They’re never rude, but they don’t ask questions either. No one asked why a thirty-year-old guy from the big city moved into the church house. They were just glad someone was finally taking care of the place.
 
-“Oh fuck yea buddy,” said Dennis in a thick Albertan accent.
+Saint Anselm had stood empty for many years. The previous caretaker, an old man named Grady, had died under strange circumstances. No one knew the exact cause—some said heart failure, others claimed he simply “walked off and never came back.” I didn’t press the issue; I wasn’t particularly curious.
 
-At that moment a loud thud and cracking was heard outside. After that Lou was heard yelling about a broken windshield and how, “Louis Junior the Third, you are the most worthless piece of seed that ever came out of my balls,” or something similar. 
+The church was old, built back in the 19th century, with creaky floors and drafts in the hallways. The bell tower hadn’t worked in years, and the wooden pews had been polished to a shine by countless hands.
 
-Bob chimed in and grabbed everyone’s attention, “Izzy, you and Darryl are heading back to the tub you were installing yesterday and Dennis, take Jo with you to M. Canyon Cinema. The sewer is plugged up there.” 
+But the most disturbing thing—the thing that unsettled me the most—were the icons. There were too many of them. Not just the usual crucifixes and stained-glass depictions of saints that everyone’s used to, but large painted panels hung in odd places: beside the doors, above the confessional, even at the foot of the pulpit.
+They were old, clearly brought from far away. Eastern Orthodox in style—with flat, wide-open eyes and severe expressions. 
 
-“Fucking rights buddy,” Dennis said to me. 
+My whole life, this kind of art always gave me the sensation that I was being watched. Even if I knew I wasn’t, it still made me deeply uneasy.
 
-Dennis and I rarely work together these days as I'm almost done with my apprenticeship and we cost too much to send together. I figured Bob knew Old Man Canyon could afford it though. 
+I’m no expert, but it didn’t take a scholar to realize how strange it was to find icons like this in a Catholic church in rural America. They didn’t belong here—that’s what I thought. And maybe, I didn’t either.
 
-“Buddy, it's been so long. How's it feel in the big time?” Dennis asked.
+Then the strangeness began. At first, I blamed it on adjustment. I was alone in a massive, old building, full of creaks and groans. I thought I heard whispering now and then, but chalked it up to fatigue and sleepless nights.
 
-“Oh you know it's been stressful, I miss the days I didn't have responsibility,” I said reminiscing on my days working with Dennis. 
+Until the icons started to change.
 
-“We’ll do this job like old times eh?” Dennis said cheerfully. 
+At first, it was barely noticeable. One morning I saw red spots on the spear of Saint George near the entrance. My first thought was paint. Maybe it had always been that way and I’d just missed it. But then the eyes of the Virgin Mary on the icon near the stairs to the rectory began to shine—not from the light, but as though with tears. I bent down and stared at the image for a long time before touching the wood. Goosebumps ran down my arms when I realized it was damp.
+I wiped the surface, deciding there must be a leak in the wall. 
 
-We hopped in the van and began to drive towards the theatre. It was one of the oldest buildings in town. The only ones older were the city hall and the army base. Guess you need entertainment after the government and war are taken care of. It was rumoured Mr. Canyon owned the building since or shortly after it was built. That seemed strange as he looked to be about 35. 
+But the next day it happened again. The moisture was only on her face, as if the wood itself was crying.
 
-“Hey Dennis, you think it's true that Old Man Canyon has owned the building since 1935?” I asked playfully. 
+A week after I arrived, I woke around three in the morning. The house was dead silent, except for a faint rustling, like claws scraping stone. I assumed it was something in the walls—until I realized the sound was coming from the church itself. I threw on a sweater and padded barefoot across the cold floor. There was no need for light; moonlight poured in, bathing the hallway in silver.
 
-“Well, buddy’s been there since I started at Iceberg,” Dennis replied. 
+When I stepped into the sanctuary, the air changed. Subtly, but unmistakably—it smelled like the charged air before a storm. The pews were cloaked in shadow, and the icon of Saint Sebastian by the altar looked darker than usual. His wounds—tiny arrows in his chest—appeared fresh and wet. I swear on everything I have: they were bleeding.
 
-“Really? You sure that wasn't his dad or something? That was 20 years ago,” I said.
+I stood frozen for ten minutes, the metallic scent of blood in my nostrils. Then came the rustling again, louder and rhythmic now, from the direction of the altar.
 
-Dennis let the statement hang in the air for a minute before he began to speak again. 
+I moved forward, mouth dry, a lump in my throat. I rounded the pulpit—and everything fell silent. I looked behind the altar.
 
-“I ever told you about the first job I did at the movies?” Dennis asked seriously.
+Nothing. No rats, no fallen stones. Just a wooden cross and the icons. One of them made my heart stutter: a grim monk with eyes like black voids, holding a book inscribed with red symbols. I had never seen it before.
 
-Puzzled as I’d only ever seen him serious twice before. Once he asked me for a place to stay when his girlfriend found out about his other girlfriend. And again when I slammed his hand in the hood of the van when we were done checking the engine. It was a  “I’m not mad, I just want to punch you in the face,” statement.
+When I turned on the lights, the icon was gone. I couldn’t sleep for the rest of the night.
 
-“No, you haven't. Are you good buddy?” I asked concerned. 
+Things got worse in the days that followed. The icon of Christ in the sanctuary began to change expression. His once-serene mouth twisted into a deep scowl. His eyes followed me—not metaphorically, but literally. I tested it, pacing from side to side. They tracked me. One day, from the choir loft, I saw His hand raised in a gesture that hadn’t been there before: two fingers lifted in blessing… or warning.
 
-“Yeah, yeah. Don't worry, just a fucked up one is all. The old man asked us not to say anything about it to the cops, and seeing as you're not a cop and it was 20 years ago it don’t matter.” 
+I kept telling myself it was all in my head—maybe I was losing it. I’d gone through some sad, heavy shit in my life. Maybe it had cracked something inside me. I was too alone. That’s what I thought… until the dreams started.
 
-“Well, don’t tease me, get on with it.” 
+Too vivid—so much that I sometimes wondered if I was dreaming at all. I’d wake up drenched in sweat, heart pounding, unsure if I was still asleep.
 
-**Dennis**
+It was always the same place: the church, lit by candles. Icons covered every surface—walls, ceiling, even the floor—and they whispered in a language I didn’t understand. The rhythm of the words felt like a heartbeat. The Virgin’s face contorted in grief. Peter gnawed at his own hands. Christ’s wounds bled, flooding the air with the metallic stench. The worst part... was that when the icons changed in the dreams, they changed in reality too—becoming increasingly grotesque and terrifying.
 
-Fucking Iceberg Refrigeration was a joke of a company. You'd think by their advertisements and vans that all we did was fix your air conditioning, but no, one of the brain-dead bosses had a bright idea to expand into plumbing and heating. 
+At the end of each dream, the monk from the vanished icon appeared. Standing at the foot of my bed, book in hand, his mouth sewn shut with black thread. He’d point a bony finger at me, and that’s when the dream would end—not with waking, but with my scream.
 
-They had no fucking clue how to run a plumbing company. That's why I'm driving to the theatre at midnight to unblock the drain. As I arrived you could smell it. The putrid odour of about a thousand guests’ piss and shit. The journeyman I worked under would've said “Smells like money” at that moment. After I shook that dumb thought out of my head, I grabbed my auger, a big metal contraption that has a metal cable about 100 feet long inside of a drum. 
+I wanted to quit. This wasn’t what I signed up for. I told Father Bellamy, the parish priest, that I was feeling overwhelmed. I told him about the dreams. About what I saw in the church. He gave me a strange look—not pity, but… understanding. He didn’t try to talk me out of it. He just asked one question:
 
-I walk through the door and it is a dead theatre. I'd never seen it without the bustle of guests packed like sardines in the lobby. 
+"Have you opened the box in the sacristy?"
 
-I looked up at the marquise to see what was playing that night. 
+“What?”
 
-“When You Wish Upon a Star,” was the first of the three movies. It looked like a family flick. It wasn't a good enough movie to bring a chick that you wanted to bang too.  Next up was “Rabbit Season,” it was a horror flick about a hunter who was also a serial killer. I saw it a few days ago. I got laid after it. 10/10. The last movie was in the theatre directly beside the bathroom I was there to fix. It was called “Breakfast on a Wednesday,” it wasn't marketed as a horror movie, but more of a drama/ psychological thriller. It was the most horrifying movie I’d ever seen. It made sense why the toilets were blocked outside of that theatre. Goddamn movie would make you shit yourself. 
+He walked away without another word, leaving me stunned.
 
-I dragged my auger across the lobby towards the bathroom. There was water on the carpeted floor of the theatre hallway. At this point, I realized I hadn't talked to any staff, let alone seen any as I walked in. I felt drawn towards the problem. As I'm dragging my machine towards the washrooms down the dimly lit hallway I hear a soft voice say something behind me. 
+That night, I found the box. I hadn’t noticed it before—built into the base of a cabinet in the sacristy, hidden behind a false panel. Inside was a folder filled with yellowed pages. Notes, sketches of a strange religious nature, and a journal.
+Grady’s journal.
 
-“Are you the plumber?.” 
+I read the first few entries, my hands trembling uncontrollably.
 
-I wheeled around in fright because whoever that was just scared the shit out of me. To my surprise it wasn't a staff member, it was a large man looking no older than 40, about 6 feet tall with unkempt facial hair. He was in a drab oversized concert tee and shorts. I thought it was a bit odd that he was wearing shorts in the winter. 
+“The icons came from Russia. Donated, supposedly, in 1912 by a visiting bishop. But something’s wrong with them. I know Orthodox art. These aren’t just images. They’re prisons. They’re vessels.”
 
-“You work here?” I asked.
+“I hear them at night. Whispering. Sometimes crying. The Virgin begs me to release her. Sebastian howls in agony. Christ weeps blood. They’re trapped in eternal suffering.”
 
-“I own here son,” he said laughing 
+“I found a ritual to cleanse them. But it requires blood. Mine won’t work. It has to be a good soul. I just can’t do it. Forgive me, Lord.”
 
-“You’re old man Canyon’s son eh?” I said
+I dropped the journal and doubled over, my stomach heaving. I nearly vomited. The next morning, I drove into town to demand answers from Father Bellamy.
 
-“I don’t know how that name ever stuck, no son I’m the M. Canyon, the one you see atop the marquise outside,” Mr. Canyon said. 
+He wasn’t surprised. He invited me into his office, poured us both whiskey. The room was crammed with books—ancient, leather-bound tomes that looked more occult than theological.
 
-“So what’s the problem then?” I said, trying to hide my disbelief.
+“You’re the first to last more than a month,” he said, sipping calmly. “You and Grady. That old man held on for years. Until the end.”
 
-“Shitters blocked,” he said with amusement.
+I showed him the journal. He nodded.
 
-“Well then I’ll get to work,” I said slightly annoyed as I knew that’s why I was there.
+“We’ve known for a long time… The icons never should’ve come here. They were created during a famine by a cult that believed saints could absorb human suffering—literally. They poured their torment into the paintings. Starved themselves. Killed their own. Fed the icons, sealing them with prayer and blood.”
 
-“Come find me when you’re done young fella, let me know what it is you find,” he said as he disappeared into the lobby.
+“And who brought them here?”
 
-“Like fuck I’m gonna find you when I’m done buddy,” I muttered under my breath.
+“The bishop who donated them burned in a fire a few weeks later. No one knows who really sent them. But it was already too late. The church accepted them, and now they can’t be removed. Every time someone tries, something terrible happens—plague, fire, madness. We stopped trying. One local man tried to destroy the icon of the Holy Trinity. He vanished. And a new icon appeared—one we’d never seen before.”
 
-I proceeded towards the washroom with my auger in tow. I got in there and there was a brass-coloured grate in the middle of the washroom that had a brown foul-smelling liquid pooling above and around it. I noticed there was a cleanout port on the floor as I walked in. I opened it and sure as shit the waste started pouring up from that as I took the cap off. I set up my auger with the spring head on the end of the cable. Usually, I don’t use it, but when Mr. Canyon said to “let him know what I find,” I had a funny feeling some patron decided not to shit in the toilet but instead use it as a garbage disposal. I started to run my machine and about 20ft into the drain I hit something hard. Now usually you can run it and it will bind up and have some resistance, but it will break up the blockage in about a minute or so. I augered on the hard spot for almost half an hour before I pulled it back.
+“And you just… live with this?”
 
-“What the fuck?” I said as I was pulling the cable out and cleaning it.
+He looked at me with hollow eyes.
 
-It was then that I saw what I was caught on. 
+“What else can we do? They’re part of the building now. Like rot in the bones. We are doomed, my son.”
 
-I started to wretch. I’ve seen shit, literal shit. I’ve smelled foul odours. But… a hand. A baby’s hand is where I draw the line. 
+I left, my body shaking with the weight of it. What terrified me wasn’t what he said—but how calmly he said it.
 
-It was half the size of my palm. It was missing its index finger and pinky. It didn’t look like it was torn but cleanly sliced at the wrist. 
+I tried to run. Packed a bag, booked a motel, planned to head south. But the road was blocked. A fallen tree. People said it was a storm. I didn’t believe them.
 
-The blockage by this time was gone and the water started to drain. I left my tools on the floor and the hand on the auger. I ran towards the lobby. 
+I tried leaving on foot through the forest—walked for hours, but always ended up back in town. Asking the locals for help was useless. They just looked at me with despair.
 
-I started desperately shouting.
+A couple times, when I thought I was escaping, a blinding migraine would paralyze me in seconds. I’d black out. And wake up in the church house.
+When I finally dared to re-enter the church, the icons had changed again. They were all staring at me. Not with judgment—but their gaze made my skin crawl.
 
+They knew I tried to leave.
 
-“MR. CANYON, I NEED YOU TO COME SEE THIS!” 
+The nightmares got worse—the monk began to speak. His mouth no longer sewn shut. His voice like cracking ice underfoot.
 
-“MR. CANYON!”
+“You live where they rest. Feed them. Or take their place. Try to destroy them—and join me.”
 
-“MR. CANYON!”
+The sounds came during the day now: scratching beneath the floorboards, moaning in the walls. I opened a vent and found a bundle wrapped in cloth. What I saw nearly gave me a heart attack. A severed human hand, clutching a crucifix twisted into a spiral.
 
-*Oh ageless man, where are you?*
+I stopped sleeping.
 
-I heard soft footsteps come up from behind me, from where I was just working. 
+The church began to change. Hallways leading nowhere. Rooms that hadn’t existed before. Doors locking themselves. Once, I found stairs behind the pulpit leading into darkness. The next day—they were gone.
 
-“Yes?”
+And the icons kept weeping. Bleeding and moving.
 
-I jumped in fright and turned around and there was Mr. Canyon. 
+I started hearing voices while awake—begging, screaming, sometimes laughing. Someone whispers my name. Others promise release… if I obey.
 
-“Fuck you scared me again,” I said. 
+I couldn’t live like that. I saw the sword of Archangel Michael rust before my eyes. Thick, syrupy liquid dripped from the blade. Blood poured from the crucifix. The Holy Trinity icon—all three angels stared directly into my soul.
 
-“Did you find the problem?” He asked in a low questioning tone. 
+I brought a sledgehammer at night. Stood before the crying Virgin and raised it. Her face changed. The tears stopped. And for the first time since I arrived—she smiled.
 
-“Y-yes, it’s… it’s,” I trailed off. 
+I dropped the sledgehammer and ran. That was last week.
 
-“C'mon boy, spit it out,” He stated. 
+Now something is coming. I feel it. The church is hungry. At night, the icons pulse. Paint moves like living flesh. I see hands behind the surfaces—pushing, tearing, trying to break free.
 
-“Follow me.” 
+I understand now what the monk meant. They need a soul. A willing one. Someone to suffer for them. To become one of them. To become the new icon.
 
-He followed me back to the bathroom. When he saw the hand on the end of my snake his reaction wasn’t… It was normal. 
+Grady resisted, but he broke. I don’t know if I’ll be any stronger.
 
-“Don’t worry my boy, it’s just a prosthetic,” he said calmly. 
+I’ve started painting. I don’t know why. I just looked at the paints Grady left, and my hands started to move. I draw faces I’ve never seen but that feel familiar. I couldn’t draw before. Now the brush moves on its own. Some of the faces… look like mine.
 
-It was very clearly not a prosthetic. I was on guard, feeling as if something wasn’t right. 
+I see my reflection in the glass covering the icons. The eyes don’t move. The mouth doesn’t match mine.
 
-“I’ll dispose of this, and don’t mention this little incident to anyone, especially the police. I will know if you do,” he said as if he’d known it was real and wanted me gone as soon as possible. 
+It’s almost over for me—like it was for Grady, and the others.
 
-“R-right,” I said 
+My calls to the police go unanswered. No one picks up. I’ve realized I’m stuck here. I’ll never get out alive. If you ever find this church—run. Don’t even think of going inside.
 
-I packed up and left, with Mr. Canyon wheeling in a cleaning cart. He waved to me as I left. I’d never been back there since. 
+No one deserves to become part of this place.
 
-**Jo**
-
-“So that’s it? You pulled a hand out of the drain about 20 years ago and never told anyone?” I said 
-
-“Yeah buddy, of course, I told the bosses and I was promptly laid off the next week for ‘mental health reasons’. They never brought me back. So I left town, 2 years ago. Something drew me back to this place,” Dennis said. 
-
-“Why the hell would you come back? I get you had a feeling something was pulling you here but…” 
-
-“Man I don’t know, fuckin shit scared the life outta me. Everyone I’ve told since hasn’t believed me or if they did, they were crazier than me,” he said dejectedly. 
-
-“I mean, I believe you,” I said
-
-“You’re fucking crazy then,” Dennis said 
-
-*Haha.*
-
-“Drains blocked again, you figure it’s the other hand?” I said jokingly. 
-
-“Maybe, lightning doesn’t strike twice does it?” He said laughing. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-*It was the other hand.*
-
+Not even me.
 
