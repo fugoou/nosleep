@@ -1,233 +1,259 @@
-# I tried everything to Quit vaping, now I wish I hadn't.
-I tried everything I could to quit vaping and in my desperation I turned to the worst thing imaginable. Help. I know what you're thinking, vaping. Seriously? Of all things that you could be addicted to you had to choose the one thing that makes you look like a 16 year old with daddy issues. I agree, but sometimes in life your vices take hold of you and there is nothing you can do to change it. After all, the only one who can change you, is you. 
+# Flowers keep appearing on my doorstep
+Morning light gently caressed her cheeks as her withered body rocked back and forth in the old wooden chair that most likely matched her with age.
+Whether it was winter or summer, she was propped up on the chair, her absent eyes looking through the window out to the forest outside of the house, watching as the scenery slowly changed.
+Flowers going from bloom to withering slowly in the winter just like her mind.
 
-Around 2018 when I graduated I had been a smoker in highschool. Weed specifically. I only really did it with my friends more akin to peer pressure than anything else. I was once offered a cigarette by one of my friends but chose not to because it seemed gross and smelled bad. Around the time of my graduation I did what any pot addicted loser graduating who didn’t want to go to college would do, I joined the military at the ripe age of 18. My first deployment would come after 5 months into my service. Being sent to Iraq, working for Public affairs with the Army. Our job was simple there, take pictures of the soldiers doing soldier things and make the military look like we were fighting the good fight. It was an amazing job and I loved every second of it. But after a while on your 8 month rotation you start to get bored. So unbelievably bored. To the point where you and your buddies take up bad habits. Habits like smoking. 
+I began to forget how she was when I was little, back when she wasn't chained to the walls of the residence that she grew up in.
+Her mind became painfully numb to the point where she didn't even recognize the face of her own daughter, but for some reason every time she saw me, something inside would light up.
 
-I quickly learned that the locals working on base could provide us with anything but alcohol. The one thing they could provide however was weed. Lots and lots of weed. Assuming that most people know this, I will still state that the military has a strict zero tolerance policy to smoking anything beyond a cigarette and even that will get you some pouty looks from the senior enlisted, as if they never smoked anything in their life. After my 7th month on deployment I realized that this habit would ruin my career with the military and put me right back where I started before I joined. A drug addicted loser struggling to get by. Before I left my deployment I talked with the medical staff on ways to kick my “cigarette habit” before I returned home. They had several recommendations such as meditation, nicotine gum, toothpicks, regular gum, and checking myself into a program in the military that was essentially rehab. The last one was of course career suicide as if you go to this clinic you would be marked as “Un-fit to fight” and again would put me back at square one. 
+In her weak, cranky voice that resembled more of a whisper, she would always ask me.
 
-	To solve this problem I snagged a vape from one of the locals with 0% THC and 5% Nicotine content. At first the bright object burned my throat, but over time the slight warm buzzing feeling in my brain made me feel funny and happy, reminding me of the sensation of smoking weed. Flash forward to 3 years later at the end of my 4 year contract and I was still addicted. I developed a nasty cough that made running an issue. I had several headaches from over exposure to nicotine and got irritable when I couldn't take a smoke break every 15 minutes. Near the final months of my contract I went in for my final physical to some interesting news. Popcorn lung. A condition that I was still in the infancy stages of. A condition that causes you to have a nasty cough, be fatigued frequently, wake up with night sweats, and can even make your eyes and mouth swell to a nasty degree. So After getting this news and failing my most recent physical training test my unit pushed for my “early retirement” and banned me from reenlisting. This of course was terrible news but the upside of a VA check every month post military would soften the blow. Now smoking had essentially ruined my career and I was back to square one. 
+"You want a puppy?"
 
-Upon retiring from the military I moved back in with my parents and got a job working at my dads construction firm. Carrying bags of cement and knocking down walls. Hard work which of course would often send me into coughing fits in between hits of my vape, still chasing that sweet sensation from the first hit all those years later. 
+In fact, I wanted a puppy, back when I was much younger and she was also. 
+I used to beg my parents for a dog whenever my birthday came around the corner but each time they would shoot the idea down, it didn't really matter how many times they explained to me that mum has some kind of allergy that would make her asthma way worst, I was too stubborn for that.
 
-	My mornings on days off would go something like this. I would wake up sweating in my childhood room. Laying in a bed I was too big for, reaching for the water I placed strategically on my nightstand as I coughed slightly. I’d take a sip of relief and sit up rubbing my head from the constant headaches before moving over to my desk where I would sit idle for the rest of the day. Hours of internet browsing and hitting my vape, forgetting to eat most of the time until dinner. Most people don’t know this but nicotine is an appetite suppressant, meaning it makes you forget to eat most of the time. Makes sense why so many models smoke.
+Her words hurt even more with each passing day that took me closer to my birthday, digging into my heart like shards of glass.
 
- At first I tried everything to quit. I even tried those methods the doctor recommended all those years ago but every time I tried to meditate or not think about it instead I felt myself reaching for my vape with my eyes closed, almost subconsciously. The Nicotine gum was the next thing I tried but it just made me sick causing me to immediately drop that. I even went back to weed but something about it just didn’t feel the same so that didn’t work either. Seeing that I was no longer military, the rehab center was no longer available to me and I doubted the VA would assist with vape addiction. I was stuck in a never ending loop of feeling sorry for myself and doing nothing to change. In the end, it truly was my fault.
+Seven days before my birthday someone knocked on our door. 
+We didn't really get a lot of guests, especially since Grandma's illness began to eat her bit by bit more and more. Even if we got guests, they would quickly leave, sensing how rotten with illness the property was, as if it all grew and bred beneath the wooden floors. 
+The guests who wouldn't leave immediately after arriving were ironically the guests we didn't want here. Dad called them vultures, going where they sensed death. 
+They would always be polite, dressed in fresh vanilla suits, grinning their hyper-white teeth bleached to the extreme to the point it looked almost uncanny. 
+Forcing their funeral services or generous offers of taking the house off our hands, down our throats like we weren't already choking on them.
 
-Every now and then I would look things up on how to quit. Searching for a new wave idea of dealing with the craving and the constant headaches. Wishing silently that someone would just make a version of a vape that gives you the same effects but doesn't kill you slowly. When finally a new solution presented itself in the best way possible. Say what you will about targeted ads, but one day I saw one that peaked my interest and possibly had the solution I was getting desperate for. It was a quit smoking program run out of a rehab center near my town. After clicking on the ad I was greeted with a website that looked to be from 2009 with how poorly it was made. At the top of the page was text that read “Gerry Gardens, X out the addiction and resume your life's fiction!”
+Each time they came by, we would just swat away the flies that followed them behind in the form of business cards, almost as white as their teeth, as if they hatched from them. 
 
-“Corny.” I scoffed alone in my room, my own voice echoing off the walls. I hit my vape.
+I assumed that as soon as I would open the door I would be flashed with yet another new but still very similar face with a row of fresh fake teeth, but I was wrong.
 
-It had a picture of a small hospital-like building with green blankets of grass surrounding it and 2 people wearing all white standing in the entrance smiling holding their hands up to form an “X” with their index fingers. 
+Where I expected an oversized suit was an abundance of empty space, beneath my feet was resting a fresh, colorful bouquet composed of wildflowers that I had never seen before.
+I looked around in confusion, trying to catch a glimpse of whoever left them here, but all I saw were nearby trees gently being caressed by the morning wind. 
 
-“Creepy.” I thought, taking another puff of the sweet flavor.
+Nonetheless, I picked them up and brought them inside. On a closer inspection, that was a little card made of a thick piece of paper covered in flowery handwriting, a row of letters read out.
 
-After some more time on their website I was brought to a page called “our testimonials”. A picture of an older man wearing the same white clothes was on the left of the page with a scroll of text next to him. The text read as follows. 
+"My Condolences"
 
-“Are you living your life how you want to? Happy with the way things are? No? Well neither was I until I found out how to “X” the poisons out of my life here at Gerry Gardens Rehab program for the small stuff!” 
+I rolled my eyes as soon as the words written on the card escaped from my lips, knowing too well who left it here. Vultures were here again and they were really trying their best to get under our skin.
 
-Scrolling further I read that he had been addicted to smoking and after just a week at Gerry Gardens he never touched a cigarette again for the past 35 years. Sounded like bullshit. I scrolled down and read another excerpt from another patient. A thin young woman who was very attractive. Her text read as follows. 
+I went to throw it out before my parents could get their hands on it, they had enough to worry about anyway and I didn't want to add to it all. 
+My feet slipped into a pair of pink bunny slippers, and I slowly shuffled outside to throw them out. I pushed on the rusty metal lid of the container, but what do you know, the old thing jammed again.
+I pushed again and again, feeling like my shoulder would give up before the stubbornness of the object ran out. In that moment, I heard a deep, energetic voice echo from between the containers.
 
-“The “X” in my life was nail biting! I know! Something so simple yet so hard to stop! Here at Gerry Gardens they showed me a better way to use my hands!”
+"Did they wither already? My apologies"
 
-Further down the page was another man, he looked young, maybe in his 20s, doing the same “X” Symbol as the rest. 	“Porn addiction is no laughing matter, it was a small “X” in my life and here at Gerry Gardens no problem was too small for them to help. I’m better now, I promise!”
+I could only watch as the oversized suit I knew so well peeked from behind the dumpster, yet this time there was something different about it, something more uncanny.
 
+"Please allow me to help"
 
+The skin of the man was almost as pale as his suit, lips frozen in a constant state of an uncomfortable grin as if he wanted to show off every tooth inside of his mouth, well-pronounced cheekbones peeked from above the thin lips. 
+The man looked grotesque, like a victim of a failed plastic surgery, but despite that, he had some weird charm. 
 
-	Strange? Weird? Yes to both but at the same time, dealing with something like smoking, nail biting and even porn addiction seemed to be normal problems most Americans have. Problems so small but if left unchecked could affect your life. Maybe this was what I needed? Help. I hit my vape. 
+His pale hand grabbed the handle and pushed it hard, with one move the lid came open before he licked the palm of his hand and moved it along the wave of slick black hair.
 
-  
+"Is this some kind of a fucking joke?"
 
+I raised my voice, practically throwing the flowers at him, as the man before me grabbed onto the flowers, clumsily stumbling backward, that perfect smile still not coming off his face.
 
-After a couple of days of waking up coughing, tired, and angry I decided to call them. Pulling their number for the closet location to me from their website, I was met with the jingle of a small tune. Chimes and low drums in a rhythmic pattern played until it was abruptly stopped by a voice over phone. The voice was smooth and dream-like, belonging to a man. 
+"You don't know that"
 
-“Gerry Gardens, how may I be of service on this fine Wednesday?”
+I answered, at this point doubting my own stance on the matter. Seeing her wither before my eyes was painful, and deep down, I was hoping that she would die very soon.
 
-“Uh, hi, my name is Ryan, Ryan Vonder. I was calling about your services and all you offer.” I spoke, a little embarrassed but still determined to quit smoking. I hit my vape. 
+His already wide smile seemed to get even wider.
 
-“Ryan, Hello I am Nathan. What is the X in your life?” He spoke softly but clearly and with purpose, his routine probably rehearsed thousands of times. 
+"I know. I have a good nose for that"
 
-“Smoking, but like, vapes not cigarettes. Is there any way you all would be able to help me? I’ve tried everything.”	The line was quiet for a moment except for the scribbling of a pencil and the sound of me hitting my vape, then he spoke again. 	“Yes Ryan, it would be my pleasure to help you. Let's talk about your methods you have tried and choose the best plan for you.”
+He hissed from beneath the clenched teeth as his fingers grabbed the already small and almost unnoticeable nose. 
+That was too much for me, as much as those vultures made my blood boil this one was the worst one yet.
 
-I won’t lie, his voice calmed me, soon it was like I was chatting with an old friend. The silence broken up by his pencil scribbling down all of my information and ways I had tried to stop. The end of the call came sooner than expected as Nathan gave me directions to the Gerry Gardens near me, recommending that I go and see a facility for myself where he would be there to personally see to my treatment. I thanked him and hung up the phone.
+"GET THE FUCK OUT OR IM CALLING THE COPS"
 
-Thursday morning I explained to my parents that I was checking myself in for rehab at a facility over the weekend that was about 3 hours from the house near the coast. My father assumed it was for drugs but I explained it was for my vaping addiction. My parents, who were heavy smokers, shared a look of disbelief and laughed with a slight cough near the end. My mother finished her laugh as she simply walked out of the room into the backyard and smoked her morning cigarette, while my father looked back at the TV.
+The grin didn't come off that plastic pale face of his. Instead, he just nodded, grabbed the leathery bag from between the trash, and began to make his exit.
+A weird hissing noise followed behind him, a meek was his attempt at whistling without lips.
 
-“Never got why you never thought to just switch to cigarettes, it's manlier anyways.” He held up his hand and with a wave he said nothing more.
+After the mysterious visit of the deformed condor, the old manor continued to stand, my grandmother sitting strong, fighting the silent battle against the illness contained within the walls. Her battle wasn't a heroic one, it wasn't a battle dealt between a knight and a dragon. You could describe a battle of a cancer patient that way, but not hers. It was more similar to a battle fought in World War I. It was all about claiming inches of land and not a grand victory or defeat.
 
- Annoyed with my parents' response, I scribbled the facilities number and address on a notepad and walked out. 
+It was all but a mare bouquet that shook the foundation of the house. 
+The week before my birthday, someone knocked on the doors to our fortresses yet again. This time my father was unfortunate enough to get his hands on the gift.
+He was a big, bulky man who had seen his fair share of horrible things back at his military service, which granted him an early retirement, yet still, this had some way of getting under his skin.
 
-The drive to the facility was nice, it was near a coast with a clear view of the ocean from the highway. Along the highway was a forest that seemed to spawn from nowhere. In Between the trees was a winding road that was covered in old brick and stone. Along the path was a sign that looked weathered but recently painted. It read “Gerry Gardens 1980”. I assumed it was the year that Gerry Gardens had opened. I pulled down the long stretch of road as my music began to cut in and out due to the lack of service on my phone. The further I drove down the path the more I realized that I felt, just, nice. Better than I had felt in years. I was taking my first steps towards getting actual help in breaking my addiction. My heart thumped in a smooth rhythmic pattern until I found myself almost subconsciously turning off the radio and listened to the rumble of the engine. I was snapped out of my trance-like state as I stopped my car at the gate to Gerry Gardens. 
+The flowers looked withered and began to rot in some spots, the same little piece of paper now with the writing scribbled out and a correction written underneath.
 
-The gates were large, made of iron and the top of them had silver, sharp spikes which glinted the sun into my eyes. The gates were attached to large brick walls that must have been 15 feet high painted pure white to hide the red bricks they were built with. To the left of the gates was a small intercom that was clean without a single cobweb or scratch on it, with a large inviting red button that read “call”. A CCTV camera moved and tracked my car as I drove next to the button. I found myself eagerly pressing the button from the driver's seat and the same soft melody played from the phone until I heard a familiar voice. 
+"Happy Birthday"
 
-	“Ryan, we have been expecting you.” Nathan said in a soft voice.
+Day after day, no matter how many times we would throw the cursed gift into the void of the trash container, it always came back and each time it came back with double the strength.
+For every flower we threw out the next day they would double or even triple in size. 
+Our trash cans were filled with them as they rotted away, filling the surrounding area with this sweet odor that stuck to clothes and hair. 
 
-“Please park to the left and bring your bags inside.”
+In every bouquet was a card that suited the occasion, but still every single one couldn't be further from my actual age. It seemed like these cards were just snatched at random, from people of all ages.
 
-The entrance to the building was nothing like the website. It had a deck with several empty rocking chairs and two wooden double doors that had gold trim. The entire building was white with no windows on the front at all. The building had several cameras around the sides that lead to the edges of the building and I would assume lead to the back. The door, while looking heavy, was rather light and easy to open. Cold air inside rushed my face as I was greeted by a lobby. Tan walls with early 2000’s furniture and small tables in between them. Brochure racks holding custom made pamphlets about all types of afflictions and how to deal with them scattered the room as well. It was neat, almost like someone with OCD had made the room as perfect and inviting as possible. Near the end of the room was a sliding glass door with a window next to it. Behind the counter was a tall man with long hair in a ponytail smiling at me. I jumped slightly not remembering if I saw him when I first came in and he didn’t flinch as I approached. His hair was Blonde and his eyes a deep blue. The kind of blue that would almost hypnotize you if you stared too long. His outfit was similar to the ones I had seen on the website but had gold accents around the neck and short sleeves.
+The day of my birthday crept around the corner soon enough. Mum went to town to buy me a little cake with baby blue frosting on top, it wasn't much but we couldn't afford anything special anyway.
+That evening we gathered around the table, Grandma taking a spot at one end of the table next to the window from which she overlooked the garden.
 
-“Ryan, a pleasure to finally meet you.” He said through a smile.
+I usually didn't look at her face directly, I guess I was just too afraid to see what I would see but now I was forced to look.
+A small frame of the husk of the woman I knew barely showed from above the wooden table. 
+Her wrinkled face crooked to the side, illuminated in the warm light of the candles, little flames dancing across her milky, glazed-over eyes not focused on anything really.
 
-“Nathan? Nice to meet you man,” I stuck out my hand to shake his and he looked down at it. For what felt like a minute he looked at it then slowly met mine and shook it firmly. His hands were callused and rough. 
+The party went peacefully until someone knocked at the door, a rhythmic, cheerful knock, barely noticeable.
 
-“Welcome to Gerry Gardens, I assume the drive was pleasant?”
+I pointed it out right before we cut into the cake, and my dad went to answer the door. I was expecting yet another barrage of flowers, but this time, between his Hands, was resting a small box wrapped in an old newspaper with a bow on top.
 
-“Yes! It was lovely, quite the location you all have out here. I uh, couldn’t help but notice the reception is not the best though.” I looked at him hoping for a WIFI code or something.	“There is a reason for that, all part of the treatment of course,” He said in the same dream-like tone. 
+We ate the cake and enjoyed our time spent together as a family that might soon be smaller, but my eyes kept eyeing the little newspaper box as if it was calling me to, begging me to rip off its skin and get to its insides.
+As tempting as it was, I made sure that I held my urges on a short leash, not letting my excitement overwhelm me.
+I opened the presents one after another. It was a small batch of whatever my parents thought I might enjoy and could afford.
 
-“Now then if you are to check in just for the weekend as we talked about over the phone there are some rules you must follow while here.”
+It was finally time to open the newest gift. 
+I took it closer and examined it.
+Held it up to my ear as something inside rattled.
+The newspaper was old, the small, smeared font mentioned the year 2000 somewhere, the year where I was born. The paper was neatly wrapped around the box that with its shape most likely resembled a shoe box. The paper came off easily, layer after layer peeled off revealing the light brown surface of the box The lid off I quickly took off,  revealing what was hiding inside. 
 
-He slid over a legal document and a piece of paper with rules written at the top. The document was your usual legal mumbo jumbo that if I was injured on the ground or had a negative effect from treatment I couldn’t sue. For the record there was nothing in there that would have made me not sign or run out of the building. I wish I had. Before I signed the document Nathan tapped the paper containing the rules and spoke to me in a more serious tone while still retaining his dream-like speech patterns.
+It contained a small brown mascot made of old rags; the stitches present on the material were very much visible, no matter how many layers of something that most closely resembled glue were put on it and covered with what looked like brown streaks of hair.
 
-“The rules are law here, if you sign up for the treatment you must follow them and never break them no matter the situation. Life or death, you will respect them while you are here or you will be removed from the grounds.” 
+The lifeless thing rested between my hands as I lifted it out of the box. The more I looked at it, the more apparent it became what kind of animal it was supposed to resemble.
 
-I shook my head in agreement and began to pursue the rules while thinking to myself it was odd how I saw no other cars in the parking lot besides 3 white vans and a bright red compact. In fact the building was so quiet it might as well have been empty except for the two of us. The rules were bulleted and quite simple. 	Rule 1: Do not run or sprint unless instructed to by a nurse
+Two floppy ears hung from the sides of its head, crooked black eyes bulging out of its sockets.
 
-Rule 2: Do not engage in your X’s unless instructed by a nurse
+It was a dog.
 
-Rule 3: Do not talk to other patients when they are receiving treatment unless instructed by a nurse
+At the same moment as the realization hit me, something else hit my ears, a soul-shattering scream I had never heard before. 
+My head instinctively turned to the source of the sound, my parents looked shocked even more than that, what was present on their faces was more closely resembling fear mixed with surprise.
 
-Rule 4: Do no not leave the grounds until you are instructed by a nurse
+My eyes laid on hers.
+Milky and glassy, tears streaming down her face, jaw unhinged into an unnaturally large smile that showed the collection of teeth barely holding down to their spots in the pink array of gums.
 
-Rule 5: Do not carry anything sharp unless instructed by a nurse.
+It was my grandmother, she was screaming and at the same time crying. Her frail body trembled as it began to lift itself from the chair she was cursed to stay in for eternity.
+She was screaming the same phrase over and over again not caring to even take a breath in between, as her lungs began to run out of air and the voice coming from inside her became more and more weak.
 
-The list goes on for a little bit more, usually ending with “unless instructed by a nurse”. I browsed them until I saw a rule that surprised me. 	
+"YOU GOT IT"
 
-Rule 18: Do not harm anyone unless instructed by a nurse
+She screamed once again as now the skeleton wearing the frail paper-thin skin of a person I once loved rose from its seat taking a small step towards me, sticks that were its legs trembling like of a newborn deer, before her body fell to the floor with a loud Crack pulling whatever was on the table with her.
 
-“Nathan, what does this rule mean?” I asked innocently. Trying to gage his reaction to see if he was nervous about the question, 
+The scream stopped as abruptly as it started as if it was cut with a knife. For a long moment, we all couldn't move from our seats, staring into each other before my mum slowly and calmly stood up with her voice just above a whisper as if she didn't want to wake her mother up.
 
-“That is for the safety of all members here, in the event of an emergency we would hate to see you defend yourself unless you had to. For example if someone attacked you in the hallway, which is unlikely, the nurses will protect you and keep you safe, you are here to relax not fight.” He responded with the same smile.
+"I will call an ambulance"
 
- The line sounded almost scripted but with the environment and his smile I felt at ease. After finishing the rules I reached for a pen and signed my name on the line that said “I am willing to remove my X” and slid the papers over to him. He examined the paper, signed on his own line and then placed them in a folder with my name on it, a rather thick folder. 
+From a cracked opened window I could hear a slow whistle carried by the wind.
 
-“Now that we have finished the paperwork, allow me to walk you to your room and then we shall change your clothes and have our first session.” Nathan said as he walked around the corner hitting a small button that slid open the glass door. When I walked in I expected to see Nathan but instead it was a short wall separating me from him, at about chest height was clear glass with holes that allowed us to speak to each other as he walked. 
+I barely remember what happened after that.
+The yellow ambulance drove up to our driveway as if they already knew there was nothing to save, made their way up to our living room, and told us what we already knew long before they arrived.
 
-“Follow me, please,” He said, still holding the folder close to his chest. 
+The funeral was held a couple of days after that.
+Funeral service tried their best to hide that hideous smile that now was permanently pained across her face but made it a lot worse each time.
+With each layer of makeup, she was getting closer to a dead clown rather than a victim of Dementia.
 
-The hall seemed to go on longer than I expected, every step I grew more tired stopping myself on several occasions from hitting my vape. The floors were a glossy white and the tan of the lobby walls stretched into the long seemingly endless hallway. At the end of the glass path, Nathan’s ended with a wooden door while in my path was a four way junction. Nathan walked out of the wooden door with an electronic beep. He was now standing next to me and pointed at the long colored stripes that lead in the different paths. 
+Not many people attended the burial ceremony. It was just me, my parents, the local priest, and the man who leveled the coffin into the ground.
 
-“Your X will determine your path, you are blue, please only go to the blue areas. Yellow and Red are for different X’s.” He explained. 
+Grandma was always a loner especially since she moved to that old house she grew up with and after time her illness forcefully moved our family out there too.
 
-“Like what?” I asked. 
+At first, we were supposed to stay there for a week or two before we got someone to take care of her in a long but slowly overtime our things switched places from our little place to this mansion till we were finally forced to stay, and everything we owned was stained with this distinct smell of old age.
+The only thing that didn't fall victim to it was the dog plushie I received on that horrible night of my birthday.
 
-“Our more troubled patients who wished to be checked in longer.” He smiled and began walking down the blue path. 
+It smelled nostalgic, like a mixture of dust and old cheap plastic and its insides were hard and heavy if it was filled up with little pebbles that were ready to burst open like a spider egg any moment I held him, which I didn't do very often. 
+Most of his time he spent sitting on the highest shelf that was hanging above my bed. Though his weirdly big budging eyes watching over me while I slept was oddly comforting to some extent.
 
-The deeper we got into the blue path the walls began to shift to a light bluish color, Nathan explained that all the rooms I could be in were marked blue like this. I found myself having a hard time keeping up with his long, almost mechanical strides. We got to my room and he turned to me, handing me a small white badge with my room number and my name on it. 
+He stayed with me for the next few months, fulfilling his role as a guard dog almost perfectly when despite what I believe to be his best efforts letting the familiar illness creep through our defenses yet again, challenging another person into an unfair battle that could only end one way.
 
-“This is your badge, it will grant you access to the outdoor area, cafeteria, and bath center. Restrooms are in your room, lights out at 9pm and the cafeteria is 24/7 but hot meals are served at 7am, 11am, and 5pm respectively. I shall see you tomorrow, sleep well, tonight you may indulge in your X until I see you again.” As quickly as he explained everything he was gone.
+It started small, she would forget what she had to buy at the store, walking into a room without even a hint of why she walked in. That soon enough turned into endless wandering around the house and calling her long-gone mum.
+In sudden moments of clarity, I could hear her sobbing, usually in the middle of the night. 
+I could almost hear every tear she shed hitting the wooden floors before the cries would suddenly stop without much reason or explanation.
 
-The room was tiny but comfy, in the corner was a small door leading to a bathroom with a shower and toilet. The sink sat near the door on the outside of the restroom and the walls were a deep blue. Near the bed was a night stand with a lamp and a small landline. The bed had a sturdy bounce to it as I tossed my duffel onto the mattress. The single soft warm light lit the room from the ceiling reflecting light off the frosted glass of a window I could hardly see through. I hit my vape and opened the window to see what I assumed was the courtyard. Thick Iron bars hung from the outside of my window in near perfect condition. The appearance of the facility was so sterile and clean, even more than a hospital. Outside I could see a courtyard with Red paint all over the ground, similar to the walls further down the Red hall. There was a small basketball court with benches and tables to the side of the court sporting chess boards. There was no one in sight, it was a quiet, serene scene. 
+One night she cried more than usual, she sobbed and whined before it was cut short as usual but this time I could hear the stairs leading upstairs slowly creek followed by a very quiet sound of wet skin sticking to the floor. What was even weirder was the fact that the sound came in pairs like whoever was making their way upstairs was walking not only on their feet but also hands.
 
-I began changing into the outfit I found in the dresser I slipped on the white shoes they provided, and remarked how perfect everything fit me. I didn’t remember telling Nathan anything about my shoe size or even my shirt size for that matter. Maybe they assumed my size at the entrance by sight? They had people do that when we got issued our uniforms in the military so it wasn’t that far fetched to me, still, very strange. I looked in the mirror and examined the outfit. I looked like a walking, talking bottle of bleach with a brown cap instead of a blue one. I ran my fingers through my beard and examined my tired visage. I snapped a picture of myself with my phone and walked to the door, hitting my vape one more time before leaving it in my room laying on my dresser. 
+The door to my room whined slowly as it was pushed open, at this point my eyes were shut tight.
 
-On entering the hallway I looked at the clock near my room, it was about 10:45AM and I turned to the right and followed the signs marked “cafeteria”. I was not terribly hungry but with no WIFI and no service I was desperately looking for something to do. Rounding the corner to the cafeteria, I bumped into a person wearing the same outfit as me. 	“Oh sorry!” The woman said sweetly. “I just have been really into this book and oh well uh sorry.” 
+Wet steps got closer and closer to me before I could feel something heavy step on the side of the bed, changing the weight distribution around as whoever that was leaned forward, picking something off the highest shelf as the item made a rattling noise.
 
-She was a little taller than me and had long flowing red dyed hair and was holding a book in one hand. Her smile was sweet and soft with perfect teeth say for yellow stains all too common of a smoker.
+The weight shifted again, as it stepped off my bed before I heard a short sniff of a runny nose followed by the most disgusting noise I ever heard in my entire life.
 
-“No it's not your fault, I was just not paying attention is all. I'm Ryan.” I said, taking the blame and stretching my hand out to greet hers. She shook it eagerly.
+The sound of chewing and cracking that came in quick almost rapid successions, slurping and dripping echoed through the darkness, mixing with frantic wheezing, as the cold air hardly went through the person's mouth.
 
-“Well Ryan, my name's Stacy and if I'm being honest I really thought I was the only one here.” She looked into the empty cafeteria and then back to me, “it’s nice to see a friendly face!”
+I quickly rose and turned on the light in a panic.
 
-“Back at ya, I was about to sit and maybe eat a little something, care to join me or are you heading somewhere?” I questioned and moved out of the hall into the cafeteria not seeing a single staff member in sight.
+Before me was standing my mother.
+Her eyes were red and wild, her hands clutched around the plushie, and her mouth dripping with blood like water from a tap straight into the floor, creating a bloody soup beneath her feet.
+And that's when I noticed it.
+My plushie was gutted, strings of whatever was used to saw it up hanging below like guts, what I assumed to be pebbles that once filled it now scattered across the floor.
 
-“Sure I’ll sit for a little! Grab your food and I'll wait over here,” she smiled revealing her yellow stained teeth again.
+"I don't want to forget you"
 
-She picked a booth near the door and put her nose back into the book she was reading. As I walked away I tried to read the title but saw no words anywhere on cover or the back for that matter. I walked the short distance to the food line facing a worker who looked very similar to Nathan. Short blond hair with blue eyes that sucked you in when he spoke. 
+My mother sobbed, splitting her own blood and pieces of broken teeth into the floor before her arms clenched around me so tight, I could almost feel my guts coming up to my throat.
+The last time she hugged me so tightly was when I won the running contest at my old school.
 
-“Hello, how may I assist you today?” He smiled. He was wearing the same type of outfit that Nathan had on with a name tag that read Heath. His speech pattern was just as dreamy as Nathan’s. 
+I sank into the warmth of It, of the hot blood soaking into my clothes and now blanket in a color of rust, finding odd comfort in it all.
 
-“Uh I’ll just have a burger, no tomatoes please.” I replied. 
+And as suddenly as she wrapped herself around me as suddenly she pushed me away, with a gentle blow of withering strength.
+Her bloodshot eyes fixated on the ripped-apart rag that once resembled a caricature of a dog, jaw clenching on what was left of her teeth, before with what rage was left inside of her, she threw the plush against the wall with such hatred and malice the remaining filling exploded into the air, sending a wave of white pebbles against the floor that landed with rhythmic noise that resembled rain hitting on a glass window.
 
-With a slight nod of acknowledgement he turned and began cooking on the grill whistling the tune that I heard in the lobby and on the phone, I began to slightly lose track of time, watching the burger sizzle until my brain reminded me to hit my vape. I shook my head at the thought expecting the usual headache but it never came. I then saw Heath walk to me and looked at the plate being handed to me. The food looked amazing, probably due to my lack of eating anything all morning. 	“On the house as always,” He chuckled, pleased with his own joke. 
+Ripped apart, a material corpse, slung to the floor immediately sinking with blood, as his killer lazily made her way to the exit.
 
-I thanked him and began walking back to Stacy who looked as though she hadn’t moved an inch since I walked away.
+Crooked and unnatural, wheezing and coughing up bits of gore and shattered bone as she went away, wobbling from side to side with each wet and rhythmic step.
 
- Although she was tall her frame was small, she looked anorexic to a degree and had a subtle whiff of a perfume that mixed with the smell coming from Heath’s grill. She noticed me getting closer and folded in the corner of the page she was on and set her book down. 
+I waited for the footsteps to finally stop, till the wet echo turned into silence before I made my escape.
+I followed behind the bloody footsteps, trying my best to not step into a warm poodle of gore, as I entered the empty corridor and headed to the stairway where family members I didn't know. Framed faces I didn't know to who they belonged to stared down at me.
 
-	“Whatcha get?” She asked with a smile. 
+I managed not to break my neck on the slippery steps, and as I made my way towards the front door, someone got there before me.
+The gate to the sickening scenario was wide open inviting guests in, only a string of moonlight cracked through, illuminating the bloody prints left behind by the escapee.
 
-“Just a burger, but I'm kinda a plain jane guy,” I remarked as I lifted the bun revealing just a lonely piece of cheese. She chuckled. After her laugh filled the room it was silent again except for the faint hum of the ceiling lights.
+My mum already left, and maybe it was for the better. 
 
-“So, what are you in for? If you don’t mind me asking?” I questioned. 	
+The gate closed and locked before I myself dragged my body back up the stairs to my room. 
+I made my way straight through the poodle of blood, picking up what remained of my plushie, its now gutted, flat pelt stared back at me with its huge black eyes.
+And despite it all, I still hugged it tightly, all it soaked up draining over my hands and arms, 
+my own guard dog as things were always supposed to be.
 
-Her brown eyes shifted to her right and on the table laid a lighter bright pink with a small design on it. I nodded in understanding.
+My cold body instinctively slid under the blankets for safety only to slowly drift into sleep.
 
-“I’ve tried everything I could to stop but I saw one of those ads online and just well, thought, what the hell! Sucks that I have to take time off work.” She replied with a hint of sarcasm. It was clear that my question had upset her so I quickly tried to change the subject. 
+As suddenly as I fell asleep as suddenly I was woken up by my father, pulling me out of bed with such force I was scared my arm would fall out of its socket, I didn't even have time to grab into the plush remains, leaving it on the bed as it looked back at me with his black buldging eyes.
 
-“Oh uh, what do you do for work?”
+The world around me was fuzzy but I was still conscious enough to make out shapes.
+As I looked down I saw my father's heavy work boots and whatever was underneath them, crunching like eggshells under the weight of his body.
+In the soft light of the waking-up world, I could finally make out what I assumed to be pebbles before, now turning more clearly into small perfectly white, and rounded teeth, that in a moment's notice disappeared from my vision as I was pulled out of the room.
 
-“Nothing too special,” Stacy replied, “I work at a daycare. I know I know, the daycare worker who smokes?! I must be a bad influence!”
+Dad pulled me through the house, down a treacherous pair of stairs, passing by the living room and the old rocking chair present inside of it, prepped up by the window as always with a soft fuzzy shape filling the seat.
 
-I laughed, like a real one, not a fake laugh like a first date although that's what this was beginning to feel like. I decided to finally voice my opinion with someone else on the strangeness of this place. I leaned in and spoke in a whisper. 
+We went straight to the car, without even closing the front door. 
+I took a seat beside him in the front, which was usually reserved for Mum before we drove off, heading up the old dirt road passing by rows and rows of dead trees that seemed to get greener as we went further away from the house. 
+I didn't ask him what was happening or where we were going, I sat in silence the entire way.
+It felt like we drove for hours like we were stuck in a constant loop of left and right turns that led to nowhere but places that looked the same as the previous ones before we finally hit the familiar road, the one that led to our real home.
 
-“Kinda creepy facility? Like something you would see in a horror movie huh?” I said, praying that she would get the vibe I was sending. She did, and leaned in as well. 
+The feeling of finally stepping back inside of our home was unreal, even if it was empty and bare.
+Our apartment felt tiny compared to where we came from, more of a nest than a mansion.
+The noise of passing cars behind my bedroom window would wake me up each time, I got used to the sweet sound of silence and the occasional cracks of the house setting.
 
-“It's not that strange, the last one I was in for-” She stopped herself mid sentence and gave me a cold glare, “Sorry I....well sometimes I just over share is all, but truth be told I’ve seen worse rehab facilities before.”
+Sometimes, after work, dad would go back to grandma's place just to fetch some of our old things back, and each time he came back carrying it into our flat his face looked pale and drained. 
+Somedays, he would drive back and come back empty-handed. Those days, he wouldn't even bother to walk into the house, he would just sit on the porch staring down the empty dirt road waiting for Mum to crawl back into his arms.
 
-We talked for a couple more hours until I realized it was already 3pm. We discussed movies, the latest celebrity craze, and even the weather (lame I know). Stacy ended the conversation and began to gather herself to walk to the door, I followed and said my goodbyes and gave a handshake. It seemed like I had at least a friend here for the time being. 
+Days passed, and we both lost hope we would see her again, it was easier to accept the fact her body was being eaten piece by piece by wild animals, than to imagine her still wandering the wilderness in the maniac state I last saw her in.
 
-Walking back to my room was when I first felt it. The urge, kicking in my head telling me to hit my vape again. I could sometimes trick myself into not doing it or just distract myself with a game or even reading but I had nothing of the sort in my tiny closet I called my room. The urge only grew more when I saw the vape sitting on my bed. I picked it up immediately and was about to take a hit when I stopped myself. Had I left it on the bed? Surely I must have, and then I remembered the badge that Nathan wore. Maybe he was in my room? Was this a test? To see how I would react to it being moved? Maybe he poisoned it, or even removed the juice. All these thoughts were in the end just thoughts. I hit my vape once more and the urge went away. The subtle buzz returned and I laid on my bed in silence. 
+But unfortunately, she did survive.
+Local police officer was nice enough to knock on our door in the middle of the dinner and, with that disgustingly wide smile on his face, inform us that she was indeed alive.
 
-I woke up the next morning early around 6am, sweaty with a tickle in my throat like usual. I hopped in the shower, brushed my teeth and got dressed in the bathroom. I walked out to find Nathan standing in the doorway holding my folder. He was so silent and still his presence made my heart jump, I hadn’t even heard him enter. I stared at him and his wide toothy perfect smile.
+A lot of people who live around these parts call it a miracle, the fact she survived in the wilderness all on her own with her mind already long gone.
+But to us it was all but a miracle, more of a God's most cruel joke.
 
-“Good morning,” he started, “I trust you slept well?”
+ I remember visiting her at the hospital.
+An old building outside of town that with its massiveness matched one of a cathedral that was ready to collapse at any given moment under the weight of its age and sorrows it carried.
+Inside it was cold and unfriendly, paint chipped off the walls revealing orange brick walls that stood proudly against the passing of time climbing high towards the ceiling almost like they were the fundamentals of heaven itself, keeping it in place, from falling upon our heads.
 
-“Yeah, more or less, I didn’t even hear you come in. Good thing I wasn’t naked or something.” I tried, but he didn’t laugh. Instead he walked into the hall and without facing me and said, "Please, finish getting ready and meet me out here. Also take your X with you. You will; need it today.” 
+I followed Dad up the stone steps that lead higher and higher, passing by dirty old windows that failed to keep the wind at bay, letting it whip the backs of the passersby like it was a punishment for letting our loved ones stay here. 
+We finally followed down a white sterile corridor that led us to a larger white room that at least tried to look pleasing with its cheap sets of chairs and tables, each topped off with a plastic lifeless plant that seemed to mimic the patients with their state of activity.
+Big windows lined one of the walls, bathing the room in natural light and reminding the patient of the freedom they were stripped off, even if someone had a bright idea of reclaiming it the frames of the windows didn't seem to hold any visible handles.
 
-His sentence was surprising. I was here to stop vaping after all, why would I need to take my “X” with me? I slipped my shoes on and walked to the door. I hit my vape, then stepped into the hall and followed Nathan.
+And there she was, forced into a metal wheelchair just like her own mother, forced to overlook the lost freedom she won't ever be able to reclaim for herself. If it wasn't for the slow frantic movement of her chest I would take her for another cheap plastic piece of decor, maybe an out-of-season Halloween decoration holding a bowl of pills on her lap. 
+The back of her head, once full of dirty blond hair now was cut short like one of a prisoner, full of bald greyish spots. 
+Dad was brave enough to walk closer to her and stand by her side, but even a man who had seen so many horrible things in his lifetime seemed to be shaken by the pure rot that can overtake human form. 
+His usually rough and deep voice now spoke softly, just above a whisper just as if he didn't want to wake her up.
 
-We arrived at one of the doors I passed on the way to my room yesterday. It was marked as “Cog/Func checks”. The door was as white as everything else besides the light blue walls. 
+“Amanda is here”
 
-“Inside please, our doctor will administer a test to see what methods will work best with you,” He said as he extended his hand, opening the door and beckoning me inside. I walked into the room which was all white with a small table in the middle. Two chairs surrounded the table but not across from each other, they were side by side. On the table was a small device made of gray plastic, it looked like a headset of sorts, with small holes on the sides to hear from and a cord running to the ceiling. In the corner of the room a man who stood, motionless, his white outfit the same as Nathan’s almost making him blend into the wall. He sported the same toothy grin that all the workers had. 
+His lips formed into a pathetic forced smile as his hand pointed directly at me, giving me some courage to step closer.
+I couldn't bring myself to call whatever was sitting in front of me, my own mother. What was left of her was a hollow husk of skin and bone, sunken in eyes that seemed to roll around her head like if she was following an invisible fly flying around the room, waiting for the perfect moment to lay its tooth-shaped eggs under her skin. That invisible insect landed on me a few times during our short visit.
+Those sunken in eyes would lock into mine for just a few quick moments as her thin pale lips turned into a crooked smile that revealed a row of empty gums where her broken teeth once resided before the fly would go back into circling the room.
 
-“Hello.” He said from the pure white corner, his voice was nothing like Nathan’s. It was gruff and mean, serious enough that even off a simple hello I was put on edge.
+I guess she really did remember me after all, and her last wish was fulfilled.
 
-“Please, take a seat and then I will join you.” 
+I know what awaits me, I know that I'm next in the line, and it's only a matter of time before those rotting flowers begin to appear at the footstep of our door warning me about my fate of becoming a prisoner of my own body.
 
-I nervously walked to the table and sat in the chair with the headset in front of it. As soon as I sat down the man walked over without swinging his arms. He looked down at the chair and slid it out just enough to sit in. His every movement was calculated, smooth and alien like. Up close I studied the man's face. He sported the same eye color as Nathan, a deep blue. His hair was blond as well, with what looked like tufts of gray peeking out from the blonde folds. His hair was a combover to hide the fact he was balding but I saw no wrinkles on his face. He then turned and without breaking his smile and said,
+It is all in the blood, after all.
+And like all flowers, I'm too forced to wither and rot away.
+My final wish is for my dad to forgive me for what I'm about to do.
+To understand why this flower died in it's bloom.
 
-“Removing someone’s X can be a tricky process, it is the very nature of why I so enjoy my job. Today, you may call me doctor. Now, place the headset on and we may begin cognitive function testing.”
-
-I looked at the plastic headset and was hesitant, I would kill for the buzz of nicotine right now. As I placed the headset on I felt the drops of sweat on my head. I slid the headset into place and the entire room went black. I heard some papers rustling and then Doctor spoke,
-
-“I see your X is, hmm, vaping. Interesting, why not cigarettes?”
-
-“Well I-” before I could say anything he cut me off.
-
-“Do not speak unless I ask for a reply,” He said sternly, reminding me of a former sergeant I had, “It is very important that you not speak unless I say the phase “input”. Do you understand? Input.”
-
-“Yes I understand.” I replied. 
-
-“Good, now let us begin.”
-
-Suddenly the room was light again, a deep gray that filled the screen of the headset. 3 Boxes appeared in front of me spinning slightly as the low hum of the electronics in the headset whirred with excitement. 
-
-“The three boxes, which would you choose and why? Input.” He  barked.
-
-“Uh I guess the one in the middle?” I replied meekly, unsure of my own response. I heard some scribbling of a pen on his papers. Then the boxes left, replaced by 3 different objects. On the left was a gun, the middle was a fan, and the third was a keyboard. “Out of all of the objects shown, which would you use to change how you feel? Input.” Doctor said.
-
-“The fan I suppose.” I was unsure as to what this would be even testing, the items seemed random and the longer I stared at them the sillier this whole thing felt. 
-
-“Right then, now we will have you use your X and see how it affects your brain. Pull out your vape and hit it please.”
-
-I was greeted by the sweet nicotine buzz as I hit it and suddenly the environment shifted in the headset. I was now in a bedroom on a chair looking at a closed door. 
-
-“Describe how you feel, input.” He said.
-
-“Good, relaxed, comfortable I guess.” I replied, again not understanding how it would cure me of my X. Suddenly the door crept open slowly and a lone hand crept around the frame, nails long and unkempt, a deep black. 
-
-“Um I, there is something there, at the door I mean.”
-
-“Interesting just experience it please, do not speak.” Doctor said with a slight hushed tone as if he didn’t want the hand to know he was even there. 
-
-The thing’s hand crept back into the door frame and into the blackness. I was still for a moment and my heart rate jumped a little. The screen then flashed several times with a brightness that made it uncomfortable to even look at the screen. I shifted in my seat as the flashes hurt my eyes.
-
-“Keep your eyes open,” Doctor whispered, sounding inches away from me, “Experience it.”
-
-The urge to hit my vape again came, and with it the flashes, burning my eyes as I stared into the screen. It was painful at first but then mesmerizing. I must have sat with the headset on replaying the door over and over again for at least 5 mins, until finally I could take no more. I closed my eyes and the flashing stopped. I felt the cool fingers of the Doctor remove the headset. My eyes adjusted as I looked and saw him smiling unmoved as if he never had.
-
-“Your results are wonderful, you will be able to remove your X after all. That will be all for today, this can be quite daunting for a newcomer. Nathan, I'm done with Ryan for today please escort him away.” With those final words I blinked and he was gone, I didn’t even see him leave the room as I felt a hand on my upper back. I stood up wobbly and faced Nathan.
-
-“Come on Ryan, I will take you to your room, you will need plenty of rest after this.”
-
-I wanted to ask him what kind of therapy or science bullshit that was but I couldn’t even form a thought that was coherent enough to speak, so I hobbled to a wheelchair he had by the door and collapsed into it. Every blink was time I lost. Blink one, I was in the hall. Blink two, Nathan handed me some food. Blink three I was laying in my bed staring at the ceiling. The best way to describe how I felt was like if I had been in a car wreck and dunked my head in a bucket of ice water. It was messy, confusing and at the time even had a hard time recalling my name. Then I heard the song again, the subtle hums and rhythmic beats soothed my mind as I fell into a deep sleep. 
