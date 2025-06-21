@@ -1,107 +1,86 @@
-# Six months ago, I was taken hostage during a bus hijacking. I know you haven't heard of it. No one has, and I'm dead set on figuring out why (Part 3).
-[Part 1.](https://www.reddit.com/r/nosleep/comments/1kkelau/six_months_ago_i_was_a_taken_hostage_during_a_bus/) [Part 2. ](https://www.reddit.com/r/nosleep/comments/1kpxor1/six_months_ago_i_was_taken_hostage_during_a_bus/)  
-\- - - - - 
+# It all started with a threatening phone call and now I'm not sure what's real and what's not
 
-The woman dragged me by the wrist into the cathedral and the heavy wooden door slammed shut behind us. Out of her line of sight, Eileithyia’s grasp on my body loosened. No longer contorting under the fledgling god’s influence, my cells abruptly recoiled back to their original shape in exact unison, like the elastic snap of a trillion stretched rubber bands being released all at once.
+As I stood behind the counter at the gas station watching the literal seconds tick by on the clock, I heard the familiar “ding” I hear when the front door is opened or closed. I looked up and saw no one. “Weird.” I said out loud to absolutely no one, but I wasn’t particularly concerned.
 
-I wouldn’t classify what I experienced in that moment as pain. Pain is much too gentle of a word. Too inconsequential, too fleeting. A sprained ankle could be called painful, for Christ’s sake.
 
-No, I experienced the brutal absence of divinity.
+ I took a second to take notice of  the lighting in the station. It seemed darker and danker than usual; like the lighting in the cheesy horror movie. There was tension in the air that was so thick I was suddenly choking on it, and a feeling of deep anxiety seemed to be sitting on my chest.
 
-However briefly, Eileithyia’s influence granted me true sight. She opened my eyes to the promise of something more, something meaningful and infinite to look up towards for guidance: a new sun over the horizon. I basked in the radiant warmth of that new sun, unaware of how numb I’d been my entire life until that warmth embraced me.
 
-She made me feel full. Complete. Utterly content. All sensations that had become foreign to me in the decade since Nia’s death. Of course, I’d be remiss not to mention that Eileithyia was attempting to kill, deconstruct, and assimilate me. But I didn’t know that at the time.
 
-And so, sapped of that perfect warmth, I became consumed with rage.
+The phone rang. I picked it up on the first ring without hesitation as I always did. My favorite part about this job was answering the phone; it made the day go by faster and made it look like I was actually working if the boss happened to be in.
 
-The next thing I remember was the scent of fresh blood, metallic and slightly sweet. Then, the sensation of something solid colliding with my knuckles. My vision was a blank screen of reddish-purple, precisely the color of the stained glass in the Monsignor’s office. It faded to normal over a few seconds, similar to the transient blindness from watching a camera flash.
 
-I was straddling someone on the floor of the cathedral, laying into their skull with a downright manic ferocity.
+“Hello, how can I help you?” I asked.
 
-The person became clearer. My punches slowed, but they did not stop.
 
-One cataracted eye. Protruding from where a mouth should have been, there was a placenta. A bluish stalk of vascular flesh that was thickest at the base. It extended straight up for a few inches, but curved as its thickness tapered, eventually falling and hanging limply over his left shoulder. I watched in stunned horror as it throbbed out of rhythm with my blows, but I could not stop myself.
+Clear as day, as if he was standing right next to me and whispering in my ear himself “Are you closing alone tonight?” the voice said. 
 
-Punch. Throb. Punch. Throb. Punch. Throb.
 
-It was Jeremiah, and he was smiling at me.
+I was.
 
-At least, I *think* he was smiling at me. The skin at the base of the placental outgrowth wrinkled upward at the sight of my rage in a way that seemed to imply a grin.
 
-I blinked.
+I paused. My heart fluttered. While the voice itself didn’t sound threatening, I was 100% sure this was a threat. Unsure of exactly what to say I just stayed firm and professional “How can I help you?” I repeated. I felt as though I was on autopilot.I had no other choice but to say those words.
 
-When I opened my eyes, I was overtop Eileithyia instead.
 
-Up close, her skin was grey like dull porcelain, and her eyes were a homogenous, gleaming white. Her hair was brittle but long, with a sparse curtain of black strands bending over her face at varying angles. My fist connected with her jaw. The strands of hair hooked into my skin like barbed wire, creating a latticework of small cuts on my fingers as momentum carried the barbed strands in and out of my tissue. She didn’t flinch. She never took her eyes off me. As my barrage continued, Eileithyia peered through my blood and my muscle into the deepest, most forbidden parts of my nature: the parts I didn’t even know existed or didn’t want to believe were real.
+“Are you closing alone tonight?’ The voice repeated. The voice sounded familiar, like my own voice inversed, if that makes sense. 
 
-She saw me for who I really was.
 
-Then, she winked.
+Suddenly I found my free will. “Fuck off!” I yelled into the phone. The voice on the other end started laughing. I hung up with tears in my eyes. Fuck that guy. I thought, while not thinking much else. But then the fear shot through me. Very similar to the anxiety I had been feeling before the call, but turned way up/
 
-I arced my elbow back, preparing to bring my fist down again. Before it reached her, I felt a soft hand on my shoulder. I swung around instinctively, my breath coming out in loud, ragged gasps.
 
-There was a lean, middle-aged woman standing over me with a split lip and a pair of broken glasses. The right lens had been recently shattered, bits and pieces of it dotting her ankle-length black dress like scattered constellations in the night sky.
 
-I looked down. Below me, splotches of blood marked where my knuckles had been meeting the tile floor. I brought my hands to my face. Most of my knuckles were raw and oozing. My right first finger seemed to have gotten the worst of it, with patches of skin abraded clean off and specks of bone bashfully peeking out from underneath the carnage. I’m lucky I couldn’t throw a decent punch to save my life. Otherwise, I could have really mangled my fingers.
+That guy wasn’t just messing with me. He wanted to hurt me. I could literally feel it. I cannot stress that enough. I knew it to be so. I cannot explain how or why. 
 
-Crouched on the floor, I slowly let my hands fall and then turned to face the woman.
 
-*“Did…did I hit you?”* I managed to blurt out.
+“What’s wrong, hunny?”I looked up to see one of my regulars standing there. I hadn’t even heard her come in. Sharol was a big lady, around 5’11 with muscular arms. She drove truck. “I have been coming here for years and I have never seen you this upset” 
 
-She nodded, a few springy brown curls bouncing across her forehead.
 
-I tried to apologize, but the apology got stuck in my throat. Hot tears welled under my eyes. I muttered a few jumbled, half words. Nothing substantial. I couldn’t look at her anymore, so I put my head back down. The tears grew heavy and fell to the floor, intermixing with my blood like I was performing an ancient ritual that required both violence and despair to work properly.
+“Does it look weirdly dark in here to you?” I asked, practically pleading for some reassurance that I was not absolutely losing my mind.
 
-The woman knelt down, gently caressing my shoulder.
 
-*“My name is Alma. Monsignor assigned me to be your roommate and mentor. When you never arrived at our room, I became worried.”*
+“Umm…. maybe?” she said as he looked up and around confusedly. I could tell the answer was really no but that she could sense my desperation.
 
-She continued rubbing my shoulder while reaching out her other hand to help me up.
 
-*“Do not feel shame, Meghan. I’ve never seen the chimeras venture so close to this sanctuary, and you are not responsible for your actions under their influence. By Jeremiah’s will, I arrived in time sever their communion.”*
+“Do you need anything, honey?” she sounded even more concerned now.
 
-I got to my feet, and she released my hand. The woman took off her broken glasses and carefully slipped one arm under her dress collar so they hung across her chest. I could sense she was looking at me, but I still couldn’t look at her. A paralyzing embarrassment washed over me as I pictured myself mindlessly attacking whatever was in front of me until I ended up thrashing on the floor, slamming my fists into the ground while hallucinating that I was beating a phantom Jeremiah to a pulp.
 
-Alma placed two fingers under my chin to move my head, forcing me to meet her gaze. Her eyes had a beautiful hazel-green tint, but the look behind them was suffused with a profound melancholy.
+“Yeah, walk me to my car.” I said.
 
-*“Most don’t survive an encounter with the chimeras. You must truly be touched by his wayward miracle.”*
 
-We began walking to our room, passing the chapel’s historical display case on the way. For a moment, my reflection in the glass overlapped with the Geiger counter, the prototype to Apollo’s ticking box, and I was struck by a peculiar notion.
+“You closing early?” she said. 
 
-Maybe Alma was right.
 
-Maybe I had been protected in some way.
+It was like I heard the question but couldn’t quite process it. I was like it floated right over me. I couldn’t respond. 
 
-But that would imply I had an inherent connection to the mountain, *The Audience to his Red Nativity,* and Jeremiah.
 
-And that thought terrified me.
+“Do you need anything before I go?” was all I said.
 
-Turning left past the display case, I followed Alma down a narrow, candlelit hallway, each candle flickering within its own small alcove in the stone walls that lined the path. I let my battered knuckles drag and skip against the stone as we walked. The pain was grounding. It felt distinctly mortal.
 
-The electric lights of the lobby became dimmer and dimmer as we proceeded into the bowels of the cathedral. Once it was barely visible, we arrived at a windowless steel door. Alma procured a key she carried on a silver chain around her neck and inserted it into the lock. Because the door frame and floor were slightly misaligned, the harsh sound of metal grinding against rock reverberated through the corridor as Alma pulled it open.
+I rang her up for her usual pack of marlboro reds and can of diet mountain dew.
 
-I couldn’t see what was beyond that point. A rich, velvety darkness poured from the entryway.
 
-Alma held the door open and extended an arm into the darkness.
+My car wasn’t parked in an actual spot, but off to the side near the air/ vacuum that people could access with a few dirty quarters. Across the grass, parked parallel to my car on the street, was a small red sedan. Or maybe it was a hatchback. It was small. And it was running and the lights were on. I sprinted ahead of Sharol and ran into my car and locked the doors. I didn’t think of her safety or even to thank her. I just took off. The car followed me. It started speeding up and getting as close to the bumper as it possibly could. He was trying to ram me, but he wanted to scare me first. I knew it. 
 
-*“After you.”*
 
-Fear swelled in my gut. I sifted through my memories and once again pulled Nia’s reassuring voice to the forefront.
+I felt a crash and I heard the sound, in that order. My processing was all out of whack. He kept ramming me and I just kept driving as fast as I could. It occurred to me that I had no idea where I was going, only that I needed to get away from him.
 
-***Focus and breathe.***
 
-My eyes widened. I took a sharp inhale. My heart slammed into my rib cage.
+I began disassociating. I could see the chase from a bird's eye view, like someone watching it on TV. And suddenly, I was. “Did they ever find her killer?” the man sitting next to me pointed to my car on the television. “No, so sad.” I said.
 
-For the first time in a decade, it didn’t feel like a memory.
 
-I heard her. I heard Nia. Not in my head, either.
+Then, I woke up. FUCK. My heart was pounding in my chest as I struggled to catch my breath. Quitting weed was great for my lungs but terrible for my nightmares. They seemed so… real. I don’t know where I came up with this stuff. I hadn’t had this active of an imagination since I was 5. I have NEVER EVEN WORKED AT A GAS STATION IN MY ENTIRE LIFE. Had I fallen asleep to “let’s not meet” stories again? I’ve heard plenty of those that started with working at a  gas station alone for a night shift.
 
-I heard my dead wife’s voice coming from somewhere within the darkness. It was faint. Almost imperceptibly so. The ghost of a distant whisper, hopelessly delicate and ethereal.
 
-She spoke again.
+I looked at the bed and saw my wife sleeping peacefully next to me. I usually woke her up after a bad dream, but there had been so many these past few weeks I felt bad doing so.
 
-Without my permission, I heard her again.
 
-***One foot in front of the other, Elena.***
+Suddenly, my phone rang. Extremely unlikely to be spam at this hour. Worrying for my mom and 1000 worst case scenarios running marathons through my head, I quickly picked up.
 
-Without a shred of hesitation, I stepped over [the threshold.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+
+“Hello? How can I help you?
+
+
+“Are you home alone tonight?” A voice said.
+
+
+I hung up. I'm shaking. I'm typing this out because I can't figure out of I'm stuck in a dream or if the dream wasn't a dream or what is going on exactly. I made sure all the doors and windows are locked,  luckily we live on the second floor of a duplex so we have a bit of an advantage there. Anyone have any idea what is happening to me? I keep trying to wake myself up but as far as I can tell I'm already awake... but I was sure i was before. Everything felt so real. 
