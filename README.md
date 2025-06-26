@@ -1,60 +1,84 @@
-# Time froze in that theater.
-My vision was getting worse. Scattershot sunbeams sent splinters through my eyesight and illuminated the lobby in a golden hue. Hazy curtains had been draped over my eyes and a mile of fog separated me from the patrons at the box office. They were just indiscriminate blobs, after all- but they kept wandering closer.
+# We laughed at my cousin for being scared of an old legend. That night, something laughed back.
+I live in a small village surrounded by hills, olive trees, and stories older than the land itself.
 
-I was already one to daydream before my sight began to deteriorate. There was usually no object to my pondering- the aimless thought was what came naturally, anyway. When the ophthalmologist’s diagnosis was a word too long to pronounce and his prescription was a surgery too expensive to afford, I accepted that my vision would be subpar for *at least* the rest of my teenage years- I didn’t expect it to get so much worse, though. This dissociative state used to come about by way of un-focusing my eyes to make room for the trance to overtake me, but now that my eyes refused to focus on my brain’s terms, daydreaming came a lot easier, even when I didn’t want it to.
+One summer night, me and my cousin had been working all day on our family’s land—trimming trees, collecting apricots, clearing branches. By the time we were done, it was already dark. We still hadn’t watered the lower field we call Wadi land—a valley-like area near a dried stream that only floods during heavy rains.
 
-A gentle nudge from my co-worker, Alex, roused me. He gestured toward a crowd of customers who had just paid far too much for popcorn and drinks and were making their way towards the door. While he stepped to the side of the podium to take their ticket stubs, I drew a broom from the janitor’s cart and started off to conduct our required hourly theater checks.
+We said: “Forget it. We’ll water it at dawn.”
+Then five minutes later, we changed our minds.
+“Why not just finish it now? It’ll be cold in the morning anyway.”
 
-There were three positions non-managers could work at the theater: concessions, box, and door. Concessions is self-explanatory. The work isn’t too bad and there’s always something to do, but I have never been privy to customer service and shoveling popcorn into oversized buckets gets old fast. Box refers to the box office where families stand in line eagerly to buy tickets. It’s dreadfully boring. Door is where I was always stationed, and I didn’t mind. I was expected to rip ticket stubs, check bags for candy, and clean and routinely check the temperature of the theaters. 
+So we grabbed two flashlights and headed down to the Wadi, bringing along our younger cousin—he’s around 13, still in middle school. The kind of kid who jumps at his own shadow.
 
-During one of our weekly staff meetings, I made the mistake of asking why the temperature checks were necessary. After all, they were awkward endeavors- each theater had a lone thermostat haphazardly nailed onto the wall. The thermostats were ancient, dusty, and impossible to read during a movie as all the lights were off. A thick silence pursued my question. James, the head manager, was quick to cut the tension. He explained that there had been a theater fire in the early 1900s and that the higher ups were just trying to avoid repeating history. That satisfied my curiosity.
+Naturally, we started messing with him.
 
-Anyways, the checks provided a solid excuse to leave the ruckus in the lobby. They went as usual: theater one was 70 degrees, theater two was 71 degrees, and theater three, four, five, and six were all 69 degrees, which was our target temperature. Seven and eight were 72 degrees- a little warm, but nothing worthy of concern.
+We told him stories about al-Sheeb—a local legend, a creature that looks like a wolf but has human eyes and follows you at night. We’d turn off the lights and sneak up behind him, whispering creepy stuff. He was shaking, begging us to stop.
 
-I paused and considered skipping theater nine. I hated checking that theater, especially when it was empty. Something about it was seriously off-putting- it always felt colder than the temperature on the thermostat and the executives never booked any shows in it, so the theater was always empty. Nevertheless, I persisted.
+We were cracking up, not taking anything seriously.
+Then we got to work. We watered the first irrigation row, then sat down to rest.
 
-Entering theater nine was a ceremony. It was tucked away in the very corner of the theater where the cheers of excited children and the calming gestures of their stressed parents faded to nothing more than faint memories of the sonic register. Two large, heavy, wooden doors barricaded its entrance. But the worst part was the walkway.
+We started talking again about al-Sheeb—how it supposedly looks different depending on which region you’re in. I joked that maybe it changes shape depending on who’s looking at it.
 
-Once I managed to wrench open the doors I was greeted by theater nine’s unfortunately familiar musty aroma. In front of me there were two full trash cans. I would have to take the bags to the dumpster in the back. A carpeted path, decorated by lights aged so severely they were only half-functional and filled with bug carcasses, trailed off twenty or so feet to my right. At the end of the path I knew there was a sharp corner where it veered off to the left and led to the theater, but the light in the corner of the walkway had burned out and it was obfuscated by a curtain of darkness. The path looked like an endless alley that trailed off into an infinite abyss of shadow- there was no end in sight. A shiver crept up my spine.
+Suddenly, my cousin stopped.
 
-Once again, I persisted. I turned the darkened corner and made my way into the theater.  The corner’s shadowed context bled into a dim light just barely bright enough to make out the first three rows of chairs from my vantage at the bottom of the handrail. Where was the light coming from? It wasn’t the overheads- those tended to be overpowering, and I hadn’t yet turned them on anyway. I turned around and saw that the projector was on. That’s odd, I thought. We never used theater nine.
+He said: “Bismillah…” under his breath.
+I looked at him. “What is it?”
+He said: “Something just passed by me… around my head. I feel dizzy.”
 
-Empty theaters never sat right with me, no matter how many I cleaned or checked. There’s a discomforting uneasiness to them, like the feeling you get when you can’t get your shirt to sit on your body right: a constant nagging from a hundred different directions at once. Theater nine was the worst. It was double-wide which exacerbated the feeling of being out in the open and vulnerable, the sound system was out of whack from years of idleness, so a soft staticky sound filled the air, and then there was the projector booth.
+I told him it was probably his imagination. But deep down, I knew he wasn’t joking. He’s used to working alone in this land at night—he doesn’t scare easily.
 
-Unlike the other projector booths which left room only for the lens of the projector to peer through the wall, theater nine’s booth had no such restrictions. There was a wide glass pane about the size of a basement window (the ones buried into the ground) and the projector was stationed several feet back from the wall. I always just assumed that it was so the projector would illuminate a wider space which would accommodate theater nine’s increased size, but I could never get over the feeling of someone watching me from the booth- a gaze I would never be able to return because of the penetrating brightness of the projector’s light. There was just enough room for someone to slip between the projector and the glass pane, after all.
+Then we saw it.
 
-Maybe, just maybe, the paranoia stemmed from my worsening vision. The gray specks in my periphery, fleeting as they were, made for good scapegoats when it came to the supernatural. I was never a very superstitious person- I fancied myself more of a skeptic- but I left the theater all too aware of that nagging feeling as I walked, a little faster than before, back to my workstation.
+Something flashed between the olive trees. Not our flashlights. It was too white, too clean. Like a blink of lightning, but small. Like a camera flash in the wrong place.
 
-Theater nine was 63 degrees.
+For the record, the entire Wadi field is fenced with a chain-link barrier. Nobody could’ve gotten in—not without making noise, not without us noticing.
 
-\*   \*   \*
+We stood frozen.
 
-Working at a theater ruins your sleep schedule. That’s something they don’t tell you during the interview, but the shifts are late- 4pm to 12pm, usually, and later if there’s a super popular horror flick. That’s what made clocking in at 10am for a nearby dentistry’s private showing feel like crawling through molasses.
+Then we heard it.
 
-Once I clocked in, James called me in to the manager’s office. He told me that the dentistry had a lot of employees and that their employees had expansive families. They wouldn’t be able to fit in a single-wide theater, and opening two theaters would be too costly for a private showing. After a short conference with the higher-ups, James decided to re-open theater nine. Besides a few hiccups in the sound system, everything worked great. They just needed me to comb through the theater and make sure there weren’t any serious mechanical issues with the seats or yet-unseen messes.
+From the very top of the Wadi, deep into the trees, came a slow, heavy drumming sound.
+Once.
+Then again.
+Then faster.
 
-That made me wonder why it had ever been closed in the first place, but I didn’t protest- I was content doing my job. I was going to be here for nearly twelve hours, anyways, so there would be no harm in making myself busy. I grabbed the doorman’s keys from the office’s safe, unlocked the entrance and exit doors, watered the lobby plants, and rolled the janitor’s cart over to my workstation. I wrestled a broom from the cart and set off for the theater.
+It wasn’t music. It wasn’t a human rhythm. It was more like… a heartbeat made of stone.
 
-Theater nine’s imposing double doors dissuaded me from a hallway away. Approaching them, I felt a tangible dread, as if the doors themselves were frantically screaming at me to leave.  I ignored those feelings- god, I wish I hadn’t- and proceeded to the doors.
+Our younger cousin looked like he was going to faint.
+We grabbed our things and started walking out, fast.
 
-They opened easily enough. Their heaviness was eased, in part, by the newly installed hydraulic door closer. The spring relieved a good portion of the heavy lifting I would have otherwise have to have done.  I suppose they *were* trying to re-open theater nine, after all. I peered into the theater’s careening walkway, my hesitation growing. If you asked me, I wouldn’t be able to explain *why* theater nine felt uncanny- it just *did*.
+But halfway out, we stopped.
+We looked at each other and said:
+“Should we check it out? Just to be sure?”
 
-And not just uncanny. Theater nine felt *different*. The cinema’s musty smell still permeated its walkway, crowding out any fresh air with its stale likeness, but I smelled a tinge of something else this time around, though I couldn’t quite place the scent. The light in the corner was on now, but it was flickering, and it failed to illuminate much more of the corner than was visible before. There was a general hazy atmosphere to the walkway- or was that just my eyes?
+We walked back toward the top of the Wadi, flashlights shaking in our hands. No sound now. Just the wind brushing dry leaves.
+We scanned every row of olive trees. Every corner.
 
-As I turned the corner the doors banged shut so loud that I accidentally dropped the broom and nearly jumped out of my skin. My hands were shaking and the theater felt uncharacteristically warm. Hot, even. Regardless, I convinced myself that I was making a big deal out of nothing, picked up the broom, and continued the trek onward.
+Nothing.
+No lights.
+No sound.
+No sign anyone—or anything—had ever been there.
 
-That was a mistake. The enormity of what happened that day will never leave me. Time froze in that theater, and that infinity was horrifying.
+We waited a minute. Then two. Still nothing.
 
-The projector light was flickering hastily, illuminating a screen plagued by scorch marks. Smoke wafted throughout the auditorium, clouding my hazy eyesight even further. The gray specks hadn’t just been my faltering vision- there was ash falling everywhere. It baked its way into my hair, built up on my slacks, and stained my company-provided Pepsi shirt.
+And yet, I swear… something was watching us.
+I couldn’t see it, but I could feel it. Heavy and quiet, like the land itself was holding its breath.
 
-The worst part was the sound. I will never forget the sound of their voices. The once benign static had coalesced into a legion of screams emanating from the distorted speakers. Their cries merged into one another in a wicked chorus of agony. It sounded inhuman- no. It sounded all-too-human.
+We left.
+Fast.
+And we never watered the Wadi at night again.
 
-I unwittingly joined the chorus. Screaming desperately, I ran back through the walkway quickly making my way to the doors. Their dreadful warning returned as the realization hit me: I had heard them bang shut, of course, but I never registered what that meant. They were closed.
+Our little cousin won’t even talk about that night. He just shakes his head and walks away.
 
-Without a moment of hesitation, I reached for the doorknobs with both hands and pulled as hard as I could. A searing pain shot through both my palms, exacerbating my already panic-stricken screams. The white-hot flash overpowered every part of my nervous system- the pain was the most intense I have ever felt, as if the fires of hell raged just beyond those doors. My vision went white, and I stumbled back clutching both of my hands in the cloth of my t-shirt. I had nearly fainted when a sudden realization jolted me back to reality- the silence was impenetrable.
+Me? I don’t know what passed near my cousin’s head.
+I don’t know what flashed in those trees.
+And I don’t know what was beating like a drum in the dark.
 
-There was no screaming. I walked carefully back to the auditorium. The projector was stable, the scorch marks were gone, and the air was clear of smoke. My confusion gave way to relief- my stint in purgatory had been brief. Had I made it all up? Are my vision problems subsidiary to a larger defect? How could I ever tell anyone about this? *Who* would I tell?
+But I know this:
 
-As I turned back to the walkway to leave, something caught my attention- something at the corner of my eye. I whipped around to look at the theater’s screen. There was a shadow. A human silhouette, projected in eerie detail onto the blank screen. It was swaying back and forth, like the figure it belonged to was being battered by the wind. I spun around once more but the projection booth was empty. Every hair on my body stood at attention. I slowly backed down the walkway. I said a silent prayer when, this time, the handles were cool, and they swung open with ease.
+We laughed that night.
+And whatever was out there…
+It laughed back.
 
-No one will ever believe what I saw that day. But I know what happened. My charred hands tell my tale for me.
+⸻
+
+What do you think we saw? Has anyone ever heard something similar—like drumming from deep woods or a creature that changes form based on who’s looking at it?
