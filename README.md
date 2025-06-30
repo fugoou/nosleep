@@ -1,118 +1,138 @@
-# The TV in the attic
-When I say that the attic at my parents’ house was messy, it might just be the greatest understatement I’ve ever made. For as long as I can remember, it’s been chock full of junk. You could barely make it two feet without running into a pile of boxes or some other random crap…which is why it was so strange to find it in the condition I did.
+# Community Warning: Don’t go Down Any New Paths You See in Your Neighborhood
 
+The town I lived in had become flooded with homeless people—most of them seemingly delusional or on drugs. It appeared to be gradually getting worse. Every day, there were new faces I hadn’t seen before.
+ They walked the streets in their own worlds, talking to themselves, clawing at their skin, and dancing in the road half-naked. They pushed carts or rolled suitcases around all day, heading toward places that may or may not have existed.
 
+I lived in a strange area caught between two polar-opposite neighborhoods. On my right stood large cobblestone homes with three-car driveways, beautifully decorated porches, overpriced wicker furniture sets, and prominent Ring security doorbells. To my left was a sprawling low-income apartment complex, just a few miles past a sea of expanding tents.
+It was the part of town you speed past when forced to drive by. The part you never walked around—unless something was seriously wrong—and even then, you power-walked or sprinted.
 
-After my parents passed away in an accident, I resolved to go through that entire attic, no matter how long it would take. It took a while to gather the courage to actually go up there, but eventually I managed to push past the fear I felt. Looking back, I’m not exactly sure *why* I was afraid. Afraid of being reprimanded? Afraid of finding something I shouldn’t? I don’t know, maybe I was just creeped out by the atmosphere. The house felt depressingly empty, after all.
+I tried my best to ignore them—the homeless. Don’t get me wrong, I understand they’re human beings with stories, just like me. But they made me uncomfortable. 
+I’d cross the street when I saw them coming, as if they were zombies trying to eat my heart or lungs. Fear bloomed in my chest when they approached. Everyone I know feels the same. They’re a wine stain on crisp white linen sheets.
 
+During lunch, I went on daily walks, always heading toward the cobblestone homes. Never left. That was a strict law I created for myself. I worked from home at the time, and those walks were my daily dose of exercise. 
 
+One afternoon, I discovered a new walking path near my house. It seemed to have appeared overnight. Despite my skepticism, I was excited. It looked secluded and peaceful. Most paths in town had been overtaken by the homeless, so when I saw this one was clear, I eagerly stepped onto the gravel.
 
-Anyway, when the day finally came that I stopped procrastinating on it, I took a deep breath and opened the door to the attic. It was really just a closet-like opening that led to a flight of stairs up into the main attic area, which, for whatever reason, made my anxiety surface. There was a faint layer of dust on the doorknob that dissipated as I turned it.
+My lunch break was at 1 p.m. for one hour, and I never brought my phone. It was my time to unplug. My sacred hour where I didn’t have to talk to a single person.
 
+ The path was quiet, the only sound the crunch of gravel beneath my feet. I was lost in thought—about an upcoming deadline, a coworker pissing me off—when I noticed the path abruptly ended. A tall brick wall covered in neon-colored ivy loomed ahead, strangely ominous. I spun on my heel and headed back.
 
+I walked for what felt like miles. The sky had darkened, far more than it should have by then. A sense of unease crept in. Why was it so dark? Why wasn’t I home yet?
 
-The first thing that hit me was the smell. A cloud of dust from who knows where assaulted my nose, and I bent over coughing for a good half minute. Even once I caught my breath, the faint smell of old wood penetrated my nose, and I tried to take small breaths to avoid that scent filling my lungs. Standing at the bottom of the attic stairs, I gazed up into the eaves, which were thankfully bright enough to see because of the two windows, one on either side of the attic. Steadying myself yet again, I headed upstairs.
+My legs ached. That’s when I heard high-pitched, gut-wrenching screams in the distance. Something about them felt wrong. Tall flowers—ones I swore hadn’t been there before—bloomed as I watched, glowing faintly in the dark. And I could have sworn… the screams were coming from them.
 
+Finally, I saw what looked like my street and broke into a full sprint. 
 
+I just wanted to get inside and never go down that fucking path again. As I turned the corner, I saw my house. Only, as I approached the door, movement inside caught my eye. 
 
-You might be wondering, as I did, just how much of my parents' junk was lying around the place.
+My heart stopped. Shadows. People.
 
+I crouched to peek through the window.
+A family was inside, sitting at my table, eating dinner, laughing. My table. My food, surely. My home. Who were these people? Had homeless squatters broken in and made themselves at home? But they were too well-dressed. Too… normal.
 
+Only, they weren’t normal. They were intruders. Well-dressed criminals having a fucking family meal in a house that wasn’t theirs.
 
-None. 
+I knocked. Then I slammed. Panic turned to rage. 
 
+These fuckers were in my home. Eating my food. My heart pounded as the door vibrated under my fists. Just as I was about to kick it in, the door opened.
 
+“Who are you?!”  We both shrieked simultaneously.
 
-No boxes, no old board games or papers or suitcases or whatever else had been up there. The only thing in the entire attic was a small, vintage TV set sitting in the center of the room. It looked to be from the 70s or 80s, though I’m probably too young to be able to accurately tell. Its only notable features were a grey screen covering most of its surface, and a few innocuous-looking dials and buttons to the side.
 
+“This is my home. Why are you in my home?!” I yelled.
 
+She winced, eyes wide with fear. I tried to push past her, but a tall man—her husband, maybe—stepped between us. He shoved me out and slammed the door.
 
-I looked around the attic for about a minute, wondering what had happened. The last time I had been at my parents’ house was around a week before their death, and I remember the attic being completely full. Did they hire someone to move everything out just days before the accident? 
+“We’re calling the police if you don’t leave now!” he shouted from behind it.
 
+I laughed—loudly, bitterly.
 
+“GOOD!” I screamed.
 
-As this question bounced around in my mind, I turned my attention to the TV sitting curiously in the middle of the now-empty space. Sitting in front of it to get a better look, I could feel the hard wood scrape against my legs, and silently cursed my parents for never getting this area renovated. Anyway, the TV just…sat there. I didn’t really know how to operate it, so I set myself to turning the dials and pressing the buttons randomly.
+Tears burned in my eyes. Terror and rage boiled beneath my skin. Who did they think they were? 
 
+We stood there, staring through the window. They looked at me like I was a madman. Horrified. Astonished. Scared.
 
+Only it wasn’t their home—it was mine.
+The woman glared at me, her black eyes full of hatred. The man reminded me of Jack from The Nightmare Before Christmas, only human—limbs too long and thin. 
 
-After several minutes . . . nothing. Just a blank screen, and my disappointed reflection staring back at me. I sat there staring at the screen, not even sure what I was waiting for. Just…*something*. 
+I doubted there was any flesh beneath his clothes at all.  High pitched screams emerged, closer now. From behind me. Louder than before on the path.
 
+I spun around to see nothing, appearing even more deranged to my intruders. 
 
+If this was a joke, they were phenomenal actors. Did they hire someone to scream behind me? Were there speakers hidden in my bushes? 
 
-With a sigh, I moved to get up and head downstairs for a drink. That’s when it started up.
+I searched them like a rabid animal, but found nothing aside from branches. 
 
+“What seems to be the problem here?” the officer asked when he arrived.
 
+I told him a family had broken into my home and was eating my food. He looked me up and down—suspicious. I was filthy, covered in dirt, soaked in sweat, and reeking.
 
-The screen was still blank, but I could hear the faint buzz of static. It sounded like it was trying to tune itself like an old radio, and I swear there were brief snippets of someone’s voice interlaced with the static. This went on for several minutes before an image started to come into view. It was faint at first, only coming into focus after I gently tapped the top of the TV a few times. The lines of static grey faded into color. 
+“Don’t move. Let me talk to them.”
 
+They eagerly opened the door for him.
 
+“This man says this is his home. Is that true?”
 
-I’m not sure what I expected, but the image that appeared was rather…normal, at least at first glance. It was a house in the middle of a grass field, with a detail-less, dark periwinkle sky in the background. There was something about the image that wormed its way into the primal, fearful part of my brain. It was so. . .simplistic. The house was just a rectangle, with two or three smaller rectangles representing windows, and a simple triangle roof.
+They said I was interrupting their family dinner. The officer scratched his chin, glanced between us, then chuckled under his breath. I decided I hated him and his chin more than I hated the skeleton couple. 
 
+“They’re fucking liars!” I spat out, stomping my feet on the ground like a toddler.
 
+He sighed.
 
-And then a line of text appeared on the bottom of the screen in bold, yellow letters:
+“May I come inside? Do you have any photos of your family to prove this is your home?”
 
+“Yes,” the woman said. “But he can’t come in.”
+She crossed her arms, eyes narrowed like she was willing my head to explode.
 
+I laughed and threw my hands in the air as they all stepped into my house and closed my door behind them.
 
-*Do you remember your home?*
+There was a wreath on it. Black and gold fake leaves. I didn’t recognize it. Did they bring it? Hang it up to taunt me? To make me question my sanity?
 
+The cop returned, and closed my door behind him.
 
+“You need to leave,” he commanded, peering down on me from my porch, “This is their home. The joke is over.”
 
-I stared blankly at the TV for several moments, not really sure what to make of it. It wasn’t talking about me, that would be crazy. I only ever lived in my parent’s house as a kid.
+Those words broke me. In that moment I felt my mind and body splitting apart. The only thing I can remember is white flecks floating in the air as I lost my footing. 
 
+The officer caught me, guiding me to the back of his car. Too disoriented to fight, I got in.
 
+He took me to a holding cell “to sleep off whatever drug-induced psychosis” I was experiencing.
 
-While in the middle of that train of thought, the image of the house faded back into grey, and another image presented itself. It showed a picture of a small room, barely illuminated except for a dim bulb hanging from the ceiling. Inside the conical beam of light cast from the bulb, I could make out what looked like a dentist’s chair. It was hard to tell, but it looked like there were restraints attached to each arm of the chair, and there was a table to the side with needles and other instruments on it.
+But I hadn’t taken anything. I didn’t sleep. The screams came back. I cried until my throat was raw. Alone in the cell, shadows moved. Voices whispered.
 
+That was three days ago.
 
+I left jail in the dead of night with nowhere to go. The screams had turned into voices, whispering sick things. I felt bugs under my skin. Inside my skin. I clawed at myself, screamed. 
 
-This time, the text read: *Wow, look at all the work they did!*
+That’s when Jim found me.
 
+He wasn’t scared. He placed a hand on my shoulder. I fell silent long enough for him to ask one question:
 
+“You walked down the path, didn’t you?”
 
-Next came a close-up of some kind of chamber, filled with a bubbly, dark liquid. Inside, barely visible behind the darkness, was a small, jellyfish-like blob that almost looked like…*flesh*. Variously colored tubes and wires surrounded the thing, and for some reason, it almost reminded me of a baby in a mother’s womb. I tried to push the image from my head as the accompanying text appeared on screen:
+He said I wasn’t alone. This had happened to others. He said he’d take me somewhere safe. His voice was soft, like a new-age guru. I followed him into the dark.
 
+He told me he could always tell who had walked the path—by the screaming and the skin clawing. Victims of the path didn’t look like the “authentic” homeless. They were something else. He could see it in their eyes.
 
+A unique mixture of hopelessness and disorientation with a dash of rage.
 
-*Ahh, becoming human. Those were the days. . .*
+Jim led me to a massive encampment in an abandoned lot about half a mile from my house—my old house. I think I live here now. 
 
+Everyone’s kind. I fit in. We remind each other that the voices aren’t real. 
 
+The bugs aren’t real.  
 
-Before I had time to process the things I was seeing, the fourth and final image faded in, this time with bits of static still flitting in and out, even once the picture came fully into focus.
+Don’t scratch. 
 
+Don’t listen.
 
+There are 30 of us here. Jim thinks there are more.
 
-It was a picture of a woman, maybe in her late 20s or early 30s, dressed in a white lab coat that hung down past her knees. She was smiling a quiet, toothless smile, and holding a small container of some kind.
+I had hope—until I learned some had been here for months. Searching for the path every day. Blisters on their feet. No way back.
 
+There’s a woman named Angie who’s been here nearly a year. She stays quiet, always reading in a corner, scratching at her skin off and on.
 
+I’m going to look for the path tomorrow.
 
-Those details themselves were enough to unnerve me, but it was the thing *inside* the container that sent bile into my throat.
-
-
-
-I’m not really sure how to describe it, aside from the fact that it looked like a human fetus sitting in a pool of the same substance that filled the chamber in the previous image. Except it wasn’t so much a fetus as it was a jumbled, fleshy gunk that reminded me more of a Rorsharch test than of a baby. Small, primitive hands reached upward toward the woman, and trails of sludge coated its skin. In the few seconds that image was on screen, I picked out several other figures in what looked like lab coats, though the lighting was still dim. And then the text came through:
-
-
-
-*Aww, you were so cute back then.*
-
-
-
-Reading that text is what broke me out of my trance. As the image hovered on screen for several seconds longer, I realized something. 
-
-
-
-The woman in the picture was my *mother*. She looked different, her hair a darker color and her demeanor more reserved than I remember, but there was no mistaking her face. I knew that freckle on her neck, and her hazel eyes staring right at me through the camera made me shiver.
-
-
-
-I didn’t wait for the next image, if there even was one. Numbly, I brought the TV downstairs and shattered it into pieces, using a nearby kitchen knife and a woodcutting axe from the garage.
-
-
-
-I’m sitting in bed right now, trying and failing to process everything. The pieces of the broken television set are strewn about the living room a floor away, but the sense of unease that gripped me, ever since the static first started, haven’t gone away. Call me paranoid, but I double checked that every door and window in the house is locked and the blinds are all closed.
-
-
-
-What did that TV show me? Do I even want to know?
+I have to.
