@@ -1,600 +1,131 @@
-# You're not supposed to be smiling
-I tap my legs furiously against the floor, my mind flashing images from the report I just read. The files dance under the fan on my desk. I shut them close. I was going to look at them again, but I needed some prep time. My hands trembled ever so slightly as I took a tentative sip of my now, cold coffee.
+# I work in a fish and chip shop, do not eat the “Catch of the Day” (Part 1)
+My first job each shift was reheating the previous night's curry sauce, a gelatinous cube of orange matter stored in an old margarine tub. Mondays meant fewer customers, it would probably be enough. I brought it back to life with a splash of water and a blast in the microwave. Next in my zombie routine was filling the batter bucket, bringing it up front, and starting the fryers. 
 
-My superiors had temporarily declassified files related to the June 19th Berlin incident. I guess the idea was to prepare me for what was to come and I needed all the info I could get my hands on. I set the documents on my desk when my phone rang, breaking the sombre silence in my small office.
+But something felt off. Tubs and trays weren't where I'd left them in my tiny kitchen the night before. Odd. The owner, Salvatore, rarely worked quiet shifts like this. I ducked under the narrow ceiling as I headed down the cramped steps to the shopfront. There he was, behind the main fryer. Weird.
 
-“Yeah ma? No nothing dangerous, just government stuff”
+“What’s that smell?” I asked, coming up behind him. He was frying something unusual, a strange, briny scent slipped beneath the familiar stink of hot oil. “Do we need fresh oil?”
 
-I take another look at the case files.
+“Oh, big man,” he replied, “didn’t see you. Nah, oil’s fine. Just a wee experiment.”
 
-“Keep takin’ those medicines on time okay? I don’t wanna hear no complainin’. No ma I already told you I’m not callin’ him. Alright see ya.”
+I narrowed my eyes skeptically, and he turned to catch my look. Luigi’s Fish Bar had seen plenty of experiments lately. The new pizza oven hadn't exactly driven sales as hoped. It had become more of a burden as every night without fail, minutes before close, after I'd switched it off, some drunkard would stumble in. “Aye, gie us a 8-inch spicy sweetcorn, cheers boss”
 
-One call every Sunday. That’s all I was allowed. “Just government stuff”
+“No, trust me, this is the mutt’s nuts, this is something special,” he insisted. “I’m ahead of the pack on this one. Not even those gastro poofs in Edinburgh have heard of it yet.” I liked Sal, mostly, but his occasional homophobia reminded me how small this town was.
 
-Yeah right.
+“I picked it up at the market this morning, a new fish, or subspecies. Blue Haddock, I think they are calling it.”
 
-I set my coffee down and prepare myself to go over all the documents again. Instruction manual first, I guess.
+“New? What’s new about it? You don’t get new flavours of fish like Pringles.”
 
-**INSTRUCTIONS** 
+“Ah, fish expert now, are we? Three months battering and frying, and suddenly you're Jeremy Wade. Well, I suppose you are university educated, what was your degree again?”
 
-*Proceed to Floor 27*
+“Graphic design.”
 
-*Collect tray from room PANTRY*
+“Ah, learn a lot about fish subspecies designing graphics, do you? All I know is there’s some new fish on the market nobody’s seen before. All the trawler boys are talking about it, and I thought I'd give it a try. Special menu item, maybe people will love it. Now let’s get on with it, I’ll work the main fryer tonight, you’re on chips, so chuck some tatties in the rumbler and get the first basket on.”
 
-*Proceed to Room 2709*
+The doors opened at 5 p.m., and for the first couple of hours, a small trickle of customers came and went. Single orders. On weeknights, fish suppers aren’t a big family treat but a quick dinner for the single, the busy and occasional tourist. No takers on the unknown fish special.
 
-*Swipe access card.*
+“Ah, Margaret, how are you? How's Harold this evening?” Sal greeted one of the elderly regulars. A wiry wee Scottish woman with a stern leathery face, hardened by a life spent by the sea.
 
-*Drop tray.*
+She ordered her usual: two small fish suppers for her and her husband. “You're always ordering that, Margo. Why not try something new?” Sal laid it on thick with the charm of a used car salesman. “Oh no,” she replied, smiling politely. “Harold and I like nothing better than a nice piece of fish.”
 
-*Do not turn your back.*
+But of course, Sal launched into his upselling patter about the new novelty catch of the day. Eventually, she relented.
 
-*Wait for personnel.*
+He opened the fridge behind him and pulled out two fillets of Blue Haddock. Seeing them lined up on dry ice next to the regular haddock and cod only made them seem stranger. The white flesh was too clean, too flawless. They looked almost cartoonish, like fake, plastic fish. And even chilled, they were slick with a thin layer of fat, as if they were already slowly rendering in oil. It was in this oily coating that you could just catch a faint, pearlescent blue when the light hit it right.
 
-*Debrief.*
+Sal baptised the fillets in the batter bucket before dropping them into the fryer. Almost instantly, the air was filled with that strange briny scent from earlier.
 
-*Return to isolation in office.*
+Margaret breathed in deeply. Her face, sceptical at first, had softened. Her eyes widened, fixated on the sight of the frying fish.
 
-**IMPORTANT PROTOCOL**
+I prepped two boxes of chips and placed the fried, golden fillets on top. Salt. Vinegar. Wrap. I handed the two paper-wrapped boxes to Margaret.
 
-*ALWAYS keep the keys to the restraints on your person.*
+“I’ve given you two *full* portions there, love. You enjoy that,” Sal said. “Oh, you shouldn’t have, dear, we’ll never finish them. Appetite’s not the same at our age,” she chuckled.
 
-*DO NOT look it in the eye*
+For the next hour, no other customers came in. I spent the time folding chip boxes, topping up vinegar bottles, and cleaning the microwave. I did my best to look busy during the quiet spell, especially with Salvatore watching me. I was wiping down the counter next to the till for the second time that hour when she walked in.
 
-*DO NOT engage in conversation*
+Angelika’s presence—like her namesake—always seemed to illuminate the room. Her sharp features were framed by a thick cascade of dark curls, her hair in perfect contrast to the pale skin of her face and neck, lightly dusted with freckles and moles. A constellation I’d never managed to fully map, mostly because I was too afraid to stare at her for long. Like the sun. I suppose you could say I kind of liked her.
 
-*DO NOT trust it under any circumstances*
+I was in my second year of high school when Angelika Kovács and her family moved to our village. Mr. Kovács, despite being from landlocked Hungary, had fallen in love with the sea and opened a boat engine repair shop, which, ten years later, now serviced the village’s entire fishing fleet.
 
-*If it speaks to you: ignore*
+Angelika had never quite integrated into the tight clique of our small class. She’d been deeply into paganism and goth subculture, which only made her stand out more. Since we’d both returned from university, her style had softened slightly, not full goth anymore, swapping pure black clothes and makeup for more muted tones. But still striking.
 
-*If it promises something in exchange for release: Ignore.*
+I’d had a crush on her for years in school, and now that we were both back in the village, those feelings had begun to stir again. Maybe it was that the goth girl aesthetic was popular online. Perhaps it was the allure of someone who seemed to come from a bigger, more interesting world. Either way, she stood in stark contrast to the grease-stained walls of Luigi’s Fish Bar. 
 
-*If it knows your name: Report immediately.*
+“Hey, you,” she said with a smile.
 
-*If you feel heightened emotions such as anger, fear after contact with entity: Report to medical wing immediately.*
+“Hey, what can I get you?”
 
-*If you feel especially low on energy after contact with the entity: Report to medical wing immediately.*
+I immediately regretted saying that. In my nervousness, I left no room for small talk. I knew I wouldn’t be able to think of anything to say, so rather than leave a silence, I defaulted to business.
 
-*If you see it in your dreams, you have already failed.*
+“Oh. Can I get…”
 
-*Be cautious, be aware and prioritise your safety and the safety of others in this building. If all protocols are followed diligently, there will be no harm.*
+I couldn’t tell if she was disappointed by the lack of small talk or if she could tell what I was thinking and was now judging me for thinking there would be small talk.
 
-*We look forward to working with you.* 
+“...a fish supper and a chip roll.”
 
-***The next set of files contain highly classified and confidential case records for your familiarisation with this case, please exercise caution while viewing them, do not disclose the contents to*** ***anyone*** ***in the facility or outside.***
+“Fish supper? I thought you were vegetarian.”
 
-At least this job paid a fortune. 6 months and I’m out, I remind myself. 6 months… the length of that time period was finally beginning to set in. With a nervous sigh, I open the case files again.
+I overcorrected. Too personal, too fast. She definitely read that as me judging her.
 
-The headline from the local newspaper was attached to the corner. “28 junkies dead in local brothel”. Then I looked at the crime scene photos again. 28 bodies in various states of decay. They looked like skeletons with skin like paper stretched thin over them. Arms so skinny you could probably hold five of them in one palm. You’d think it was the drugs that killed ‘em if not for one thing. Their faces. I didn’t want to look at the closeups again. Their wide eyes, their open mouths staring at something that was just there, it was too much. How they managed to capture whatever caused this was beyond me. 
+“Yeah, still am. Hence the chip roll. The fish is for my dad.”
 
-I set the files aside. *I need to focus on the task at hand*. Starting today, 6 months, 180 odd days. Doable? Maybe.
+“Oh. Well, has he tried our new special? A new catch, it’s the latest food trend. Blue Haddock. It’s got a much richer, buttery flavour.”
 
-I grab my coffee and jolt mid-sip as the buzzer rings. 
+I had no idea what I was saying. In an attempt to salvage some dignity and sound normal, I just sounded deranged. My sales pitch must have been convincing though, because I caught Sal listening in, he shot me a thumbs up and a sly nod.
 
-“BZZZZZZT”
+The next five minutes were excruciating. I kept telling myself I should talk to her while the fish was frying, but I had nothing. Eventually, she took out her phone and started scrolling. I kept glancing at her in small bursts, trying not to look weird. When she looked up, I looked down, at the fryer, at the strange fish crisping and bubbling in the oil.
 
-Here goes nothing. I swipe my access card at the lift. 27 is already lit. I tuck my shirt, straighten my badge. 
+The briny smell was becoming overwhelming. Almost nauseating. My stomach twisted. Was it the fish? Or the shame of struggling to talk to Angelika? I couldn’t tell. I felt trapped. Sweat beaded on my forehead, and I wiped it with my forearm. Rookie mistake. The grease from the fryer on my arms and hands was now on my face. That clammy, sticky feeling would be with me all night, and I’d keep instinctively trying to wipe it off, with more greasy hands. A spiral.
 
-*DING*
+“Here’s your order,” I said. “No vinegar, just salt, right?”
 
-First stop: the pantry. My footsteps echo too loud or maybe the floor was too quiet. *Was it supposed to be this quiet?* I hear the squeaking of my shoes on the floor get louder. 
+“Err… yeah. Thanks.”
 
-“Breathe.” I remind myself, I feel my pace slow down, just barely. I swipe my access card at the pantry. 
+She looked me in the eyes and gave a half-smile.
 
-“Uh… 2709” I mutter to the server. 
+“Very smooth,” said Sal, as she stepped out the door, almost certainly still within earshot.
 
-He wordlessly hands me a tray with plain rice and no garnish on it. We briefly make eye contact. *Is that pity? I’m definitely projecting.* 2709 is just ahead, squeaks getting louder again. I don’t care, I want to get this over with. 
+“You’re a natural at this. A few more sales like that, some word of mouth, and we’ll get people hooked on this new fish.”
 
-I take a deep breath and find myself in front of a large metal door. There’s a card reader to the left of it. I swipe my access card. I hear it groan as it swings inward. 
+What’s crazy to me now is how I spent the rest of that evening painfully replaying my interaction with Angelika, instead of thinking about the implications of the Blue Haddock. A new fish? What does that even mean? Is it safe to eat? Is it even legal to sell something that hasn’t been tested? Do you need a licence for this? All questions I should have been asking, instead of pining over a girl. 
 
-The harsh white tube lights buzz as I step inside. The keys jingle in my pocket. The door closes behind me. It’s a plain white room with... *Huh?* I see a woman tied to a chair. *Don’t look.* I quickly direct my gaze downward. ‘The entity’ huh. The chains around the woman are thick and press into her skin. She shifts uncomfortably. *Is this the right room?* I glance back.
+To be honest, I knew deep down that was the issue. I’d spent far too many years fixated on Angelika, developing a crush instead of, well... actually getting to know her. That’s why I struggled to talk to her. I didn’t really like *her*, I liked the idea of her. Because I didn’t *know* the real her. That was the revelation I came to the next night at work. No Sal to distract me, just me, alone with my thoughts.
 
-2709. 
+“Oi mate, you actually open or what?”
 
-She’s looking directly at me, I can feel it. 
+I was snapped out of my introspection. I hadn’t even noticed who had walked in. Robert. Another person from my past, but one I remembered far less fondly than Angelika. He wasn’t my high school bully; I’m not some nerd from an American high school movie. No, Robert was just a dickhead. He’d effortlessly flip from being your mate one minute to sadistically helping you develop a fresh insecurity the next. If Stockholm Syndrome were a friend.
 
-“What are you waiting for?”, her head tilts to one side, a playful smile on her lips. *Doesn;t sound German to me.*
+Of course, he got bored with people quickly. Much to my relief, he only really gave me attention for six months, and I was glad to be rid of him. Now, if this were an American high school film, I might take comfort in him being stupid or something. Nah, Robert was smart. Good at maths and physics. Apprenticed as a civil engineer straight out of high school. Now, just five years later, he has a wife, a kid, a house, a stable job. I fry chips.
 
-“Hey I’m hungry come on” 
+“Aye, two fish suppers and a pizza crunch.”
 
-“S-sorry”. 
+Good lord. A pizza crunch.
 
-*Shit.*
+When people hear about Scotland’s deep-fried food culture, they always joke about the deep-fried Mars Bar. Truth is, that’s only ever ordered by tourists. The real epitome is the pizza crunch. Immortalised in the Scotland fans’ chant when we play Italy:
 
-*You spoke.* 
+"We are gonna deep fry yer pizza, deep fry pizzas, waaaay!"
 
-*You fucking spoke.* 
+I pulled a frozen supermarket pizza from the freezer. Folded it in half and dunked it in the batter bucket. Now oozing and dripping with pale batter, I dropped the cursed calzone into the fryer.
 
-I walk towards the metal table in front of her and quietly place her food there. There’s a spoon on the rice, not that she can use it, her wrists are tied behind her back, her legs are tied together. 
+As I was finishing Robert’s order, Margaret walked in. Two nights in a row? Odd. She approached the counter with a briskness that didn’t quite befit her years. 
 
-“You checkin me out sweetheart?”, she purrs. I shift my gaze to the floor. 
+“Two single fish,” she snapped. “The new fish. The blue one.”
 
-*Don’t engage.*
+I politely nodded, not paid enough to reflect on the weirdness. I went to the fridge to pull out the fillets. I removed the ghostly, oily Blue Haddock. Margaret’s eyes locked onto the fish in my hands. Her eyes bulged, unblinking, glassy and slightly too big for her face.
 
-*Don’t engage.*
+Her eyes reminded me of my pet goldfish when I was eight. They reminded me of him as I watched him dying on the floor of my bedroom. My father and I had been scooping him out of the tank while we cleaned it, and he’d jumped out of the net. His limp, flaccid body flopped on the carpet, mouth flapping open rapidly. The soft carpet absorbed the moisture from his gills while he lay there, staring up at me, in pain and anguish.
 
-Just wait until someone else comes in, back to the wall. I feel a drop of sweat on my temple.
+My father shouted, screaming at me as I stood frozen in terror.
 
-“They’re feedin’ me like the fucking dogs over here”, she chuckles, her laughter is so sweet. “Real gourmet stuff, Thank you Chef”, she shouts into the air. She sounds like…. someone I know. *No. Impossible.* I keep my eyes locked on to the floor, I’m not even here. I’m on a beach in Hawaii.
+“Pick it up! It’s dying, pick it up!”
 
-“They give you the same stuff too, new guy?”. She bends over and eats directly from the plate. 
+I couldn’t do it. I couldn’t bring myself to touch the alien, slimy, wet creature. My eyes welled up with tears, and I ran from the room.
 
-I got two coconuts in my hands, shades on my face, life's good.
+Dad, of course, saved the fish without a second thought. But my irrational childhood fear of fish had begun.
 
-“Mmm fuckin’ five stars”, she says sarcastically. I feel bad for her. Am I breaking protocol by feeling bad? I remind myself of the crime scene photos again. 
+I reflected on that fear now, with the slimy fillets in my hand. I still couldn’t bring myself to eat fish. My go-to chippy order remains a smoked sausage. The fear had faded enough to let me cook fish for my minimum wage job, but I still can’t eat fish fingers or swim in the sea.
 
-*Their corpses.*
+Focused on my frying, trying to ignore the old woman in the corner of the shop licking her lips I heard the door open again. Another customer. On a Tuesday? I looked up.
 
-*Their skin.*
+Angelika. Her deep brown eyes stared directly at me.
 
-*Their eyes.*
-
-*Focus.*
-
-“Hey, newbie” I see her mouth curve into a smile again. 
-
-“Come on I won’t bite”, I hear her chains clatter violently as she moves her limbs in demonstration. I flinch. “See? I’m in fuckin’ chains. You scared of a girl in chains?”
-
-Sunsets, beaches, tropical babes. *This is the high life baby.*
-
-“Bet you’re real straight huh? Never locked up like this, alone. No windows, no clocks, only sound’s the stupid fucking buzzin’ lights that never turn off? How do you think that feels?”, she pauses. I swear I know that voice, no, the tone.
-
-I close my eyes and try to feel the warm sea breeze on my face. 
-
-“Feels like it’s in your skull, that’s what it feels like”, she says softly. Must feel like shit.
-
-The door opens. I breathe out. 4 men in hazmat suits walk in. *Why don’t I get a fucking hazmat suit?*
-
-“Aww man, well see ya soon newbie”, she giggles. I’ve heard it, I swear. A long long time ago. On a playground. A memory I can’t place.
-
-I fill out the report form. Section 5: Verbal Contact. I tick ‘No’. *I didn’t speak*. 
-
-I close the door behind me. I feel the sweat pool all over my uniform as my legs turn to jelly. Swipe, swipe, swipe. I’m home. My legs give out. 
-
-I collapse onto my chair, my breathing unsteady. I take a moment to calm myself. *Come on man you did it, just do it 179 more times and you’re set.* I laugh as I take off my uniform and step into the shower. The water seems to take all the stress away. My mind’s still in that room. “Get used to it champ”, I mutter as I clean myself. “It’s an easy job, easy money, real easy. Just don’t be stupid and you’re eatin’ good.” I dry my hair off and step outside. I change into a fresh set. *How’s ma doing?* 7 days till I find out she’s okay. Or not. No way to know. I make my way down the hall, the facility’s post office sits tucked away past the debrief rooms.
-
-“21, how you doin’? How can I help ya?”, Jimmy asks with a smile. *Seems like the only guy with a personality in here.*
-
-“Can you double check that address real quick? I’ll be outta your hair lickity split”
-
-“It’s the 4th time, do I look that stupid?”, he chuckles. “Here check it yourself man.”
-
-“Just makin’ sure”, I run my hands on the records until I find my ID. 
-
-“Dependents, Address line 1, Line 2, Postal code”, I mutter. “Okay, checks out, I won’t ask again Jim.”
-
-“What, you got a lady back home?”, he asks playfully.
-
-“Just my ma.” I pause. “And uh… dependent 2 get approved yet?”
-
-Jimmy’s smile fades a little, “You know how it is man. He's got a history you know, they're uh, they’re looking into it.” He straightens the stack of papers on his desk. “It’ll happen man, I'm tryin’ my best you know—”
-
-“I know, I know and that means a lot, just keep me posted. Thanks again man” I leave quickly. 
-
-“Don’t mention it”, I hear behind me. 
-
-I eat my dinner quietly. Not a hint of spice. Cheap bastards. I put on a sitcom on the TV as I finish my bowl. The food, however bland, fills my stomach. The day’s events begin weighing on me as I slump deeper and deeper into my chair and before I know it, sleep lulls me into its warm embrace. 
-
-\---------------
-
-“BZZZZZZT”
-
-I snap awake and stumble into a fresh uniform. Swipe, swipe, swipe and I’m standing in front of the metal door again. I let my breathing even out and repeat my mantra: *I’m not fucking up.* The sound of the large door opening fills the halls.
-
-“Missed me sweetheart?”, *You’re a professional god damn it*. I wait for the door to close behind me. I feign nonchalance as I walk to the centre of the room. I set the tray on the table.
-
-“Two weeks huh newbie? That's record time!”, she leans towards me, the large chains digging deeper and deeper into her flesh. The thought of those restraints sends a chill down my spine. “The other guy couldn’t last a day” I feel her eyes burning into me. *Are they glowing?* She laughs. “I’m joking newbie, where’s your sense of humour huh?” 
-
-*Fucking hilarious.* I force my mind to wander into the mountains.
-
-“You really believe them, don’t you?” she lowers her voice to a whisper. “Bet they showed you all those scary pictures.”, she giggles. “You really think I did that?”. 
-
-*Could she have? Doesn’t matter, the sun’s coming up. I feel the cold air wash over my body.*
-
-“The ol’ freakshow slideshow, real convincing. Don’t blink too hard baby you be their good little boy”, she laughs some more.
-
-*The summits an hour away, final stretch come on. What was that documentary guy's dog called? Snow. Right. Snow’s here. Wagging his tail like always.*
-
-I feel her giggles slide under my skin.
-
-*Keep climbing. Cold wind. Distant screams.*
-
-She sighs, “It’s okay newbie. Everyone needs me to be their boogieman. I don’t care about that. But you newbie, you’re always looking so serious.” She shifts in her chains. “Got a girl back home keepin you in check?”
-
-*The breeze is getting colder, snow is barking incessantly.* 
-
-“Siblings? Parents? Bet they're so proud of you huh newbie?”
-
-*Snow’s still barking, Or laughing. She's laughing. It echoes in the mountains.*
-
-“So how's your ma doin’?”
-
-I snap out of it. 
-
-I don't flinch. I keep my face straight. A single drop of sweat on my temple drops the facade.
-
-“Is she doin’ okay newbie? Is she gettin’ calls from her big responsible boy?”, she laughs. *Mountains mountains mountains.*
-
-“Bet she’s feelin’ lonely. Say newbie, did you tell her where you’re workin’? You’re not tellin’ me you lied to sweet ol’ mama did you?”, she makes an exaggerated pout. Her tone, her accent. Something about the lilt at the end of her words—
-
-Daisy Peters. 
-
-My first crush in middle school. Doodled her name all over my notebook. She used to laugh when I stuttered. I was always so shy. It never felt mean. It felt like a million butterflies.
-
-*What the fuck is taking so long?* 
-
-“You a liar, newbie? Been lyin’ to your ma? I mean they call me a monster but even for me that's fucked up.”, she cackles. *Time’s up, come on, what the hell is the hold up?*  “They ain’t comin’ for you this time”, she manages between her laughs.
-
-The metal door opens. It’s loud and slow, but the sound is a welcome reprieve. The sense of relief fades away as I check the time. *10 minutes longer with this thing for what?* My breath feels hot as I fill the form. I wait outside the door. I see the 4 men step out. “Why’d it take so long for you guys to get me today?”, I try to sound polite. It sounds bitter. I ask again, louder. Their footsteps retreat from me, faces unreadable under their masks. *Chumps*. 
-
-I storm to the post office. A lady greets me at the door. Her smile is warm, and fake.
-
-“Hi sir, how can I help you?” 
-
-“Where’s Jim, I wanna know the status of my second dependent”
-
-“He isn’t in today, would you like me to make an inquiry on your behalf?”. Lies. She doesn’t drop her smile.
-
-“Are you sure about that? I saw him today, I can just ask him myself” I ask, my voice barely above a whisper.
-
-“It must’ve been someone else sir” she replies, her smile still unwavering, almost mocking. 
-
-I stare at her, trying to read her expression. “I’ll just stand here till he’s back then. I got time.” I cross my arms. I know I saw him in the morning.
-
-“He won’t be in for a while sir. Anything else I can help you with besides the inquiry?”
-
-The adrenaline wears off, I see two guards approaching me from a distance. “No uh, never mind.” I mutter. The guards resume their positions.
-
-I stand in one spot in my room. I'm trying to ease my breath. *Calm down*. It's getting even faster. I feel my heart pounding against its cage. Another envelope. 
-
-**Psychological Evaluation Form Tier 2** 
-
-*I already filled this last week and now this shit again? For what? For asking why those idiots couldn't do their job?*
-
-I fill out the form, muttering under my breath. The sudden instinct to tear the stupid piece of paper overwhelms me. *It’s so flimsy and weak I could just— Get a fucking hold of yourself.* *One sam is enough for the family*. I put the form back in the envelope. My breathing eases. My mind is still a whirlwind of emotions. I fiddle with my shirt buttons and then take it off. I slip into pajamas.
-
-As my anger subsides, tiredness settles in. I feel my heart still pounding. *So tired and it’s only 1pm*. *Should’ve gotten that gym membership for myself instead.* I close my eyes. *When would I even go? Between Ma’s appointments and work. If I just had some help… If he’d just try.* I feel myself drift into something older, something familiar.
-
-The wallpaper is peeling off. The hall stinks of old socks and incense. I’m in front of a door. I knock twice.
-
-“Come on don’t be like that, open up”, Ma’s standing next to me, arms crossed. She turns her neck towards the door and then back to me. 
-
-I sigh, “Ma’s takin’ your side this time, you satisfied?”. I turn to Ma, her eyebrows are furrowed, she mouths, “Do better”
-
-“I mean, I’m sorry.” I pause. “I’m never callin’ you a junkie again okay I promise”, I turn the handle, of course it’s locked. “I messed up man I just wish you’d fucking try sometimes. I’ll help you out, I’ll drive you to those meetings every single day of my life if I have to, I swear”, my heart’s beating fast, Ma’s face shifts from anger to concern. “Come on man don’t shut me out” my hands are trembling, I feel like I’m going to break the handle. Ma’s eyes widen, they're glowing. She's banging on the door. 
-
-“Sam? Sam! Baby he didn’t mean it come on”
-
-My throat tightens, I’ve broken the handle. Ma is still banging on the door. No. Wait. She’s giggling. I’m punching the door. I smell metal.
-
-I don’t hear myself scream, just the itch in my throat.
-
-The walls collapse. I’m enveloped in black. 
-
-Then a blinding light. No it's tubelights, wooden desks. Mr. Rogers at the chalk board. 
-
-I'm so cold. *Why am I so cold?* I try to move but Daisy’s next to me, twirling her hair like always. She turns to me and smiles.
-
-“Hey newbie”
-
-I jolt up. My t-shirt’s damp.
-
-I place my palms on my face and wipe the sweat off.
-
-“Stupid junkie.”
-
-That’s what I called him back then. That’s what I was thinking even now.
-
-I rub my eyes.
-
-*Just a dream*. The details are getting fuzzier by the second. *It’s over*.
-
-I see a flip phone placed on my desk, I didn’t even remember it was Sunday already. 
-
-I grab it and I dial the only number I ever bothered to remember. My fingers won’t stop shaking. Just a dream.
-
-I hear her voice come through.
-
-“Hello?”
-
-“Hey ma”, I try to keep my voice from shaking. I want to tell her everything. 
-
-“How’s my baby holdin’ up, you had your lunch yet?”
-
-“Just got back to my office ma, I-I’m starvin’.” they’re probably listening. 
-
-“They feedin’ you good? They aint workin’ you too hard?”
-
-“Yeah ma it’s like a fuckin’ buffet over here, got meals from all sorts of places”, I force a laugh. 
-
-I hesitate. The words come before I can help it. “How’s-how’s Sam ma how's he doin’?”
-
-She pauses,“He’s doin’ alright honey. Folks at rehab told me he's making real strides. They’re—”, I hear her choke up. She tries to hide it. “They’re saying he's finally gonna beat it this time. I–I uh”
-
-“It’s okay ma, I’m just happy you guys are doing okay”
-
-I sniffle away from the phone’s mic.
-
-“Get him on the phone next time, and uh, tell him I miss him.”, I mute the phone as I feel more tears roll down my face. I let them come. “And you tell him I’m real proud”. 
-
-There's silence between us. It’s not like the silence in the office. 
-
-“I’ll make sure to tell him that baby. I love you. You're doin great honey. Don’t let these government idiots get you down okay?”
-
-“Alright I got these files I gotta review right”, I wipe my eyes with the heels of my hands, “I’ll be going now. I love you too.” 
-
-I hang up and lay on my bed. *No way but through champ.* I grab my apartment keys and head to the post office.
-
-“I want my guitar from my apartment.” I drop off the flip phone and my keys.
-
-“Alrighty sir, do you understand this reduces your allocated couriers to uh… 2?” 
-
-“Yes I do, make it quick please”, I flash her a smile as I head back. No way I’m going to sit here and just rot. *I got shit to lose, I’m going all the way to the finish line.* I finish my dinner and set an alarm.
-
-\---------------
-
-“BZZZZZZT” 
-
-I’m already up. I’ve been setting alarms to wake up way before the buzzer gets a chance to get me. My uniform hangs loose on my shoulders, I adjust it. 
-
-I glance at my calendar on the way out. Sunday morning. Not that it matters. I haven’t spoken to ma in weeks.
-
-I straighten my badge and head to the pantry. On the way I glance at my fingertips. My calluses are fading. I smile.
-
-*You don't wanna talk to me random server guy? I don’t care.* I take the tray and step in front of the metal door. It looks much smaller now. I almost laugh as I swipe my access card. It beeps and turns green. I'm in. 
-
-“Morning” 
-
-“Morning newbie” she smiles, it’s warm and sweet.
-
-“You hungry?”, I smile back, only time I feel like it these days.
-
-“Starvin’” I set the tray down. “Thanks newbie. Did they approve Sam's dependent status yet?”
-
-“Been chasing them for weeks at this point.” I take my usual spot on the wall. “I mean it’s my money, why do they care where the hell it goes? Bunch of morons in suits” 
-
-She giggles “Oh come on newbie you think they’re checkin’ his background? You think they care? They couldn’t give a fuck about you.” She bends down and eats from her plate. 
-
-“You sure they ain’t got wire taps in here?”, my eyes dart around the room.
-
-“I saw them hook this whole place up” she manages between bites. “Just cameras. Keep your head down though I don’t want you gettin’ in trouble.”
-
-“Mhmm” I keep my eyes down.
-
-“It’s almost time newbie, I’ll see you tomorrow then” 
-
-I hear the door whoosh open. *Must’ve oiled it.*
-
-I tick ‘No’ again.
-
-For verbal contact.
-
-I always tick no.
-
-Right?
-
-I stroll to the post office, I see Jimmy at his desk. He looks up at me. He squints, then smiles.
-
-“Hey man, how-how you doin’?”
-
-I feel stares on me from the other workers. *Mind your fucking business.*
-
-“Guess I’m alright. Did you catch any news on the whole dependent 2 thing Jim?”
-
-Jimmy hesitates, “I-uh… Look man, they denied it. It isn’t official yet but upstairs says they can’t be sending money to anyone with a record.”
-
-I felt my breath getting quicker.
-
-“It’s my fucking brother Jim. He needs the money. It’s been months, why the fuck didn’t I hear anything?”
-
-More heads turning. 
-
-“Don’t kill the messenger alright?”, Jimmy shifts in his seat. “I’m just telling you what I heard. They didn’t send me a letter. You know I’d tell you if they did.”
-
-I close my eyes for a second and exhale slow. I feel my hands balling into a fist, the skin on my knuckles feels tight.
-
-“Fine. But I’m reapplying, I’ll get a letter from his rehab.”
-
-“You’ll need to fill this out first.” Jimmy reaches under his desk and hands me an envelope.
-
- 
-
-**Psychological Evaluation Tier 3**
-
-“Jim I just filled this out last—”
-
-“Just do it”, he says, quieter. “It’s different”
-
-He’s holding out the envelope, not breaking eye contact. 
-
-I take it.
-
-I almost sprint to my room. I tear the envelope open on my desk. It’s a dossier. “Guard 21”. I flip it open. 
-
-**Psychological Report** 
-
-*“…Guard 21 continues to exhibit increased emotional volatility. Expressed unprovoked hostility during delivery round. Noted sweating, verbal disorientation, gaze avoidance. Denied contact with entity (verbal), but behavioral indicators might suggest otherwise…”*
-
-I flip the pages.
-
-**Behavioural metrics table**
-
-*…*
-
-*• Day 03 – flinched upon hearing entity speak; observed lip movement. No audio logged.*
-
-*• Day 08 – Time spent in Room 2709 exceeds SOP window by 2m 41s.*
-
-*• Day 12 – Elevated heart rate (recorded 132 bpm) upon exit. Possible distress response.*
-
-*• Day 14 – returned tray with trembling hands, failed to complete Section 5 of report form.*
-
-*• Day 16 – Observed laughing during debrief transit. No external stimulus recorded.*
-
-…
-
-*Subject appears to be talking in his sleep.*
-
-*Keeps saying “Snow, down boy.”*
-
-*…*
-
-The next page is an empty white sheet with a grainy, photocopied image still stapled to a plain white sheet. Timecode’s in the corner
-
-***Image Description:*** *Subject 21 standing within 3 feet of the entity. Hands behind back. Expression neutral or faintly amused.*
-
-Caption written in pen beneath the image: *“You’re not supposed to be smiling.”*
-
-*…*
-
-A weight sinks in my stomach. I was smiling. I don’t remember smiling.
-
-I look up at the ceiling. Then again. And again.
-
-*Shit. SHIT.*
-
-I climb on my desk, running my hands through the ceiling. *Where are the FUCKING cameras?* I sprint to my bed, throw the mattress to the floor and bend down. *Under the pillows, under the mattress. In the bathroom? Fuck uh on my desk.* I feel my chest heave as I tear my room apart. GOD DAMN IT
-
-“BZZZZZZT” 
-
-Already? I feel the sun peaking through the blinds. Did I sleep?
-
-I slip on my uniform. I need a belt. I check my reflection in the bathroom mirror. I barely recognize myself. I need to speak to Jim. I dial the intercom. 
-
-No answer.
-
-I slam the phone in place. 
-
-I hurry over to the post office, it’s shuttered\*.\*
-
-*“GUARD 21 PLEASE REPORT TO PANTRY FOR DUTY”,* the PA system screams
-
-Shit. I sprint to the lift. The elevator music is glitching. It’s grating.
-
-*DING*
-
-I take the tray. It’s empty. The server shutters the pantry window close. *What the hell is his problem?*
-
-*Calm down.* 
-
-*No, I don't wanna calm down.* 
-
-Stupid bureaucracy, stupid company, stupid fucking job. Won’t even let me talk to my ma. I swipe my access card. Drop the tray. I’m too mad to think.
-
-“They’re trying to break you down, newbie. I can’t just sit here and watch.”
-
-I’m trying to calm myself. I look at the camera on the wall, then back down. “I haven’t spoken to ma in weeks, they’re fucking calling it a tower outage.”
-
-“BULLSHIT. You hear me newbie? It’s bullshit. They just want you cornered and alone. So you listen to them like a good little pooch. But you see through it, newbie. I know you do.” 
-
-I look away, pretend to scratch my cheek.
-
-“Come on you gotta stay strong, for your Ma. I can live without rice for a day, don’t you cry for me neither.”
-
-“I fucking hate it here”
-
-“Me too newbie. You think they keep rapists like this? Killers? No. But if a girl defends herself, lock her up, throw away the fucking key.” she rattles her chains.
-
-“Did you really do it 201? I don’t care I just gotta know” 
-
-“What if I told you I did?”
-
-Silence.
-
-“Every last one of ’em deserved it. You hear me newbie? EVERY LAST ONE”, her voice echos. “Every needle-arm, every twitchy little fucker who thought I was weak had it coming.”
-
-“Bunch of lowlife junkies too.” *Maybe the world is better off without these vermin. All a bunch of fucking Sams.* 
-
-“You’re the only one that understands.” Her eyes glow softly, I feel her smiling at me. “You don’t need to call me 201, newbie. The name’s Daisy.”
-
-The lights shut. The room is drowned in a red glow. I hear an announcement being made outside. The AC is out, the door is locked. The power’s out. 
-
-*GENERATOR FAILURE. POWER EXPECTED TO BE OUT BETWEEN 2 TO 4 HOURS*
-
-My eyes widen as the metal door swings open. 
-
-“Newbie please” she chokes. “Take me with you. I promise I know the best place to hide. Just you and me. The cameras are out come on” 
-
-I feel a pull. 
-
-*You’re breaking protocol.*
-
-I feel my head turning.
-
-*“DO NOT look it in the eye”*
-
-*GENERATOR FAILURE. POWER EXPECTED TO BE OUT BETWEEN 2 TO 4 HOURS*
-
-Daisy Peters, my first love. Her smile could brighten up the darkest days. She looked so beautiful, her lips full, her teeth sharp and pointy. Little horns on the top of her head. She was so cute. Beautiful glowing emeralds for eyes. Her tongue is slit, powerful, graceful. 
-
-“So what’s your name, newbie?”
-
-“I-I uh” I pause, “I don’t remember.”
-
-She's beautiful.
-
-“Get me out”, she sings.
-
-I’m transfixed.
-
-“GET ME OUT”, Daisy jumps with joy. 
-
-I get to work. I insert my keys into the lock, they’re not turning. I feel the metal press against my skin.
-
-I’m tugging them. She's screaming. 
-
-I choke. I’m so pathetic.
-
-“GET ME OUT PLEASE”
-
-I’m biting at them. My teeth are bleeding. I don’t care. Daisy’s crying. *Daisy’s crying.* She's sobbing. She's inconsolable. Don’t cry Daisy please. “I’m trying, I swear I’m trying. I’ll convince my superiors, just please”
-
-But then she stops.Just for a second.Her body jerks forward like she’s going to scream again — but nothing comes out.She slumps slightly. The chains rattle.“Please...” she whispers, softer. “Please don’t leave me here.”
-
-The lights come back on. I stand up and plead with the guards to let her go. I beg. I cry. I’m kicking and screaming. But they pick me up with ease.
-
-I see tears pool around Daisy’s eyes again. She breathes in again and manages to scream one last time.
-
-“PLEASE JUST GET ME—” 
-
-The metal door shuts. My heart breaks.
-
-I’m sedated.
-
-I wake up in a haze. I’m tied to a chair. One arm is free. How considerate.
-
-I’m sorry ma. I’m sorry Sam. 
-
-The chains around me press into my bones. 
-
-I’m in a dark room surrounded by monitors.
-
-*There was no power cut. There was no guard.* 
-
-A thousand voices blare from speakers around me. 
-
-I see myself trying to break Daisy out. I see myself trash my room. I’m sleeping. I’m running down the hall. I’m at the post office.
-
-*Please just make it stop.* 
-
-Jimmy walks in and hands me a pen. 
-
-“Fill this out”
-
-I look down. A form.
-
-**Psychological Evaluation – Tier 4**
-
-I flip it over.
-
-**Phase 4: Subject 21 Exposure Analysis**
-
-**Hypothesis: Emotionally compromised subjects exhibit decreased resistance to Subject 201’s identity drift pattern under prolonged exposure.**
-
-I see Daisy crying on the camera again. Tears blot the paper as I tick boxes. 
-
-Through all the voices I hear Daisy’s the loudest:
-
-“GET ME OUT PLEASE”
-
+“I want the Blue Haddock. It smells… amazing.”
 
