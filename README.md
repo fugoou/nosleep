@@ -1,131 +1,321 @@
-# I work in a fish and chip shop, do not eat the “Catch of the Day” (Part 1)
-My first job each shift was reheating the previous night's curry sauce, a gelatinous cube of orange matter stored in an old margarine tub. Mondays meant fewer customers, it would probably be enough. I brought it back to life with a splash of water and a blast in the microwave. Next in my zombie routine was filling the batter bucket, bringing it up front, and starting the fryers. 
+# Every Year, I Return to the Field Where She Vanished
+It was a quiet Sunday afternoon, the kind that settles over everything like a soft sigh. Outside my apartment window, the sky stretched pale and cloudless, and the hum of the city felt distant, like it belonged to someone else’s life. Inside, I moved slowly, cleaning up after another long writing session. My notebook lay open on the coffee table, pages filled with half-finished poems and story fragments, the ink from my blue fountain pen still drying in places.
 
-But something felt off. Tubs and trays weren't where I'd left them in my tiny kitchen the night before. Odd. The owner, Salvatore, rarely worked quiet shifts like this. I ducked under the narrow ceiling as I headed down the cramped steps to the shopfront. There he was, behind the main fryer. Weird.
+I capped the pen and slid it into the spine of the notebook, then returned it to the shelf. I had spent most of the weekend writing—stories, poems, anything to keep my mind off the workweek ahead. The spreadsheets and emails could wait. For now, it was just me, my notebook, and the quiet hum of the apartment.
 
-“What’s that smell?” I asked, coming up behind him. He was frying something unusual, a strange, briny scent slipped beneath the familiar stink of hot oil. “Do we need fresh oil?”
+I should’ve been preparing for Monday, but something tugged at me—a quiet pull toward the corner of the room, where an old photo album sat beneath a stack of books I hadn’t touched in years.
 
-“Oh, big man,” he replied, “didn’t see you. Nah, oil’s fine. Just a wee experiment.”
+I hesitated. Then I walked over, pulled it free, and brushed off the thin layer of dust. The cover creaked as I opened it, and suddenly I was back in Red Horse.
 
-I narrowed my eyes skeptically, and he turned to catch my look. Luigi’s Fish Bar had seen plenty of experiments lately. The new pizza oven hadn't exactly driven sales as hoped. It had become more of a burden as every night without fail, minutes before close, after I'd switched it off, some drunkard would stumble in. “Aye, gie us a 8-inch spicy sweetcorn, cheers boss”
+Page after page, the memories came flooding in—snapshots of fishing trips with Dad, hikes through golden fields, beach days with sunburned noses and sticky fingers. There were photos of the farm market in full swing, of sunflowers taller than me, of the old barn where I used to hide when I needed to be alone.
 
-“No, trust me, this is the mutt’s nuts, this is something special,” he insisted. “I’m ahead of the pack on this one. Not even those gastro poofs in Edinburgh have heard of it yet.” I liked Sal, mostly, but his occasional homophobia reminded me how small this town was.
+And then I turned the page—and there she was.
 
-“I picked it up at the market this morning, a new fish, or subspecies. Blue Haddock, I think they are calling it.”
+Emilia.
 
-“New? What’s new about it? You don’t get new flavours of fish like Pringles.”
+Her smile hit me like a punch to the chest. She stood beside me and my parents, her arm slung casually over my shoulder, her eyes bright with something I hadn’t seen in years. I remembered that day. I remembered the way the sun lit up her hair, the way she laughed at something I said, the way everything felt like it was exactly where it was supposed to be.
 
-“Ah, fish expert now, are we? Three months battering and frying, and suddenly you're Jeremy Wade. Well, I suppose you are university educated, what was your degree again?”
+My throat tightened. I didn’t even realize my hands were shaking until the album slipped from my lap and hit the floor with a soft thud. The photo fluttered loose and landed face-down.
 
-“Graphic design.”
+I wiped my eyes and reached for it—but something caught my attention. There was a small, folded piece of paper taped to the back. My heart skipped. I knew what it was. I had taped it there myself, years ago, when the memory was still too sharp to face head-on.
 
-“Ah, learn a lot about fish subspecies designing graphics, do you? All I know is there’s some new fish on the market nobody’s seen before. All the trawler boys are talking about it, and I thought I'd give it a try. Special menu item, maybe people will love it. Now let’s get on with it, I’ll work the main fryer tonight, you’re on chips, so chuck some tatties in the rumbler and get the first basket on.”
+With trembling fingers, I peeled the tape away and unfolded the paper. The handwriting was unmistakable—Emilia’s. The ink had faded, but the words were still clear, still full of the warmth and hope of that day.
 
-The doors opened at 5 p.m., and for the first couple of hours, a small trickle of customers came and went. Single orders. On weeknights, fish suppers aren’t a big family treat but a quick dinner for the single, the busy and occasional tourist. No takers on the unknown fish special.
+I read it aloud, my voice barely above a whisper:
 
-“Ah, Margaret, how are you? How's Harold this evening?” Sal greeted one of the elderly regulars. A wiry wee Scottish woman with a stern leathery face, hardened by a life spent by the sea.
+*A regular day in our little farm town,*
 
-She ordered her usual: two small fish suppers for her and her husband. “You're always ordering that, Margo. Why not try something new?” Sal laid it on thick with the charm of a used car salesman. “Oh no,” she replied, smiling politely. “Harold and I like nothing better than a nice piece of fish.”
+*Where sunflowers sway and tractors hum,*
 
-But of course, Sal launched into his upselling patter about the new novelty catch of the day. Eventually, she relented.
+*Where the sky feels endless and the breeze feels kind,*
 
-He opened the fridge behind him and pulled out two fillets of Blue Haddock. Seeing them lined up on dry ice next to the regular haddock and cod only made them seem stranger. The white flesh was too clean, too flawless. They looked almost cartoonish, like fake, plastic fish. And even chilled, they were slick with a thin layer of fat, as if they were already slowly rendering in oil. It was in this oily coating that you could just catch a faint, pearlescent blue when the light hit it right.
+*And everything just... fits.*
 
-Sal baptised the fillets in the batter bucket before dropping them into the fryer. Almost instantly, the air was filled with that strange briny scent from earlier.
+*But what makes it more than just another day,*
+*Is you.*
 
-Margaret breathed in deeply. Her face, sceptical at first, had softened. Her eyes widened, fixated on the sight of the frying fish.
 
-I prepped two boxes of chips and placed the fried, golden fillets on top. Salt. Vinegar. Wrap. I handed the two paper-wrapped boxes to Margaret.
+*So maybe this is silly, but I’ll say it anyway—*
 
-“I’ve given you two *full* portions there, love. You enjoy that,” Sal said. “Oh, you shouldn’t have, dear, we’ll never finish them. Appetite’s not the same at our age,” she chuckled.
+*Will you be my boyfriend?*
 
-For the next hour, no other customers came in. I spent the time folding chip boxes, topping up vinegar bottles, and cleaning the microwave. I did my best to look busy during the quiet spell, especially with Salvatore watching me. I was wiping down the counter next to the till for the second time that hour when she walked in.
+*Let’s make each other smile forever.*
 
-Angelika’s presence—like her namesake—always seemed to illuminate the room. Her sharp features were framed by a thick cascade of dark curls, her hair in perfect contrast to the pale skin of her face and neck, lightly dusted with freckles and moles. A constellation I’d never managed to fully map, mostly because I was too afraid to stare at her for long. Like the sun. I suppose you could say I kind of liked her.
+I sat there for a long time, the poem resting in my lap, the photo beside it. Outside, the sun had started to dip, casting long shadows across the floor. Inside, the past had come rushing back, and with it, the question that had haunted me for years:
 
-I was in my second year of high school when Angelika Kovács and her family moved to our village. Mr. Kovács, despite being from landlocked Hungary, had fallen in love with the sea and opened a boat engine repair shop, which, ten years later, now serviced the village’s entire fishing fleet.
+What really happened to Emilia?
 
-Angelika had never quite integrated into the tight clique of our small class. She’d been deeply into paganism and goth subculture, which only made her stand out more. Since we’d both returned from university, her style had softened slightly, not full goth anymore, swapping pure black clothes and makeup for more muted tones. But still striking.
+I remember the night before it all changed more clearly than I remember most of last week.
 
-I’d had a crush on her for years in school, and now that we were both back in the village, those feelings had begun to stir again. Maybe it was that the goth girl aesthetic was popular online. Perhaps it was the allure of someone who seemed to come from a bigger, more interesting world. Either way, she stood in stark contrast to the grease-stained walls of Luigi’s Fish Bar. 
+I was sixteen, sitting at my desk in the attic bedroom of our old farmhouse in Red Horse. The air was warm and still, the kind of summer night that made the walls feel closer than they were. I had just finished the last problem in my math homework, the numbers still swimming behind my eyes as I leaned back and stretched. For a moment, everything felt simple. Normal.
 
-“Hey, you,” she said with a smile.
+Then I looked out the small window above my desk.
 
-“Hey, what can I get you?”
+At first, I thought it was a shooting star—a streak of light cutting across the sky. But then it did something no star should ever do: it made a sharp U-turn. Not a curve. A turn. Like it had changed its mind. Then it stopped. Just… stopped. Hovering.
 
-I immediately regretted saying that. In my nervousness, I left no room for small talk. I knew I wouldn’t be able to think of anything to say, so rather than leave a silence, I defaulted to business.
+I blinked. Rubbed my eyes. Looked again.
 
-“Oh. Can I get…”
+Gone.
 
-I couldn’t tell if she was disappointed by the lack of small talk or if she could tell what I was thinking and was now judging me for thinking there would be small talk.
+I sat there for a while, staring at the empty sky, trying to convince myself I’d imagined it. Probably just a plane. Or a satellite. Or maybe I’d been reading too many science fiction stories again. I laughed it off, but something about it stuck with me—like a splinter in the back of my mind.
 
-“...a fish supper and a chip roll.”
+Still, that wasn’t what made the night unforgettable.
 
-“Fish supper? I thought you were vegetarian.”
+What made it unforgettable was the decision I made after. I was going to tell Emilia how I felt.
 
-I overcorrected. Too personal, too fast. She definitely read that as me judging her.
+We’d been best friends since we were kids—inseparable, really. But somewhere along the way, my feelings had shifted. I’d tried to ignore it, tried to pretend it was just a phase, but it wasn’t. I loved her. And I couldn’t keep it to myself anymore.
 
-“Yeah, still am. Hence the chip roll. The fish is for my dad.”
+I barely slept that night. I kept rehearsing what I’d say, how I’d say it. I imagined every possible reaction—her laughing, her crying, her walking away. But I had to try. I had to know.
 
-“Oh. Well, has he tried our new special? A new catch, it’s the latest food trend. Blue Haddock. It’s got a much richer, buttery flavour.”
+The next day was a warm Friday afternoon. The kind of day where the sun feels like it’s leaning in close, listening. We met at Pearsons Park, like we always did. It was our place—wide open fields of tall grass and wildflowers, winding dirt paths, and the old wooden bench under the willow tree. It was quiet, peaceful. Safe.
 
-I had no idea what I was saying. In an attempt to salvage some dignity and sound normal, I just sounded deranged. My sales pitch must have been convincing though, because I caught Sal listening in, he shot me a thumbs up and a sly nod.
+I was nervous. My hands wouldn’t stop fidgeting. I was just about to speak when Emilia reached into her bag and pulled out a folded piece of paper.
 
-The next five minutes were excruciating. I kept telling myself I should talk to her while the fish was frying, but I had nothing. Eventually, she took out her phone and started scrolling. I kept glancing at her in small bursts, trying not to look weird. When she looked up, I looked down, at the fryer, at the strange fish crisping and bubbling in the oil.
+“I wrote something,” she said, not quite meeting my eyes.
 
-The briny smell was becoming overwhelming. Almost nauseating. My stomach twisted. Was it the fish? Or the shame of struggling to talk to Angelika? I couldn’t tell. I felt trapped. Sweat beaded on my forehead, and I wiped it with my forearm. Rookie mistake. The grease from the fryer on my arms and hands was now on my face. That clammy, sticky feeling would be with me all night, and I’d keep instinctively trying to wipe it off, with more greasy hands. A spiral.
+She unfolded it and began to read.
 
-“Here’s your order,” I said. “No vinegar, just salt, right?”
+It was a poem. Her poem. A confession.
 
-“Err… yeah. Thanks.”
+She loved me too.
 
-She looked me in the eyes and gave a half-smile.
+I didn’t even let her finish before I pulled her into a hug, laughing and crying at the same time. I said yes—of course I said yes. It felt like the world had finally clicked into place.
 
-“Very smooth,” said Sal, as she stepped out the door, almost certainly still within earshot.
+For the first time in my life, everything felt right.
 
-“You’re a natural at this. A few more sales like that, some word of mouth, and we’ll get people hooked on this new fish.”
+And for the last time, everything felt safe.
 
-What’s crazy to me now is how I spent the rest of that evening painfully replaying my interaction with Angelika, instead of thinking about the implications of the Blue Haddock. A new fish? What does that even mean? Is it safe to eat? Is it even legal to sell something that hasn’t been tested? Do you need a licence for this? All questions I should have been asking, instead of pining over a girl. 
+The wind moved through Pearsons Park like a slow breath, stirring the tall grass in gentle waves. Emilia and I walked hand in hand, still glowing from what had just happened. Her fingers were warm in mine, and every few steps, we’d glance at each other and smile like we were both afraid it might all vanish if we looked away too long.
 
-To be honest, I knew deep down that was the issue. I’d spent far too many years fixated on Angelika, developing a crush instead of, well... actually getting to know her. That’s why I struggled to talk to her. I didn’t really like *her*, I liked the idea of her. Because I didn’t *know* the real her. That was the revelation I came to the next night at work. No Sal to distract me, just me, alone with my thoughts.
+The sun was beginning to dip, casting long shadows across the field. The light turned everything gold—her hair, the grass, even the dirt path beneath our feet. It felt like the world was holding its breath for us.
 
-“Oi mate, you actually open or what?”
+Then I saw it.
 
-I was snapped out of my introspection. I hadn’t even noticed who had walked in. Robert. Another person from my past, but one I remembered far less fondly than Angelika. He wasn’t my high school bully; I’m not some nerd from an American high school movie. No, Robert was just a dickhead. He’d effortlessly flip from being your mate one minute to sadistically helping you develop a fresh insecurity the next. If Stockholm Syndrome were a friend.
+Just behind us, maybe twenty feet back, a patch of grass moved—wrongly. It wasn’t swaying with the wind like the rest. It was pushing against it, bending in the opposite direction, like something was crawling through it.
 
-Of course, he got bored with people quickly. Much to my relief, he only really gave me attention for six months, and I was glad to be rid of him. Now, if this were an American high school film, I might take comfort in him being stupid or something. Nah, Robert was smart. Good at maths and physics. Apprenticed as a civil engineer straight out of high school. Now, just five years later, he has a wife, a kid, a house, a stable job. I fry chips.
+I stopped walking.
 
-“Aye, two fish suppers and a pizza crunch.”
+Emilia looked at me, puzzled. “What is it?”
 
-Good lord. A pizza crunch.
+I stared at the grass. It had stopped moving. Everything looked normal again.
 
-When people hear about Scotland’s deep-fried food culture, they always joke about the deep-fried Mars Bar. Truth is, that’s only ever ordered by tourists. The real epitome is the pizza crunch. Immortalised in the Scotland fans’ chant when we play Italy:
+“Nothing,” I said, forcing a smile. “Thought I saw a rabbit or something.”
 
-"We are gonna deep fry yer pizza, deep fry pizzas, waaaay!"
+We kept walking, but I couldn’t shake the feeling. I glanced back again.
 
-I pulled a frozen supermarket pizza from the freezer. Folded it in half and dunked it in the batter bucket. Now oozing and dripping with pale batter, I dropped the cursed calzone into the fryer.
+There it was.
 
-As I was finishing Robert’s order, Margaret walked in. Two nights in a row? Odd. She approached the counter with a briskness that didn’t quite befit her years. 
+Closer this time.
 
-“Two single fish,” she snapped. “The new fish. The blue one.”
+The same patch, moving deliberately, like it was following us. Then it froze again, perfectly still, as if it knew I was watching.
 
-I politely nodded, not paid enough to reflect on the weirdness. I went to the fridge to pull out the fillets. I removed the ghostly, oily Blue Haddock. Margaret’s eyes locked onto the fish in my hands. Her eyes bulged, unblinking, glassy and slightly too big for her face.
+A chill crept up my spine.
 
-Her eyes reminded me of my pet goldfish when I was eight. They reminded me of him as I watched him dying on the floor of my bedroom. My father and I had been scooping him out of the tank while we cleaned it, and he’d jumped out of the net. His limp, flaccid body flopped on the carpet, mouth flapping open rapidly. The soft carpet absorbed the moisture from his gills while he lay there, staring up at me, in pain and anguish.
+I didn’t say anything at first. I didn’t want to scare her. Maybe it was just my imagination. Maybe I was still rattled from the night before, from that strange light in the sky.
 
-My father shouted, screaming at me as I stood frozen in terror.
+But then Emilia leaned in, her voice barely a whisper.
 
-“Pick it up! It’s dying, pick it up!”
+“Did you see that too?”
 
-I couldn’t do it. I couldn’t bring myself to touch the alien, slimy, wet creature. My eyes welled up with tears, and I ran from the room.
+I stopped walking. My heart was pounding now.
 
-Dad, of course, saved the fish without a second thought. But my irrational childhood fear of fish had begun.
+She didn’t look at me. She just kept her eyes on the grass behind us, her expression tight, her jaw clenched.
 
-I reflected on that fear now, with the slimy fillets in my hand. I still couldn’t bring myself to eat fish. My go-to chippy order remains a smoked sausage. The fear had faded enough to let me cook fish for my minimum wage job, but I still can’t eat fish fingers or swim in the sea.
+We didn’t speak. We didn’t need to.
 
-Focused on my frying, trying to ignore the old woman in the corner of the shop licking her lips I heard the door open again. Another customer. On a Tuesday? I looked up.
+We ran.
 
-Angelika. Her deep brown eyes stared directly at me.
+The tall grass whipped at our legs as we sprinted toward the edge of the park, our hands still locked together. I didn’t look back. I didn’t want to see whatever it was. I just ran, lungs burning, heart hammering, the sound of our footsteps swallowed by the wind.
 
-“I want the Blue Haddock. It smells… amazing.”
+But I could feel it.
 
+Something was behind us.
+
+Something was coming.
+
+We tore through the last stretch of tall grass, the edge of Pearsons Park finally in sight. Relief surged through me—until I slammed into something that wasn’t there.
+
+It was like hitting glass, but there was nothing in front of me. No shimmer, no distortion. Just air—and an invisible wall that sent me sprawling backward onto the ground.
+
+Emilia cried out as she collided with it too, her hands outstretched, pressing against the unseen surface. I scrambled to my feet and pounded on it, shouting her name, shouting for help—but the sound felt wrong. Muffled. Distant. Like it was being swallowed before it could even leave my mouth.
+
+We were sealed in.
+
+I turned, scanning the park’s edge—and spotted Charlie, the mailman, walking his usual route. I waved frantically, slammed my fists against the barrier, screamed his name.
+
+He saw us.
+
+He walked toward us, confused, his mouth moving—but we heard nothing. Not a word. Not even a whisper. It was like we were watching a silent film, trapped behind soundproof glass.
+
+I backed up, took a running start, and threw myself at the wall.
+
+It didn’t budge.
+
+Pain exploded through my shoulder as I hit the ground again, gasping. Emilia knelt beside me, her face pale, her eyes wide with fear.
+
+Then we saw them—Lily and Sam, our elderly neighbors, standing at the edge of the park, pointing behind us, their faces twisted in horror. Their mouths moved rapidly, shouting something, maybe warning us—but still, we heard nothing.
+
+Charlie turned, looked where they were pointing—and ran.
+
+I turned too.
+
+And saw it.
+
+Tall. Robed. Silent.
+
+It hovered just beyond the grass, its form almost blending with the shadows. Slender and impossibly symmetrical, hiding its body beneath a flowing robe that shimmered with iridescent colors—like oil on water, shifting with every breath of wind. The robe concealed most of its body, but now and then, a long, grey arm would emerge, impossibly smooth and jointless, as if sculpted from stone.
+
+Its head was hidden beneath a sleek, obsidian helmet—featureless, faceless, a void that seemed to drink in the light around it. There were no eyes, no mouth, no expression. Just a black emptiness that watched us.
+
+It didn’t move. It didn’t speak.
+
+It just floated there, silent and still.
+
+Emilia screamed—but even her voice sounded strange inside the bubble. Like it was being pulled inward, away from the world.
+
+Then she began to rise.
+
+Her feet lifted off the ground, her arms limp at her sides, her body stiff as if caught in invisible strings. She floated upward, slowly, silently, her eyes locked on mine.
+
+“No!” I shouted, finally breaking free of my paralysis. I ran toward her, reaching out—but that thing raised one hand.
+
+And I flew backward.
+
+The impact with the barrier knocked the wind out of me. I crumpled to the ground, dazed, barely conscious.
+
+Two beams of light descended from the sky—blinding, brilliant, and impossibly quiet. They enveloped Emilia and it in a soft glow.
+
+And then they were gone.
+
+Just like that.
+
+Then, sound rushed back in like a crashing wave—birds, wind, voices.
+
+I heard shouting—dozens of them—rushing toward me. Townspeople. Witnesses. Questions flying from every direction.
+
+But I couldn’t answer.
+
+I just lay there, staring at the empty sky, my heart broken open, my world forever changed.
+
+The days after Emilia vanished felt like a dream I couldn’t wake up from.
+
+At first, the town of Red Horse was stunned into silence. People whispered, stared, avoided eye contact. But it didn’t take long for the fear to set in. Real fear. The kind that makes people lock their doors in the middle of the day and jump at the sound of the wind.
+
+Everyone had seen it. The light. The thing in the field. The way she was taken.
+
+And yet, when the news vans came, when the reporters showed up with their microphones and skeptical smiles, no one believed us.
+
+They called it a hoax. A mass hallucination. Some even accused us of staging it for attention. The footage people had taken on their phones was dismissed as doctored. The eyewitness accounts were twisted into punchlines on late-night talk shows. We became a joke.
+
+Emilia’s parents didn’t stop fighting. They went on every local station that would have them, wrote letters to anyone who might listen. They begged for help. For answers. For someone—anyone—to believe them.
+
+No one did.
+
+Families started leaving. Some out of fear. Others out of shame. Red Horse became a ghost town in slow motion. Businesses closed. The school lost half its students. People stopped saying Emilia’s name.
+
+But I couldn’t forget.
+
+Everywhere I went, I saw her. In the empty bench at Pearsons Park. In the corner booth at the diner where we used to split milkshakes. In the mirror, in my own eyes, where the guilt never left.
+
+I should’ve done something. I should’ve pulled her down. I should’ve fought harder. I should’ve—
+
+But I didn’t.
+
+And I couldn’t change that.
+
+When I turned twenty, I packed a suitcase full of notebooks and left Red Horse. Not to escape. To search. I told myself that if she was still out there—somewhere, somehow—I had to find her. I didn’t care how long it took. I didn’t care if it was impossible.
+
+I just couldn’t let her be gone.
+
+Not like that.
+
+So I searched.
+
+For years, I followed every rumor, every strange sighting, every whisper that sounded even remotely like her name. I crossed cities, borders, oceans. I spoke to people who claimed to have seen lights in the sky, who swore they’d been taken and returned. I filled notebook after notebook with dead ends.
+
+But I never found her.
+
+And slowly, the world moved on.
+
+Except for one thing.
+
+Every year, on the anniversary of the day she disappeared, I came back.
+
+It doesn’t feel like five years. Some days it feels like five minutes. Others, like five lifetimes.
+
+Every July third, I return to Red Horse. I drive the same road, pass the same weathered signs, and park in the same gravel lot beside Pearsons Park. The town has changed—new faces, new buildings—but the field is the same. The grass still sways in the wind like it remembers.
+
+People know me now. Not by name, necessarily, but by ritual. The quiet figure who returns once a year, always at the same hour, always walking alone into the tall grass. Only my parents and Emilia’s parents come with me now. They don’t speak. They just stand at the edge of the field, giving me space.
+
+I step into the grass, the wind brushing against my arms like a memory. I carry two things: the photo of Emilia, and a folded sheet of paper—my own poem, written for her, for this moment.
+
+I stop at the same spot. The place where she vanished.
+
+And I read.
+
+*I still see you in the tall grass,*
+
+*where the wind once carried your laugh.*
+
+*I wasn’t fast enough.*
+
+*I wasn’t strong enough.*
+
+*But I’m still here—*
+
+*searching, waiting,*
+
+*hoping the sky brings you back to me.*
+
+
+When I finish, I fold the paper and press it to my chest. The others have already turned to leave, giving me time. I stay a little longer, letting the silence settle.
+
+In five years, I’ve searched everywhere. I’ve followed rumors, chased dead ends, spoken to people who claimed to know something—anything. But there was never a trace. No sightings. No signals. No answers.
+
+Until now.
+
+Just as I turn to go, I see it.
+
+A small piece of paper, half-buried near the path. It flutters slightly in the breeze, like it’s been waiting for me.
+
+I kneel, heart pounding, and pick it up.
+
+The handwriting stops me cold.
+
+It’s hers.
+
+I unfold it slowly, afraid it might vanish if I move too fast. The words are soft, lyrical—like all her poems—but there’s something else in them now. Sorrow. Loneliness. A voice reaching out from somewhere far away.
+
+*I wake in dark that never ends,*
+
+*Hands like ice, minds that bend—*
+
+*They tear my thoughts, they twist my skin,*
+
+*And call it learning from within.*
+
+*But through the pain, I see your face,*
+
+*A memory time cannot erase.*
+
+*I whisper your name into the void,*
+
+*The only light they’ve not destroyed.*
+
+I read it again. And again.
+
+It’s her.
+
+Somehow, impossibly—it’s her.
+
+I don’t know how it got here. I don’t know what it means. But I know one thing with absolute certainty:
+
+She’s still out there.
+
+And after all these years of wandering, of chasing shadows and silence—I finally have something real.
+
+So I’m coming back.
+
+Not just to remember her.
+
+But to find her.
