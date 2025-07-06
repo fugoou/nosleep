@@ -1,321 +1,204 @@
-# Every Year, I Return to the Field Where She Vanished
-It was a quiet Sunday afternoon, the kind that settles over everything like a soft sigh. Outside my apartment window, the sky stretched pale and cloudless, and the hum of the city felt distant, like it belonged to someone else’s life. Inside, I moved slowly, cleaning up after another long writing session. My notebook lay open on the coffee table, pages filled with half-finished poems and story fragments, the ink from my blue fountain pen still drying in places.
+# The Little People Are Real, and They Took My Sister and My Brother (Part 1)
+[Part One: The Day She Vanished]
 
-I capped the pen and slid it into the spine of the notebook, then returned it to the shelf. I had spent most of the weekend writing—stories, poems, anything to keep my mind off the workweek ahead. The spreadsheets and emails could wait. For now, it was just me, my notebook, and the quiet hum of the apartment.
 
-I should’ve been preparing for Monday, but something tugged at me—a quiet pull toward the corner of the room, where an old photo album sat beneath a stack of books I hadn’t touched in years.
+I’m not going to name the reservation. I don’t want this to become a headline. If you know, you know. If you’ve ever lived in a place like mine, you’ve probably already heard some version of this story.
 
-I hesitated. Then I walked over, pulled it free, and brushed off the thin layer of dust. The cover creaked as I opened it, and suddenly I was back in Red Horse.
+But this one’s mine. So I’ll tell it.
 
-Page after page, the memories came flooding in—snapshots of fishing trips with Dad, hikes through golden fields, beach days with sunburned noses and sticky fingers. There were photos of the farm market in full swing, of sunflowers taller than me, of the old barn where I used to hide when I needed to be alone.
+I grew up in a small town tucked between mountains that feel older than the sky. The kind of place where you know every dog’s name before you know their owner. Because everyone around you is either known as Uncle, Aunt, or Cousin. A tight-knit community where everyone is family. The kind of place where no one would lock their doors unless they had a reason to… and unfortunately… there’s always a reason.
 
-And then I turned the page—and there she was.
+I was raised by my grandmother, along with my two cousins. Technically second cousins, but that didn’t matter. We were siblings in everything but blood. We shared a room. We shared chores. We shared every scar and every lie we told, every butt-whooping, every grounding.
 
-Emilia.
+My older cousin, who I’ll call “T,” was quiet even as a kid. Smarter than me. Stronger, too. The kind of kid who listened when our elders told stories instead of wandering off. I didn’t. I rolled my eyes. I cracked jokes. I was always the one daring someone to do something they shouldn’t. Though I was usually the one doing said dare. Causing trouble, running amok. And there’d be “T” standing right beside me. Not because he was secretly a troublemaker too. But because he always looked out for us. He always made sure we got home safe. He never partook in our schemes—he’d watch and laugh, pick us up if we fell, carry us when we were too tired. And stand beside us and take every whooping that came with terrorizing the neighborhood. He was a good brother.
 
-Her smile hit me like a punch to the chest. She stood beside me and my parents, her arm slung casually over my shoulder, her eyes bright with something I hadn’t seen in years. I remembered that day. I remembered the way the sun lit up her hair, the way she laughed at something I said, the way everything felt like it was exactly where it was supposed to be.
+And then there was S.
 
-My throat tightened. I didn’t even realize my hands were shaking until the album slipped from my lap and hit the floor with a soft thud. The photo fluttered loose and landed face-down.
+Our little cousin. Our baby sister, really. I don’t even want to use a fake name for her. It feels wrong. She had this chipped front tooth and the kind of laugh that made even the angry dogs in the street stop growling. She was fearless in that soft way little kids can be—brave because she didn’t know not to be yet.
 
-I wiped my eyes and reached for it—but something caught my attention. There was a small, folded piece of paper taped to the back. My heart skipped. I knew what it was. I had taped it there myself, years ago, when the memory was still too sharp to face head-on.
+You wouldn’t believe this tiny ball of Indigenous fury could hold her own with us big kids. Though me and “T” were 13 and 15 respectively, “S” was only 10 years old. Maybe it was the need to prove herself, or maybe it was genuine youthful spirit, but she stood right beside us, causing mayhem and mischief every step of the way.
 
-With trembling fingers, I peeled the tape away and unfolded the paper. The handwriting was unmistakable—Emilia’s. The ink had faded, but the words were still clear, still full of the warmth and hope of that day.
+She had a bit of a crush on one of the other neighborhood boys I’ll call “J.” S, J, and I would dare each other to do the dumbest things, usually with T following us like a shadow. Whether it was jumping into the nearby river with no clothes on or running down the street shooting fireworks at nearby houses—those were good times.
 
-I read it aloud, my voice barely above a whisper:
+The three of us were raised like siblings. Grandma made sure of that. She fed us the same food. Yelled at us the same way. Loved us all the same—loud, gruff, and without explanation. But if we needed it—if we needed her—she was there. Always.
 
-*A regular day in our little farm town,*
+During our youthful days, we had a spot we weren’t supposed to go. Everyone knew about it, even if nobody talked about it out loud. Just past the southern ridge, tucked at the bottom of a nearby mountain and a thicket of moss-covered stone, was a mouth in the rock. A cave, unmarked on any official map. It breathed cold even in July. Birds wouldn’t nest near it. Dogs wouldn’t go close.
 
-*Where sunflowers sway and tractors hum,*
+The adults told us never to go there. The stories were older than them, passed down with tired eyes and slow voices. Every tribe around here had some version of the same thing.
 
-*Where the sky feels endless and the breeze feels kind,*
+The Little People.
 
-*And everything just... fits.*
+Not fairy tale creatures. Not helpful forest gnomes. These weren’t things you could put in cartoons.
 
-*But what makes it more than just another day,*
-*Is you.*
+T believed those stories. S wanted to. I didn’t.
 
+I still don’t.
 
-*So maybe this is silly, but I’ll say it anyway—*
+But I believed in games. I was pretty competitive—like S, desperate to prove myself. And one summer afternoon, we dared each other.
 
-*Will you be my boyfriend?*
+Each of us had our own paths into the cave, our own “secret trail” that we swore was the fastest. All the kids did. At the end of all paths, deep into the mountain, was a hollow chamber named Brave Woman’s Grave. One of us, long ago, gave it that name, saying the rock in the center looked like a bed for the dead. The name stuck.
 
-*Let’s make each other smile forever.*
+We decided to race.
 
-I sat there for a long time, the poem resting in my lap, the photo beside it. Outside, the sun had started to dip, casting long shadows across the floor. Inside, the past had come rushing back, and with it, the question that had haunted me for years:
+This wasn’t unusual—we’d done it before. All the kids did, and probably a lot of the adults too, when they were younger. T also did so when he was younger, before he got so stiff. He even claimed he was the fastest to ever do it. I couldn’t let that claim slide. I had a big head for the little snot-nosed brat I was.
 
-What really happened to Emilia?
+God, I wish I never uttered those words.
 
-I remember the night before it all changed more clearly than I remember most of last week.
+The rules were simple: no flashlights, no cheating, and the first one to reach the Grave had to put both hands on the slab and say,
+“Here lies the Queen of Bones.”
 
-I was sixteen, sitting at my desk in the attic bedroom of our old farmhouse in Red Horse. The air was warm and still, the kind of summer night that made the walls feel closer than they were. I had just finished the last problem in my math homework, the numbers still swimming behind my eyes as I leaned back and stretched. For a moment, everything felt simple. Normal.
+Stupid, childish fun. It was tradition. At least among the youth.
 
-Then I looked out the small window above my desk.
+But before we even reached the cave, something stopped me.
 
-At first, I thought it was a shooting star—a streak of light cutting across the sky. But then it did something no star should ever do: it made a sharp U-turn. Not a curve. A turn. Like it had changed its mind. Then it stopped. Just… stopped. Hovering.
+We’d just crossed the river when I looked left and saw someone standing just off the bank.
 
-I blinked. Rubbed my eyes. Looked again.
+Not swimming. Not moving.
 
-Gone.
+It looked like a man in plain clothes.
 
-I sat there for a while, staring at the empty sky, trying to convince myself I’d imagined it. Probably just a plane. Or a satellite. Or maybe I’d been reading too many science fiction stories again. I laughed it off, but something about it stuck with me—like a splinter in the back of my mind.
+Just standing. Facing the trail. Still as beached driftwood.
 
-Still, that wasn’t what made the night unforgettable.
+He wasn’t anyone I knew. Not from school. Not from town. Not from the rez.
 
-What made it unforgettable was the decision I made after. I was going to tell Emilia how I felt.
+S called for me, and I turned in her direction—to see her and T waiting for me near the mouth of the cave. As I started to speak, I looked back toward the river.
 
-We’d been best friends since we were kids—inseparable, really. But somewhere along the way, my feelings had shifted. I’d tried to ignore it, tried to pretend it was just a phase, but it wasn’t. I loved her. And I couldn’t keep it to myself anymore.
+The man was gone.
 
-I barely slept that night. I kept rehearsing what I’d say, how I’d say it. I imagined every possible reaction—her laughing, her crying, her walking away. But I had to try. I had to know.
+No splash. No movement. Just gone.
 
-The next day was a warm Friday afternoon. The kind of day where the sun feels like it’s leaning in close, listening. We met at Pearsons Park, like we always did. It was our place—wide open fields of tall grass and wildflowers, winding dirt paths, and the old wooden bench under the willow tree. It was quiet, peaceful. Safe.
+I told myself it must’ve been a log. Or a trick of the light, since it was evening and the shadows were casting long. Or maybe even that my eyes were playing games because I wanted the cave to feel scary.
 
-I was nervous. My hands wouldn’t stop fidgeting. I was just about to speak when Emilia reached into her bag and pulled out a folded piece of paper.
+I ran faster after that.
 
-“I wrote something,” she said, not quite meeting my eyes.
+At the mouth of the cave, I stood beside my siblings. T was snickering, saying things like, “Get ready to eat my dust.” And S replying with words and names a 10-year-old shouldn’t know—but she did. We all laughed at her vulgarness.
 
-She unfolded it and began to read.
+And then—
+we lined up, side by side, like always.
 
-It was a poem. Her poem. A confession.
+Just… for the last time.
 
-She loved me too.
+“1… 2… 3…”
 
-I didn’t even let her finish before I pulled her into a hug, laughing and crying at the same time. I said yes—of course I said yes. It felt like the world had finally clicked into place.
+My trail into the Grave curved through a narrow passage that dropped down a six-foot stone chute. The only way back up was to press your feet against one wall, your shoulders against the other, and shimmy until your ribs ached. I liked it. It made me feel like the cave didn’t want me there—and I beat it anyway.
 
-For the first time in my life, everything felt right.
+I made it first.
 
-And for the last time, everything felt safe.
+It was easy getting there and easy getting back because years of exploring youths had left many chalk markings indicating certain paths to and from the Grave. Even on your own “secret trail” it was easy to find these markings. So rarely, if at all, did anyone actually get lost.
 
-The wind moved through Pearsons Park like a slow breath, stirring the tall grass in gentle waves. Emilia and I walked hand in hand, still glowing from what had just happened. Her fingers were warm in mine, and every few steps, we’d glance at each other and smile like we were both afraid it might all vanish if we looked away too long.
+My voice echoed when I called it out:
+“Here lies the Queen of Bones!”
 
-The sun was beginning to dip, casting long shadows across the field. The light turned everything gold—her hair, the grass, even the dirt path beneath our feet. It felt like the world was holding its breath for us.
+No one answered.
 
-Then I saw it.
+I waited, sitting on the stone slab in the middle of the hollow. The Grave was always cold—colder than the rest of the cave. It smelled like dust and rust and something older. Something damp.
 
-Just behind us, maybe twenty feet back, a patch of grass moved—wrongly. It wasn’t swaying with the wind like the rest. It was pushing against it, bending in the opposite direction, like something was crawling through it.
+Then I heard it.
 
-I stopped walking.
+Not footsteps, but a scraping sound. A shuffle of pebbles. Then silence.
 
-Emilia looked at me, puzzled. “What is it?”
+I called out, thinking it was T.
 
-I stared at the grass. It had stopped moving. Everything looked normal again.
+No reply.
 
-“Nothing,” I said, forcing a smile. “Thought I saw a rabbit or something.”
+Then more sounds. Scratching. A fast skittering noise overhead, like nails dragging across stone. I looked up… nothing.
 
-We kept walking, but I couldn’t shake the feeling. I glanced back again.
+The Grave echoed everything. I heard a breath I didn’t think was mine. I felt watched. I felt a sense of dread I’d never felt at that time in my life.
 
-There it was.
+Memories of those scary stories from years earlier. The folktales the elders would share late into the nights of powwows and ceremonies.
 
-Closer this time.
+Stories of those small demons known as Nimerigar—or The Little People.
 
-The same patch, moving deliberately, like it was following us. Then it froze again, perfectly still, as if it knew I was watching.
+They were old, wild, and cruel—small only in stature, not in strength. They’d mimic voices, slip into your dreams, steal children and leave behind strange carvings in the dirt. They’d crawl on the ceilings and whisper from holes in the walls. They lived under the mountains and knew the caves better than light ever could.
 
-A chill crept up my spine.
+These small cave-dwellers who would come out of their underground homes to grab children, like us, who strayed too far into the woods and mountains, dragging them deep into tunnels much too small for their bodies to fit completely—but they’d pull them anyway.
 
-I didn’t say anything at first. I didn’t want to scare her. Maybe it was just my imagination. Maybe I was still rattled from the night before, from that strange light in the sky.
+Leaving behind only what couldn’t.
 
-But then Emilia leaned in, her voice barely a whisper.
+My heart started racing twice as fast as I looked all around. The cracks in the roof letting in the last dying embers of sunlight. Just enough for me to see shapes and shadows. But the dark around me grew slowly more suffocating as the noises grew louder.
 
-“Did you see that too?”
+And then I saw it.
 
-I stopped walking. My heart was pounding now.
+A blur of movement—low and fast—darting between two rocks.
 
-She didn’t look at me. She just kept her eyes on the grass behind us, her expression tight, her jaw clenched.
+I thought I saw fingers. A face. A grin stretched too wide.
 
-We didn’t speak. We didn’t need to.
+“It’s them… It’s really them…” I thought, as despair gripped my throat, strangling out the last bit of air in my lungs.
 
-We ran.
+“This is it… why didn’t I listen…”
 
-The tall grass whipped at our legs as we sprinted toward the edge of the park, our hands still locked together. I didn’t look back. I didn’t want to see whatever it was. I just ran, lungs burning, heart hammering, the sound of our footsteps swallowed by the wind.
+…Is what I would have thought, if said blur didn’t stop in the middle of the last, dwindling sunlight in the cave.
 
-But I could feel it.
+For just a second, I believed it. I felt every story we’d ever been told crack open inside my chest like a broken levee. A harsh, unforgiving wave of hindsight overwhelming me. Drowning me in an ocean of if onlys.
 
-Something was behind us.
+Then it barked.
 
-Something was coming.
+A coyote. Scrawny. Half-blind. Fur matted and stomach hollow.
+Probably more terrified than I was just a moment ago.
 
-We tore through the last stretch of tall grass, the edge of Pearsons Park finally in sight. Relief surged through me—until I slammed into something that wasn’t there.
+I coughed out a dry laugh at the realization, the abrupt sound scaring off the little mutt.
 
-It was like hitting glass, but there was nothing in front of me. No shimmer, no distortion. Just air—and an invisible wall that sent me sprawling backward onto the ground.
+It slipped through a narrow gap behind the altar and vanished.
 
-Emilia cried out as she collided with it too, her hands outstretched, pressing against the unseen surface. I scrambled to my feet and pounded on it, shouting her name, shouting for help—but the sound felt wrong. Muffled. Distant. Like it was being swallowed before it could even leave my mouth.
+I exhaled heavily again—this time so hard I coughed up a fit.
 
-We were sealed in.
+“Jesus,” I whispered. “I almost believed it.”
 
-I turned, scanning the park’s edge—and spotted Charlie, the mailman, walking his usual route. I waved frantically, slammed my fists against the barrier, screamed his name.
+I stood and climbed out, away from the Grave, scraping my back on the way up, and followed the white chalk marks back toward the surface.
 
-He saw us.
+When I got to the cave’s mouth, T was already there.
 
-He walked toward us, confused, his mouth moving—but we heard nothing. Not a word. Not even a whisper. It was like we were watching a silent film, trapped behind soundproof glass.
+He grinned. “Took you long enough.”
 
-I backed up, took a running start, and threw myself at the wall.
+“Get outta here,” I said. “I was waiting for you!”
 
-It didn’t budge.
+We threw jabs. Elbowed each other. Talked trash the way cousins do when neither of them wants to admit they were scared.
 
-Pain exploded through my shoulder as I hit the ground again, gasping. Emilia knelt beside me, her face pale, her eyes wide with fear.
+Then we waited.
 
-Then we saw them—Lily and Sam, our elderly neighbors, standing at the edge of the park, pointing behind us, their faces twisted in horror. Their mouths moved rapidly, shouting something, maybe warning us—but still, we heard nothing.
+We waited longer.
 
-Charlie turned, looked where they were pointing—and ran.
+S didn’t come out.
 
-I turned too.
+At first, we joked. Said she probably got turned around or stopped to dig the cobwebs out of her braids. We stood at the mouth of the cave, peering in.
 
-And saw it.
+She wasn’t there.
 
-Tall. Robed. Silent.
+We waited.
 
-It hovered just beyond the grass, its form almost blending with the shadows. Slender and impossibly symmetrical, hiding its body beneath a flowing robe that shimmered with iridescent colors—like oil on water, shifting with every breath of wind. The robe concealed most of its body, but now and then, a long, grey arm would emerge, impossibly smooth and jointless, as if sculpted from stone.
+The sun dipped lower.
 
-Its head was hidden beneath a sleek, obsidian helmet—featureless, faceless, a void that seemed to drink in the light around it. There were no eyes, no mouth, no expression. Just a black emptiness that watched us.
+We waited more.
 
-It didn’t move. It didn’t speak.
+We called her name.
 
-It just floated there, silent and still.
+We yelled louder.
 
-Emilia screamed—but even her voice sounded strange inside the bubble. Like it was being pulled inward, away from the world.
+Then we started running.
 
-Then she began to rise.
+We told the adults.
 
-Her feet lifted off the ground, her arms limp at her sides, her body stiff as if caught in invisible strings. She floated upward, slowly, silently, her eyes locked on mine.
+The adults called everyone else.
 
-“No!” I shouted, finally breaking free of my paralysis. I ran toward her, reaching out—but that thing raised one hand.
+The uncles. The cousins. The old aunties who never left their porches. Even the medicine woman came.
 
-And I flew backward.
+Then the cops.
 
-The impact with the barrier knocked the wind out of me. I crumpled to the ground, dazed, barely conscious.
+They brought flashlights and dogs and men with radios who didn’t bother hiding their annoyance.
 
-Two beams of light descended from the sky—blinding, brilliant, and impossibly quiet. They enveloped Emilia and it in a soft glow.
+They found her shoe tucked just inside the cave’s entrance. A trail of footprints, half-erased by time and shifting stone. Another shoe farther in.
 
-And then they were gone.
+Then nothing.
 
-Just like that.
+I told one of the officers I saw a man at the river. But he looked at me like I’d told him it was Bigfoot. Then he scribbled something in a notebook and never asked again.
 
-Then, sound rushed back in like a crashing wave—birds, wind, voices.
+The other officers said things like she must’ve wandered off. Or fallen. Or gotten scared and hidden.
 
-I heard shouting—dozens of them—rushing toward me. Townspeople. Witnesses. Questions flying from every direction.
+The tribal search parties kept looking for two weeks.
+The police stopped after three days.
 
-But I couldn’t answer.
+She was never found.
 
-I just lay there, staring at the empty sky, my heart broken open, my world forever changed.
+(To be continued)
 
-The days after Emilia vanished felt like a dream I couldn’t wake up from.
-
-At first, the town of Red Horse was stunned into silence. People whispered, stared, avoided eye contact. But it didn’t take long for the fear to set in. Real fear. The kind that makes people lock their doors in the middle of the day and jump at the sound of the wind.
-
-Everyone had seen it. The light. The thing in the field. The way she was taken.
-
-And yet, when the news vans came, when the reporters showed up with their microphones and skeptical smiles, no one believed us.
-
-They called it a hoax. A mass hallucination. Some even accused us of staging it for attention. The footage people had taken on their phones was dismissed as doctored. The eyewitness accounts were twisted into punchlines on late-night talk shows. We became a joke.
-
-Emilia’s parents didn’t stop fighting. They went on every local station that would have them, wrote letters to anyone who might listen. They begged for help. For answers. For someone—anyone—to believe them.
-
-No one did.
-
-Families started leaving. Some out of fear. Others out of shame. Red Horse became a ghost town in slow motion. Businesses closed. The school lost half its students. People stopped saying Emilia’s name.
-
-But I couldn’t forget.
-
-Everywhere I went, I saw her. In the empty bench at Pearsons Park. In the corner booth at the diner where we used to split milkshakes. In the mirror, in my own eyes, where the guilt never left.
-
-I should’ve done something. I should’ve pulled her down. I should’ve fought harder. I should’ve—
-
-But I didn’t.
-
-And I couldn’t change that.
-
-When I turned twenty, I packed a suitcase full of notebooks and left Red Horse. Not to escape. To search. I told myself that if she was still out there—somewhere, somehow—I had to find her. I didn’t care how long it took. I didn’t care if it was impossible.
-
-I just couldn’t let her be gone.
-
-Not like that.
-
-So I searched.
-
-For years, I followed every rumor, every strange sighting, every whisper that sounded even remotely like her name. I crossed cities, borders, oceans. I spoke to people who claimed to have seen lights in the sky, who swore they’d been taken and returned. I filled notebook after notebook with dead ends.
-
-But I never found her.
-
-And slowly, the world moved on.
-
-Except for one thing.
-
-Every year, on the anniversary of the day she disappeared, I came back.
-
-It doesn’t feel like five years. Some days it feels like five minutes. Others, like five lifetimes.
-
-Every July third, I return to Red Horse. I drive the same road, pass the same weathered signs, and park in the same gravel lot beside Pearsons Park. The town has changed—new faces, new buildings—but the field is the same. The grass still sways in the wind like it remembers.
-
-People know me now. Not by name, necessarily, but by ritual. The quiet figure who returns once a year, always at the same hour, always walking alone into the tall grass. Only my parents and Emilia’s parents come with me now. They don’t speak. They just stand at the edge of the field, giving me space.
-
-I step into the grass, the wind brushing against my arms like a memory. I carry two things: the photo of Emilia, and a folded sheet of paper—my own poem, written for her, for this moment.
-
-I stop at the same spot. The place where she vanished.
-
-And I read.
-
-*I still see you in the tall grass,*
-
-*where the wind once carried your laugh.*
-
-*I wasn’t fast enough.*
-
-*I wasn’t strong enough.*
-
-*But I’m still here—*
-
-*searching, waiting,*
-
-*hoping the sky brings you back to me.*
-
-
-When I finish, I fold the paper and press it to my chest. The others have already turned to leave, giving me time. I stay a little longer, letting the silence settle.
-
-In five years, I’ve searched everywhere. I’ve followed rumors, chased dead ends, spoken to people who claimed to know something—anything. But there was never a trace. No sightings. No signals. No answers.
-
-Until now.
-
-Just as I turn to go, I see it.
-
-A small piece of paper, half-buried near the path. It flutters slightly in the breeze, like it’s been waiting for me.
-
-I kneel, heart pounding, and pick it up.
-
-The handwriting stops me cold.
-
-It’s hers.
-
-I unfold it slowly, afraid it might vanish if I move too fast. The words are soft, lyrical—like all her poems—but there’s something else in them now. Sorrow. Loneliness. A voice reaching out from somewhere far away.
-
-*I wake in dark that never ends,*
-
-*Hands like ice, minds that bend—*
-
-*They tear my thoughts, they twist my skin,*
-
-*And call it learning from within.*
-
-*But through the pain, I see your face,*
-
-*A memory time cannot erase.*
-
-*I whisper your name into the void,*
-
-*The only light they’ve not destroyed.*
-
-I read it again. And again.
-
-It’s her.
-
-Somehow, impossibly—it’s her.
-
-I don’t know how it got here. I don’t know what it means. But I know one thing with absolute certainty:
-
-She’s still out there.
-
-And after all these years of wandering, of chasing shadows and silence—I finally have something real.
-
-So I’m coming back.
-
-Not just to remember her.
-
-But to find her.
+([Part Two Here](https://www.reddit.com/r/nosleep/s/Gjw3Xg3kbP))
