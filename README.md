@@ -1,254 +1,271 @@
-# My Time in Apartment 6A: Inside The Complex.
-Recently, I’ve been talking with a buddy of mine about chronicling my life over the past couple of years, and he said I should definitely give it a go. With the approval of Mr. Rags, I'm going to do just that. I'm not the greatest of writers and I'm sure that sentiment will be reflected here over the course of my stories, so please bear with me. As long as I don't divulge our precise location, I'm in the clear. A big thank you to Mr. Rags, if he ever does read these. Anyways, I should start with a little background to get you up to speed.
+# There's Screaming Coming From Inside My Walls
+Hey so this is my first ever creepy/nosleep post so I'd like to apologize ahead of time if things are jumbled or I ramble over details. I feel now is a good time to share my experience with people as I believe I have healed. So with that out of the way, let's get into it.
 
+At the time, I (23M), had finally moved out of my dad's house and into my own, kinda spacious, two bedroom apartment. The place I got into was a really nice neighborhood, very little crime, close to stores, restaurants, main roads, gas stations, everything I needed. The people living there were really friendly and I made a few friends during the time I lived there. 
 
+The first person I met and became my best friend was this taller girl that was about my height. Now I'm no green giant. I stand at around 5'11 and have been 180 pounds since high school and she was around that range as well. 
 
-I grew up like a lot of lower-middle class families. My dad was a carpenter for a few different companies, bouncing around to wherever the work went, and my mother was a stay-at-home mom, though she made some money on the side selling fresh breads and baked goods. The house always smelled like confectionaries, to the detriment of my slow metabolism. At 18, following High School, I decided to follow in my father's footsteps and joined a trade school while working as a runner for a construction company. They had a 'jack of all trades' kind of track that I selected, giving me a little bit of knowledge in most home repair services, along with basic handyman business acumen. Unfortunately while I was away, my parents both passed. It was a tragic highway accident, heavy rain and low visibility, so it wasn't anyone's fault. After the funeral, it took a couple months to get their affairs in order and sell the family home. I'm an only child, and I couldn't imagine living in the house without them, so I decided to take the profits and move out west, something my dad and I had talked and dreamed about on plenty of occasions. It's weird, but if they had never passed, I wouldn't be here now at The Complex. I also wouldn’t have been abducted and implanted and… well we’ll get to that soon.
+So anyways, Kiwi, the nickname she told me her parents had given her growing up, was about 4 months younger than me, had black-and-white dyed hair, split down the middle that sat just at her shoulders, darker hazel-brown big eyes, a small cute face, and wore dark grunge-like clothing. 
 
+For me, I'm just the average guy you don't normally notice or pay much attention to, black hair, dark brown eyes, and I always wore black or dark colors, grunge as well, but more tech wear. 
 
+So let's back up a bit. I'm driving from my dad's house to my new apartment. The feeling of independence washed over me the closer we got to my new home and the drive blurred by while I imagined how I'd decorate the place. Finally arriving, pulling into the gated community, I'm greeted by the landlord. 
 
-I had a used Subaru that was older than me by 10 years. It was usually fit as a fiddle so buying a new one seemed asinine at the time. Looking back, I feel like a bit of an idiot, though that’s almost a daily occurrence now. I'd taken it on a few road trips with nary an issue, but this time was different. I was making my way West starting in Maine, traveling through the Appalachia's over to the great corn seas of the Mid-West, down to Texas and then up heading towards Colorado. I'd made it to New Mexico and was driving for about an hour or two when the engine started to make a horrendous noise. It sounded like something akin to a shotgun blast followed by two pieces of sheet metal rubbing ferociously against each other in the fiery throes of passion. The car shuddered, lurching forward in stop-and-go patterns until finally came to a end, dead in its tracks. I was at least 2 or 3 hours from anywhere remotely populated, or so I thought, and of course I had no cell signal in the slightest. Took some time and tried looking at the engine but it never was my forte, so it ended up being a fruitless endeavor. I resigned myself to sitting in the front seat, all the doors open with the flashers on, sweating my ass off. While I was weighing my options, I leaned the seat back and decided to doze off, an attempt to cure a headache brewing over the frustration of my situation.
+Looking like he hadn't slept in a good week, he was extremely pale and visibly sweating as he handed me my apartment keys. Granna, as I called her from about 2 years old til present day, and my dad suggested getting food before they arrived. Perfect! I'm starving since it was about midday and I hadn't eaten yet. 
 
+At my new place, I started unpacking things I could manage by myself: computer tower, broken-down L desk, microwave, etc. After about 15 minutes of unpacking, I started to get the eerie feeling I'm being watched. Dismissing the feeling I thought, 
 
+'Well duh, you just got here in a big U-Haul moving into a new neighborhood. Of course people are watching you.' 
 
-Upon waking up, I realized the hairs all over my body were standing like pins and it felt like I was on the verge of having a panic attack. My heartbeat pounded and it felt like a lead weight sat in my stomach, beads of sweat now covering my forehead. It was darker now, much darker, the inky black of night only barely giving way to pinhole stars in the sky. I scrambled up in my seat and tried taking in my surroundings. Something was watching me, I could feel it. I checked all the mirrors and looked out every window. Glancing around frantically, something in the rear view caught my eye for a split second. Next to a couple of tall cactuses about 50 feet from my car, stood something short and white-ish, completely still, staring right back at me. It tilted it’s head slightly, almost quizzically. I pressed my brakes to try and make the rear lights flare up, but they weren’t working. I turned in my seat to check it out through the back window, when I caught a flash of it darting towards a large rock pile right next to my car. I think I screamed, hurrying to shut the doors and windows. I rag dolled myself through the interior of my car to get everything closed without going outside. 
+Standing in the back of the U-Haul, I hear a cheery voice behind me. 
 
+"Excuse me." 
 
+Startled, as I didn't recognize the voice, I turned to see Kiwi— as I mentioned from before, she was looking up at me from around the edge of the U-Haul with big hazel-brown eyes and a sweet smile. I said howdy— as it's something I normally say, and no I'm not country— and made my way out of the truck to be eye level with her. 
 
-I completed my task, sweating and nearly hyperventilating, and for a moment, the feeling of safety slowly crept back. I went to check the cars clock but nothing was working. I tried turning the key, honking the horn, turning on the radio, but nothing worked. I checked my phone for any signs of life. 11PM flashed back at me. I was sleeping for... at least 12 hours. I thought, "There's no way. I would've woken up before then, I would've needed to drink or eat or..." my thoughts stopped in their tracks. As I was sitting there, reeling at how I could've lost hours of the day like they were nothing, the car began to vibrate. At first it was slow, almost rhythmic, but quickly became a fast buzzing feeling, like a giant bee was sitting on top of it. I got ready to hop out of the car, but before I could, there was a flash of white light, brighter than the sun. Technically it's still the last thing I remember from that night still, but there’s a reason for that.
+"You're my next door neighbor at apartment 1000L, right?" she asked.
 
+"Yeah that's me. I should've moved in a few days ago, but since it's been raining a lot, I wanted to wait 'til it stopped," I followed with a question, 
 
+"How long you been livin' here?"
 
-I woke up some hours later to a pair of headlights coming towards me from down the road. I spun my head around again and saw nothing by the rock or the cactuses, but quickly realized through sudden movements that my head was pounding and my entire body felt like I had ran a marathon. My thoughts of the entire debacle were happily replaced by the sounds of a white T-top Trans Am barreling towards me. It passed me in the car for a moment, then stopped, tires screeching on the pavement leaving long black rubber lines. He revved the engine, put it in reverse, shining bright red taillights into the night, and tore ass right back to where I was sitting, rolling down the window as he shouted.
+Kiwi looks in the back of the U-Haul at my remaining furniture, huffed with a pout, and propped her head up in her hand leaning on the edge of the U-Haul.
 
+"Mmm...I wanna say it's close to six months. I moved out—or well, was kicked out of my mom's place by my stepdad," She replied. We looked at the remaining heavy things. Washer, dryer, mattress and stuff like that. Not wanting to press the matter anymore I muttered a, 'Ahh, gotcha, gotcha.'
 
+"What made you choose this place?" 
 
-"Hey buddy! You're lookin a little worse for wear! You like, stranded out here or something? Ain't too safe along the roads here at night." he said in a valley boy type of accent.
+She asked, turning to look me dead in my eyes as her smile drops. I noticed her eyebrows furrow as if she was studying me or confronting me for something I did. 
 
+"W-What? What d- what do you mean?" 
 
+I stammered out. To be honest, I didn't realize how pretty she was, so the direct eye contact made me nervous. She repeated her question and I told her the normal, 'it was cheap and close to work' so she nodded, her smile returning and we talked for a good few minutes while I waited for my dad and Granna to arrive. 
 
-I looked around at the vast nothingness before looking back to him and sarcastically answering, though with an abundance of caution in my voice. "Yeah I’m alone out here.. I think. Hey you're real right? Did you just see that huge flash? Like the sun just exploded here on Earth?"
+I looked up hearing a car pull up next to the U-Haul minutes later. With multiple food bags in hand, they get out the car and I introduce them to Kiwi before my dad and I finish unloading the remaining furniture from the U-Haul.
 
+We finish unloading and my dad offered to take the U-Haul back for me, since it was getting dark and he wanted me to get settled in my new place. I agreed, gave him the keys, hugged him and Granna, said our goodbyes—then they left. 
 
+Kiwi and I watched them drive off before we turned to walk to my apartment. We went inside and I invited Kiwi inside and we went to my room to set up my PC. I didn't mind Kiwi being around and in my apartment. 
 
-"Uhh no, no I can't say I saw that tonight man, but I do know what you're talking about. You feeling okay? Skin doesn't feel too hot, you're not throwing up your bloody guts?" he asked.
+Even though I just met her—I felt safe and comfortable with her around me. It was like I had known her all my life and we clicked instantly and hung out every day. We shared the same interest, tastes in music, food, and work schedules. We talked about PC's and how I plan to set up everything in my home and she offered to help me decorate. I agreed because, why not? 
 
+Over the next week or so, Kiwi would bring decor and random items she bought to my apartment to decorate. Kiwi complimented me on the coffee smell of my apartment and instinctively I just said thank you before thinking I didn't own anything coffee scented, nor did I drink coffee. 
 
+After the second week, I kept getting this feeling of complete and utter dread as I set up the furniture. I also couldn't shake the feeling of being watched. Like someone was right against my back with wide eyes staring at the back of my head. 
 
-"I... no? I don't think so. I feel fine other than my head. I think I hit it or something, I don't know. I've been stranded out here for hours. Do you know how far the next city is?"
+A little context, I have always been able to sense if someone was trying to sneak up on me, standing by or just out of my sight, or was trying to be quiet around me since I was a kid, and that feeling was going absolutely haywire. I heard what I thought was my front door open—since Kiwi left for Best Buy to get LED strip lights and surround speakers for my TV and I gave her a copy of the key to my apartment so she could let herself in since she was over everyday. I left the second bedroom to greet her—but the door was still closed. 
 
+'What..?' 
 
+I thought, looking around the apartment and attempted to fight the unease. I walked to the front door to check— the doorknob and top lock were still engaged. Confused, I returned to the second bedroom, then that's when I noticed—one wall stood out. There was a fresh wall of white paint compared to the other slightly dingy walls around the apartment. Turning to look at other walls around the place, I returned my attention back to the wall.
 
-He laughed, and offered me a ride into town, saying it's only a short drive up the way.
+'Why didn't I notice this..?' 
 
+I stared at the wall. Feeling dizzy and a sense of dread, I was snapped from the trance when I heard keys in my door and Kiwi call out 'Hey it's me!' as my front door swung open. Kiwi walked in with a big box and some plastic bags. 
 
+I turned to walk out of the bedroom to help Kiwi with everything—glancing back briefly to look at the wall. 
 
-"What town?" I said. "There's nothing on my map here, and my planned route doesn't have another place with people for a couple hours."
+"You...okay?"
 
+she asked, tilting her head and raising an eyebrow at me. I returned my attention to her, grabbing the box and said, 
 
+"Yeah I'm all good," before continuing, "Did you start to walk in then leave earlier or like, forget your key?" She made this confused sound and raised her eyebrow higher. 
 
-"Oh man, no need to worry about that. No worries! Maps don't always show ya the big picture you know? I'll get you right as rain my man. Actually, I know just the guy to get you feeling straight shooting again A.S.A.P! Just hop on in and I'll take you to see the big man himself, the big man on campus. I'm sure he'll like you, cause I already kind of like you!" he chortled and patted the poorly aged passenger seat.
+"No I just got back." 
 
+She raised her freehand showing her car keys and the house key on her keyring. Embarrassed, I forced a smile and changed the subject. 
 
+"Oh, nevermind. Damn, a little overboard, huh?"
 
-I laughed nervously, bending down a bit to get a better look at the guy and his ride. He seemed nice enough and gave the aura of a guy plucked right out of 1984, neon sunglasses and all. I looked back at my car and took a deep breath.
+I asked, a bit surprised by all the equipment.
 
+"I want to help you feel at home, so I figured I should at least get some good speakers and lights," 
 
+she beamed brightly, proud of everything she was holding. We sorted speakers, cords, and LED lights. We carefully put the speaker mounts on the wall and hung the LED lights around the ceiling edge of all the rooms in the apartment. 
 
-"Hey dude, once we get back to The Complex, I can totally get a mechanic to come grab your ride. I promise, not a soul out here is going to touch it. Pinky promise!"
+I put on some music to set the atmosphere and to test the speaker since they had bluetooth connection. I love 'Shoegaze' so, I immediately put on a mix of my favorite artists Sai Nara, Novulent, and whatsaheart. I found out Kiwi liked the same type of music so we talked, exchanged music for a while mixed with light flirting.
 
+The feeling of dread hit me again and I decided to ask questions. 
 
+"Hey, Kiwi?" 
 
-Against everything my brain was telling me, I grabbed my duffel bag and other belongings, threw them in the back seat of his hot rod, and strapped myself in. He gave me a huge grin and extended a paw my way. "Heck yeah man! Names Ray, and yours?"
+I asked, unease settling in the gut. 
 
+"What's up?" 
 
+she looked up at me from the box with her big hazel-brown eyes with a smile. 
 
-"Uh yeah, I'm Zach, nice to meet you man. I really appreciate your help, not sure what I would've done if you hadn't stopped."
+"What's with the landlord?"
 
+I asked, a pretty open-ended question thinking about it now. 
 
+"What do you mean?" 
 
-"Not a problem at all dude, I believe a good deed done is a good deed in the bank, so maybe I'll score something big next time at the swap meet!" he laughed as he pushed in a cassette and turned up the volume. We tore off towards his town blaring 'All Night Long' by Lionel Richie. I took a deep breath and stared out the window, wondering how the hell the night was going to end up.
+she asked pursing her lips as she folded the empty box. 
 
+"Well like...what...two weeks ago, I think, he was really pale and sweaty—like he'd seen a ghost or something. He handed me the keys without a word and practically ran back to the office."
 
+ She stood up and set the folded box against the breakfast bar with a worried expression. 
 
-It only took about 20 minutes to reach the edge of town, though I'm not sure you could really call it a town. As we pulled into the gas station (Rays office/sleeping arrangements/full time job) I realized there were only 5 buildings. The gas station, lit up like a cheap motel on the strip in Vegas, a small mom and pop looking store with a few parking spots out front, an even smaller windowless thing with one door, which turned out to be a maintenance building/den or horrors. Then there was the church about 100 yards from it, and directly across from the church was the main attraction. Standing tall was a 10 story tower resembling something more like a large government building than an apartment complex. It was an all tan brick facade with plenty of windows wrapping around it, a couple of pillars out front with the entrance steps, but nothing else. It looked very out of place in the middle of nowhere New Mexico. Ray threw his car in park and hopped out in one swift motion, gesturing for me to follow. I couldn't believe my luck that a total stranger actually picked me up and didn't take me to some far off shack to harvest my organs. By the time I got out, he was already halfway to the large buildings entrance. The lights out front illuminated most of the road, to which the neon lights of the "The Station" made up for the rest. The Church had a modest set of lights by the front door, but they were easily drowned out by the others.
+"Well...the last tenants that lived here were a bit...strange..."
 
+ she started. "Strange how?" I asked, noticing she seemed more timid and uneasy. 
 
+"The family that was here, they were all just...I don't know—weird. It was a husband, his wife, I assume, and a little boy no older than 14-15 years old."
 
-"Hey man! You coming or what? I think we can still catch Mr. Rags if he's awake! Let's go!" I started towards him, still a little weary of the situation but I didn't have much of a choice. Once I caught up to him, we were both standing at the entrance to the building. "Alright man, this here is called The Complex. Mr. Rags owns and runs it. Yes that's his name, and no I don't know if that's his actual god given one. He's really chill as long as you don't mess around too bad. I mean like really mess around, hurt someone or something ya know? Just be real cool with him, and I bet he'll help you out, no sweat!"
+She grabbed my hand and led me to sit on the couch, I sat down next to her, and turned the music way down. 
 
+"I never heard the guy talk but he always had coffee with him and smelled like it when I passed him. The woman was really sweet and would bring me pies she baked every so often." 
 
+"The son was a bit of a nutcase as well. He would always come to my apartment and ask if he could stay with me or if he could hang out with me. I always told him no because, ya know, that's just plain weird. But when I closed my door, he would just stand at my door for almost 10 minutes before his mom would come grab his hand."
 
-Before I could reply, he reached over to click the large button labeled "10" on the intercom system. The whole thing looked lavish, emblazoned with bronze numbers and filigree around the edges, clearly sticking out against the drab tan bricks around it. Ray just stood there, bobbing his head to some tune I'm sure was stuck in his brain, quietly humming along. He reached out to ring it again, but just before his finger hit the button, a voice came through the intercom.
+she explained seeming to flip between being upset, bothered, and worried. My interest was peaked, with a raised brow and an intrigued expression.
 
+"What else?" 
 
+I asked, curiosity getting the best of me. 
 
-"Yes Ray, how may I help you this evening?" The voice sounded kind and older, with a slight British accent. I figured someone would be irate being called at this time of night.
+"Only at night did I hear the man talk, but it wasn't talking, it was...shouting. Followed by banging, things crashing, and I guess breaking. Last time I saw the woman, she brought me a cherry and peach mixed pie and didn't say a word this time."
 
+"I noticed she had bags under her eyes, looked miserable, scared, missing her left middle finger and her index on her right hand. It looked like it was crudely cut off. I considered myself a very observant girl and I remember thinking it was strange because I was more than certain she had all her digits the last time we talked." 
 
+Drained of color, Kiwi took a deep breath and cleared her throat before continuing to talking. 
 
-"Yeah! Hello there Mr. Rags sir, I'm real sorry to bother you tonight, but I found a friend in need here. I think he saw the you-know-whats and is pretty out of sorts. Could you maybe take a look at him real quick? He can crash at my place after, not a worry there sir!" Ray said, looking nervous but excited.
+"After about a month or so of nightly screaming, police visiting the apartment, and more concerning noises, she stopped bringing pies, I never saw her or the little boy, and the screaming stopped. It was like they disappeared." 
 
+I noticed Kiwi was shaken so I went into my kitchen and grabbed her a can of Sprite. I sat down a little closer offering a little comfort as she continued. 
 
+"I took a day off work because I wasn't feeling well and I heard banging followed by sounds of scraping or cutting and something very dense breaking. Like if you fell and broke your arm. About a week after, police were everywhere because apparently they broke their lease and vanished without a trace."
 
-"Oh is that so? Well, I can't in good conscience turn someone away like that now could I Ray? You know what they say, a good deed done is a..." Ray chimed in with him to finish the sentiment. "A good deed in the bank! Yeah Mr. Rags exactly, that's exactly what I say. I knew you'd be able to help! I'll send him on up if that's okay?"
+"I passed by one day on my way to work and the door was open with police tape blocking the entrance. I saw smashed furniture, broken toys, and blood everywhere—on the carpets, walls, and the ceiling." 
 
+Kiwi scooted over and leaned on me and I noticed she was shivering really bad. I hugged her and gently tried to console her. I also didn't realize I was holding my breath and let out a long sigh. 
 
+"Jesus...What do you think happened to the family?" 
 
-"Absolutely dear boy, just send him up. I'll be waiting." The mic cut off as Ray nudged me forward.
+All Kiwi did was shake her head. Not wanting to push her to a panic attack or anything, I turned on the TV and went to make dinner to try and calm her down. I made a meal we both really liked, Chicken Alfredo and garlic bread. It seemed to work calming her down and she was back to her normal cheery self.
 
+After maybe an hour, it was nearing 10 p.m. I asked Kiwi if she had work tomorrow, and she told me no—so I suggested hanging out then since I was off as well. Kiwi agreed but I noticed something was bothering her. Since we spent almost every waking hour together besides when we worked or slept, I could tell something was off. Drying the washed dishes I ask, 
 
+"What's wrong, Kiwi? You have the look on your face again." 
 
-"Alright man, best behavior. Just in the front doors here, straight back to the elevator and click the only button for floor 10. That's where Mr. Rags lives, right up on top. I promise, he's a real cool guy even if he's a little creepy. Just have him check you out then I'll be waiting over at the station for ya!"
+"Can...I stay here tonight? I don't want to be alone if that's okay.." 
 
+I figured she was spooked from what she told me and feeling bad and a little excited at the thought of it, I agreed. I offered her my room, so she could have privacy, and I'd take the couch but she insisted we share the bed. My heart skip a beat at her words and I agreed—maybe a little too quick.
 
+Around 11:30 p.m., I was on my PC playing Star Wars Battlefront 2—fire game—and I was stuck on one of the stupid flight combat missions where you have to defend the Y-Wing, when Kiwi walked into my room ready for bed. 
 
-I thanked him, Ray reaching out for a fist bump before trotting down the stairs towards his place. I looked back at the double doors, hesitant to enter. I inched towards them, and as I did, they unlocked through what sounded like a series of electronic deadbolts. The doors opened silently, perfectly in sync, revealing a spacious interior adorned with vintage chairs and pots full of luscious greenery. I walked past it all, peeking around at the other doors. One side looked like it contained a large dining room and kitchen, the other housing a laundry room or utility area. Making my way through to the elevator, I realized the entire area smelled like fresh cut flowers, though there were none in sight. The elevator doors opened with a 'ding' as they moved, beckoning me inside. I got in, found the number 10, and pressed it. The doors hissed this time, closing like they were a part of a pneumatic system, sealing me inside as if I were fresh meat being packaged in an airtight container. It dinged one more time before lurching upward towards my destination.
+Turning to look at her, I saw she was wearing a grey oversized Spider-Man T-shirt and loose black track shorts. Shutting down my PC, turning the LEDs to a dim purple, I then crawled into bed next to her. We talked for a good hour, sharing memes, and watching Tiktok before we dozed off. 
 
+I randomly woke up in a panic, drenched in sweat, breathing heavy, with the unmistakable feeling of dread—and being watched. I felt around for my phone, which was by my hip, playing some Bonelabs video over and over since I fell asleep watching TikTok, I closed the app and looked at the time.
 
+2:58 a.m. 
 
-The elevator seemed to only take 2 or 3 seconds to reach the top of the entire building. The doors hissed again, opening to a very dark corridor. I called out, "Mr. Rags? Sir?" to no response. The elevator shuddered, then chimed something more akin to an alarm beep than a pleasant ding, urging me to disembark. Stepping inside the corridor, there were a few wall lights that turned on, though only enough for a dim glow to ooze over the few things inside the room. A velvet waiting chair and matching loveseat, a few very old but still lovely end tables and a larger matching coffee table, and an ancient looking piano on the other side to even everything out. At the end of the room stood a large maroon door, adorned with brass or bronze inlays all across it, yet with no discernible shape. I swear, as I drew closer to the door, the inlays were moving, or squirming into different designs. Taking a few shallow breaths, I pressed my knuckles into the door, three times. As soon as my skin touched it for the third time, the door slowly opened without a sound.
+'Did I have a nightmare?'
 
+I thought as I tried to sit up, but felt like something was weighing me down. When I looked down, I saw a head of black-and-white hair on my chest. Adjusting my eyes under the dim purple light, I could see it was Kiwi, curled against me making my heart skipped a beat, we were cuddling.
 
+'Oh that's right... She wanted to spend the night...'
 
-Inside, it looked like any other apartment setup, albeit with a large open concept. A nice dining room set like a retro diner, a few stylish newer couches around a larger old radio, a kitchen set from the 1970’s; every thing a different age of creation from the last. I took a few steps in and closed the door behind me. I turned my head for maybe 2 or 3 seconds to do so, but when I looked back into the room, Mr. Rags was sitting on the edge of the sofa seat.
+Carefully slipping out of her bear hug and heading for the kitchen for a glass of water, I glanced over as I passed the second bedroom, and froze. Under the dim purple light, I saw two people standing in the middle of the room. Doubling back, I peeked around the corner—nothing. Blinking a few times in utter disbelief, I thought to myself,
 
+'Um...okay...I guess...,' 
 
+Not knowing what to think of what I knew I saw, I stepped inside the room. Under the dim purple light, I saw unpacked boxes labeled "Kitchen" or "Dining Room," a bit of furniture, and then...that wall. That brand new coat of paint still stood out like a sore thumb. 
 
-“Oh Jesus, sorry sir. The door just opened when I knocked and I figured maybe..” he held a hand up to stop me. Not just ask me to stop, but somehow he made me stop talking, like it all got caught in my throat.
+Stepping into the room I noticed the temperature dropped—then came the smell. It was like something was on the verge of rotting. But, I noticed another smell. Was it...Coffee...? I winced in disgust staring at the wall.
 
+Beep Beep. 
 
+A digital watch. 'Oh, it's 3 A.M.,' I thought instinctively and abnormally calm. Then I froze, felt my blood run cold, and my eyes widen. 
 
-“You’re alright, I wasn’t waiting long.” He spoke, almost jovially, a soft smile on his face. “Apologies for the scare, I just like to keep an eye on the door. She can be finicky at times, picky even on who she lets in, never mind whether I want them to or not.” He looked over at the opposite couch, nodding for me to join him.
+I don't own a watch. 
 
+Starting to back up in horror, I sensed someone watching me and saw a figure out the corner of my eye, peeking at me from the doorway. Just as I turned, they disappeared. I carefully stepped just outside the room and look around only to be greeted by the door to the laundry room on my right and the living room and dining room on my left.
 
+'That's weird...was that a chi-' 
 
-“For us to continue this conversation, I need you to extend to me a great amount of trust. I know it seems silly, dangerous even, to do so for someone you’ve only just met, but it’s of dire importance. You need to answer me entirely truthfully. Did you happen upon a creature in the desert? Possibly lose time or see a bright light?” he leaned towards me, almost floating on the couches edge.
+then I heard the blood curdling scream of a woman from the room I left. I snapped around, and the purple LEDs were different—like a blacklight. I scanned the room, white splatter stains on the walls, floors, windows, and ceiling, except for one. 
 
+That wall was spotless. 
 
+I swallowed hard as I walked up to the wall. I don't know what made me do it, but very slowly, I put my hand to the wall— 
 
-“Uh, yeah exactly that. My car broke down completely, I fell asleep and woke up to something just watching me. The car began shaking and there was a flash of light and then… nothing. I can’t remember a single thing besides Ray showing up and bringing me here. How in the hell would you know about this? I’m starting to get nervous.”
+Thump-thump. 
+Thump-thump. 
 
+A heartbeat.
 
+Thump-thump. 
+Thump-thump. 
 
-Mr. Rags nodded thoughtfully, staring at me a few moments, before slowly standing up and walking over to me. I recoiled slightly, my fight-or-flight kicking in. He stopped briefly in front of me.
+Two heartbeats. 
 
+It was like there were people living in the wall. The smell of rot got more pungent as I got close to the wall— overpowering the subtle smell of coffee. I heard a muffled low groan that started getting louder and louder until it became a loud ear ringing scream. I yanked my hand back to cover my ringing ears, then suddenly, the LEDs flicked off and I was swallowed in total darkness. I blinked a few times to adjust to the sudden darkness, then flinched as the bright ceiling light clicked on. 
 
+"Are you okay?" 
 
-“Again, I know this is an immense amount of trust to put in a stranger, but I need to fix you up, so to speak. If I’m unwelcome to do so, you may experience more of these events, and eventually you may not be around at all. I’m afraid I would also need you to leave our town in the event this doesn’t work, or you decide to forgo it entirely. I’ll give you a moment to think about it while I get things ready.” he walked past me, down the hall into another room.
+I turned to see Kiwi standing in the doorway, rubbing sleep from her eyes. Her hair was messy and the black track shorts she wore hung loosely around her small waist and the oversized Spider-Man T-shirt she wore drooped off one shoulder. I composed myself.  
 
+"Uh—yeah. I-I was just...looking for something in this box." 
 
+I stammered, grabbing a nearby box marked "Toaster" and holding it up. She raised an eyebrow, confused, yawned, then turned to walk to the kitchen. I followed as Kiwi grabbed the Brown Sugar Pop-Tarts I had in the pantry. 
 
-I watched and listened as he entered what looked to be a bathroom, things clanging as cupboards opened and closed. My heart was racing and my mind was clouded by a million thought streams, every one slightly worse than the last. Am I going to be murdered? Is he getting ready to take my kidney and throw me on ice? I was only 22 years old, I felt like there was much, much more in front of me I wanted to accomplish and experience. Before I could gather myself, Mr. Rags came waltzing out of the door, gliding down the hall towards me.
+Walking into the kitchen and placing the box on the counter, I carefully opened the box. Kiwi stepped next to me and gently placed her hands on mine with a concerned expression.
 
+"What happened? Why are you shaking?"
 
+Looking down—Kiwi's hands on mine—I noticed how badly I was shaking. Blinking a few times, I took a deep breaths to calm myself. 
 
-Standing up from the couch, I asked him, “What exactly are you going to do to me? I swear, I won't call the cops, I won’t tell anyone you’re here if you just let me go.”
+"Uh-Sorry..." chuckling weakly, "I guess I freaked myself out over nothing."
 
+Internally, I beat myself up for saying that as I managed to calm myself. Kiwi grabbed me and turned me to face her. She was maybe a foot from my face, she had sleep lines from my shirt, had a concerned look, and had her small hands on my arms.
 
+"What happened? Tell me everything."
 
-He chuckled, then stared me dead in the eyes. “Dear boy, you wouldn’t be able to call if you tried. Your phone is dead and the nearest working one is across the street in the shop. You have no idea where you are and no working vehicle. I don’t say these things to scare you, but to implore you to see reason. I shall not bring you harm, in fact, it’s to be quite the opposite. You have something inside you that needs to be removed. Something that, if left unabated, will cause you much more turmoil in the future. Your head must feel like a storm is raging inside it, yes?”
+I swallowed hard, nervous if I should actually tell her everything that just happened. Reluctantly, I tell Kiwi everything. I sat at the breakfast bar and explained everything in complete detail. I mentioned the figure, scream, coffee and rot smell— everything. She seems to believe me as we talk over toasted Pop-Tarts when suddenly her eyes dart to the second bedroom and her face goes pale. 
 
+Feeling the creeping dread, I asked her what is it. She didn't say a word, just stared. I felt multiple eyes on my back and slowly turn around. Peeking from the now completely blacked doorway, were two pair of eyes. My blood ran cold as I noticed one pair was much higher than the other. Resembling what could be a mother and her child.
 
+"It's them..."
 
-“I… Is this about the things in the desert?” I said. “I feel like a bus hit me. Whatever you need to do, just please, don’t hurt me.”
+Kiwi whimpered out just above a whisper. Only moving my eyes to glance at her then look back, I realized she was talking about the Mother and her child. Standing up and moving to protect Kiwi in case something happened, the moment I turned my back and blocked her view by accident the room returned to normal. 
 
+The familiar dim purple glow of LEDs was back and the apartment was silent. I swallowed, hard, then slowly walked to the second bedroom. It. REEKED. The smell of rot, decay, and coffee filled the room. 
 
+"No...no no no nonononono..." 
 
-“I would never. Please, look forward.”
+Kiwi began sobbing and grabbed my arm tightly. I flicked the bright room light on and a trembling gasp escaped my lips and my arm dropped loosely at my side. The wall, was bowed and a deep red. 
 
+"Ca- Call the po- Call the police!"
 
+Managing to get the words out my trembling mouth, Kiwi rushed to the safety of my room to get her phone. I don't know why, but I slowly walked towards the protrusion. Merely a foot away, I reached my hand out. Without even touching it the wall broke with a sickening sound and everything inside came tumbling out and I fell, scrambling backwards. 
 
-I felt a small pain on the back of my neck. I craned my head back to find Mr. Rags smiling down at me, a scalpel in his hand.
+Crudely severed body parts tumbled out, hitting my boxes and furniture. I saw legs, arms, and fingers belonging to what looked like a woman and smaller child. My breath came in ragged gasps trying to process everything when I noticed.
 
+Spilling from the wall, a mix of blood, body parts and clothes—were coffee grounds. Like, BUCKETS full of coffee grounds. I sat there for what felt like hours when Kiwi's scream snapped me back. Without thinking I jumped up and hugged her, gently rubbing the back of her hair trying to console her heavy sobs as we stepped out of the apartment and waited for the police. 
 
+After what felt like hours, the police arrived, and basically sprinted up the stairs to the second floor landing where Kiwi and I were sitting. Without a word, I stood and opened the door as several officers rushed in.
 
-“What the fuck? Did you just?” I felt the back of my neck with my hand, a small smear of blood covered my fingers as I did.
+I heard a 'Jesus Christ' and a someone gag as a few officers escorted Kiwi and I to their cruisers for questioning as more police, ambulance, and curious residents lined the streets. 
 
+It was mostly a blur of red and blue lights, medical exams, and questions as the police quarantined the area. My dad was called since he was an emergency contact and picked up Kiwi and I. The drive to his house was long and quiet with the occasional hand squeeze from Kiwi or my dad asking if she and I were alright. 
 
+About an hour later, we get to my dad's house. He showed us to the first floor guest room and left us to go upstairs to his and his fiancées room. I walked into the bathroom and flicked on the light.
 
-“I do profusely apologize, but yes, the ‘operation’ was a success.” he air quoted with his hands, ginning sheepishly. “Here, a bandaid for the small incision, and this.” he raised a small glass vial, dumping in an even smaller grey piece of metal. “I know, I know, you have many questions. In due time, I will answer all of them. For now, you need to get some rest while I deal with this.” he gestured to the vial. I felt sick, covering my mouth to try and hold back the upheaval from my insides. Mr. Rags rushed around the couch, helping me lay down on one of the ornate pillows. He nodded at me before walking off, as I fell into a deep sleep.
+My face was splattered with blood and coffee grounds. I washed my face vigorously, maybe 3-4 times before Kiwi came to check on me. Few hours later, it was nearing 7 a.m. My dad and his fiancée had left for work and it was just Kiwi and I.
 
+Stressed, tired, and craving sleep we decided, well we're all adults here, to be intimate before finally passed out from exhaustion. I was woken by my phone ringing.
 
+It was the Sheriff. He asked me a few more questions, which I answered truthfully and told him the same thing I told the officers and after about 45 minutes we got off the phone. A manhunt was put out for the husband and he was later arrested at an airport 4 states over trying to flee the country. 
 
-The next morning I woke up at Rays place, a half inflated blow-up mattress and musty smelling pillow keeping me afloat, and an old sleeping bag wrapped around me. The headache was gone and the wound on my neck was already healing, as was my fatigue and my appetite. It felt like I hadn’t eaten or drank in days. I leapt out of bed, ravenous for anything to shove down my gullet. Luck had it that Ray already thought ahead. He burst through the door to the guest room, fresh crispy bacon and eggs in tow. He threw it down on an old TV tray that was set up nearby.
+The sheriff, even thought he didn't have to, explained the husband confessed to killing his family. The wife caught him cheating and threatened to divorce him, taking the kid and all the man's belongings. The sheriff mentioned the husband's search history contained aspects of hiding a body, how to dismember, and how to conceal corpse smell.
 
+The husband had been planning this for months. dating back to almost a year possibly two. Searched his truck and found several industrial buckets with coffee grounds and tools covered in blood.
 
+Months later, I've turned 25 and it's almost New Year's Eve, Kiwi and I are together and since the landlord actually knew about the situation, I was given a lot of money for emotional compensation and for the loss of some of my personal belongings. Since they were contaminated and soaked in blood. I now live comfortably.
 
-“Oh man! You’re awake! I knew Mr. Rags was gonna get you all set, I knew it. Here, you’ve gotta be starving yeah? We got some eggs and bacon, some toast and OJ man. Well, it’s not real OJ, it’s Sunny D but, you get it. I’m so stoked it all worked out. How was he? All ominous and stuff? That’s usually like him, but he’s really nice man. You get the thing out? You’ll be sporting a cool little scar like this I bet! he said, gesturing to the back of his neck. Sure enough, there was a small scar, not more than an inch in size, exactly where Mr. Rags had cut me last night.
+The nightmares stopped around this time and I was finally feeling good to move on with my life and put all of this behind me. It is now 2025 and Kiwi and I have our first baby on the way. We're anxious and excited, ready for our new chapter in life.
 
+If you made it this far, I want to say thank you for taking the time to read about my experience and I really do hope you enjoyed it and/or learned something from it. Be careful out there.
 
-
-“Yeah man, it’s happened to a lot of us here. Depends on how you get here I think, but I know I’ve got one, the Watersons and McDaniels have them, Dr. Rheem has it, they’re all over. But, we’re all good now thanks to Mr. Rags!”
-
-
-
-“What the hell happened? This is like something out of a book Ray, and it’s starting to freak me out. Can I use your phone when we're done?” I asked.
-
-
-
-“Ah jeez, I mean yeah I would totally let you use mine, if I had one. Just no need out here, there’s no service you know? There’s phones in The Complex though, I’m sure you could use one there! Eat up though man, stuffs gettin’ cold and I know you’re hungry!”
-
-
-
-He was right, I was incredibly hungry and I couldn’t stay away from the smell anymore. I think I finished the meal in 3 minutes flat, polishing it off and finishing it with a nice cold glass of Sunny D, just like when I was a kid. I talked with Ray a bit more, helped him clean up the dishes and headed to The Complex.
-
-
-
-“Hey man, just don’t do anything that would get Mr. Rags all angry okay? He’s a good guy, and the folks around here are real nice too. Just don’t want you gettin hurt is all!” he said with a dismissing wave as I walked down the street.
-
-
-
-Walking towards it, I noticed that Mr. Rags was already outside, sitting on the steps of the Complex, talking to two suited men. He glanced my way, nodding in my direction, alerting the men in suits that I was headed that way. They seemed to exchange a few more words, then headed off in the opposite direction. They walked down the road in unison, steadfast and unwavering. As I made it to the steps, they were still walking towards… nothing. Just down the road, left foot after the right. I turned to Mr. Rags who was looking at me with a slight smile.
-
-
-
-“Good to see you Zach, I trust you slept well? I know Rays arrangements may have not been the best but you were safe there. He’s a good guy, if a little… simple,” he laughed.
-
-
-
-“Yeah thanks, Ray’s been a life saver. What was that all about though? Those guys there, they’re just walking away now. Like.. there’s no discernible reason they should be walking that way. This is all getting way too weird for me. Is there any way I could just get a ride back to my car or.. into the next town? I don’t mean to be rude, I just feel like I’m going crazy.”
-
-
-
-“Well, I’m sure I could arrange that, but your car isn’t in any shape to be driven, and the mechanic won’t be back this way for about a week. The next town doesn’t have any motels or hotels, and they’ve not quite fond of visitors, so I’ve heard. I have a proposition for you though. We’ve recently lost our maintenance man, Jerry. Poor soul got caught up in one of the storms that pass by here every once in a while. I believe you have the same capabilities he possessed, correct?” he glanced up at me, an eyebrow raised.
-
-
-
-“Y.. Yeah. I can probably do those kind of things. How did y..” he cut me off with a raised hand.
-
-
-
-“Excellent, excellent! Here’s my thought. I’ll have the old chaps apartment cleaned up and renovated, post haste. It shouldn't take me but a day or two, and there won’t be a trace left of his existence. In the meantime, you can stay with Ray, possibly have him show you the ropes around here and get you acquainted with a few of our other residents. I’m sure he’ll want to have you for one of his ‘legendary pizza parties’ or whatever he calls them. While you stay here, you could look into a few mechanical disturbances we’ve been having since Jerry’s departure, as a means of paying it forward. Does this seem like a mutually beneficial arrangement Zach?”
-
-
-
-I mulled it over a moment. He was right, I wasn’t going to be getting anywhere fast in my car, as broken down as it was, and for all of the weird shit that’d happened to me in the past 24 hours, I was oddly intrigued by the entire event, if you can call it that. I still had so many questions I wanted answered, and it’s not like I had a real plans for my near future. Technically, I had made it out West. This could be a fresh start of sorts.
-
-
-
-“Of course, if you happen to appreciate your new abode, I’d be happy to hire you on staff, full-time, benefits and all. You could carve out yourself a new life here, a fresh start of sorts, yes?” I looked at him puzzled, like he had just read my mind.
-
-
-
-“Yeah, alright Mr. Rags. I’ll take you up on that offer. As long as the mechanic can be here within the week, I’ll stick around and help out. It’s the least I could do really. I appreciate it, sir.”
-
-
-
-“Splendid, splendid! If you’d like, you can wash up in Jerry’s bathroom, apartment 6A. He was a clean man so I’m sure it’s spotless,” he said, holding up a brass key, 6A etched onto the surface. “I’ll see you tonight in the Complex dining hall for dinner tonight, 6:30 PM sharp. I believe the Stevensons are cooking up something special!” he licked his lips at the idea.
-
-
-
-“Okay, thank you Mr. Rags. Could we possibly talk this evening after dinner?”
-
-
-
-“Absolutely, I’m sure you’ve got quite the list of questions for me, and I’ll do my best to answer them all. Have a good afternoon Zach, and welcome to The Complex.” He turned away and walked inside, the doors opening on their own accord to admit him.
-
-
-
-So that was it. That’s how I made my way into the weirdest towns I’ve ever been in. Officially, this town has no name. You won’t find it on any map that you can find, and you’re not likely to pass through it just driving down the road. I’m glad I decided to stay that day, it’s made for a plethora of insane, unbelievable and out of this world stories. Until next time, I’ll tell you how a bit of the day went after accepting the offer. As Mr. Rags made his way inside, I followed him. We both rode in the elevator in silence, him clicking the buttons for our respective floors. The doors opened to the 6th floor, two side of the building each an apartment, 6A and 6B. He gestured to the door with a smile and I got off.
-
-
-
-I walked over to it, hands shaking a bit as I went to unlock it. I got the key into the deadbolt, when the elevator dinged. I looked over as the doors opened to see an infant standing there. When I say infant, I mean something that looked maybe 3 or 4 months old, far too young to be standing. It was there, bow legged and looking confused, wobbling a bit as it looked around, its head bobbing a bit back and forth like it was too heavy. I muttered something along the lines of “what the fuck?” in it’s direction. As soon as I did, it locked eyes with me, opening it’s mouth, almost unhinging it at the jaw sockets. The sound that came out of it’s bowels can only be described as a low, guttural rumble, like an alligator mating call. I nearly shit my pants, turning the deadbolt and door handle to get myself inside as fast as possible. The door popped open and I threw myself inside, kicking the door closed from the floor. I rushed up to my feet and relocked it. Heavily breathing and practically seeing stars, I waited for something to happen. As I backed away from the door, I heard the elevator ding again, the mayhem and low rumbles of the infant waning, as silence eventually took its place.
