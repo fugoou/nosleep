@@ -1,79 +1,66 @@
-# I work as a Night Guard in a Cemetery and the spirits are relentless
-If you haven't read the previous posts you can read [Part 1 Here](https://www.reddit.com/r/nosleep/s/pWVg2r3lpi) [Part 2 Here](https://www.reddit.com/r/nosleep/s/UwcWzW2i1s) and [Part 3 Here](https://www.reddit.com/r/nosleep/s/YLj3aQCQN8)
-And now 
+# I Moved In With an Old Friend to Save Money. Last Night, I Think Something Else Was Living Inside Him
+I moved in with an old friend a few months ago mostly for weed and cheap rent. He’s not your average roommate. He’s 60. I’m 20. Not exactly the sitcom setup. But I’ve known him a long time. Let’s call him Cal.
 
-The problem with hiring the lowest bidder to work as fast as possible is that they don’t like to adhere to simple instructions.
+Cal’s always been… out there. He’s got this grizzled Vietnam-vet-meets-coffeehouse-prophet vibe. Most days he just sat on the back porch with a joint, talking about how cops were fascists and how the Anunnaki already control the world through hidden frequencies. I used to laugh it off. I’d bring over a few grams, he’d go off on rants about moon pyramids and resonance fields, and I’d just let him talk.
 
-The company the cemetery hired was from a neighboring town. They were given very specific instructions about the work they were to do with the most important instruction of all being repeated at least a thousand times.
+He was harmless. At least I thought he was.
 
-All work for the day is to be concluded before 8 PM and no one is allowed to re-enter the cemetery once the gates are locked until the gates are unlocked at 6 AM the following morning. 
+That started to change a couple weeks ago. He stopped going outside. Started covering the windows with aluminum foil. I came home one night and all the mirrors in the house were turned around. I asked him why, and he said:
 
-The first couple weeks the crew seemed to understand the strictness of the rule and concluded the daily work well before 8. 
+“Mirrors are gateways. You stare long enough, they start lookin’ back.”
 
-When an exceptionally cool summer day allowed for perfect conditions to make serious progress building the columbarium, their workday stretched to nearly 8:45 before they had been finally forced out of the cemetery by Isaac, Thomas, and Myself just in time for us to lock the gates at nine. With much grumbling from the workers about another forty minutes before dark to make progress they got in their vehicles and drove off to our ‘Fancy’ Motel 13.
+He wouldn’t look me in the eye after that.
 
-Isaac joined us from the North Gate and the four of us met back at the admin building for a quick game of ping pong before doing rounds.
+A few days later, I woke up around 3 a.m. and found him standing in the middle of the living room, perfectly still. No lights. Just standing. Not facing me. Not really facing anything. Like his body had just been set there and left running on idle.
 
-Since the renovations began, all four of us have been required to work 6 days a week to make sure no one enters the cemetery. Usually the presence of a night guard will deter any would-be fence jumpers. 
+“Cal?” I called out.
 
-The pay has been great but it sucks only being able to have one night off a week and I am looking forward to going back to my three days a week. Luckily, I haven’t had any emotionally devastating reunions and having more living people in the cemetery at night has made me feel more relaxed.
+Nothing.
 
-Just after our 11 o’clock gate lock, we heard a banging on the south gate just as the four of us sat down to play a game of 4-player chess; Thomas made a board during one of his off-days and was apparently a pretty decent player when he was in highschool. With collective silent cursing we all got up and made our way to see who was dumb enough to bang on the gates of Hell. 
+I stepped closer. His breathing was slow — like too slow. I don’t even know how to explain it. Every inhale felt like it took a minute. His arms were stiff at his sides, hands curled slightly, like he was holding something invisible.
 
-Standing outside was one of the contractors berating our rushing of him outside as he had forgotten his cellphone inside. We all collectively gave him ‘What do you want us to do gesture’ as he had failed to tell us where his cellphone was.
+Then he whispered something. Real quiet. I had to lean in to hear it.
 
-Our lack of vocal communication had only angered him further as he began throwing a tantrum about wanting his phone. I pointed to the gate and shook my head as he pulled on the bars and yelled for us to unlock it. Thomas and Isaac began to walk off in a vain attempt to locate his phone. 
+“…it’s almost through.”
 
-I have seen spirits, demons, and animal-plant-rock hybrids scream and yell for hours on end but I have never seen a grown man scream for nearly an hour over anything. Right as it seemed he had finally resolved to defeat and was going to turn to leave, Kyle put his key in the lock for the gate and locked it as the midnight alarm tolled. 
+Then he blinked, turned to me, and smiled. Like nothing happened.
 
-Taking this as an insult the contractor decided he wasn’t going to let a bunch of ‘rent-a-cops’ keep him from his precious. Kyle and I watched as he pulled and pushed himself up and over the gate with an impressive determination that would be the envy of the highschoolers trying to get out of the cemetery during their ritualistic sacrifices.
+The next morning, he didn’t remember anything. Or at least pretended not to. We smoked and watched some ancient aliens rerun like nothing happened.
 
-As his body dropped to the ground and he shakily landed on his feet he opened his mouth and sealed his fate.
+But it got worse.
 
-“Fuck You! You’re all nothing but a bunch of f-” were the last words he ever said as the excommunicated priest split at the shoulder revealing a series of jagged teeth running down to his hip. A long purplish tongue licked at the air as his face screwed up in an angry expression of joy.
+He started sketching things — fast, angry scribbles on the back of junk mail. Always the same shape: three triangles overlapping, forming a sort of jagged spiral in the center. I asked him what it was.
 
-The sudden appearance of this hungry fiend left the worker in stunned silence and prevented him from seeing the wrought iron spikes slowly pierce him from the arms of the iron and alabaster golem that had been waiting for him since we found him banging on the gate.
+“Interface mark,” he said. “For the transmission.”
 
-A spike piercing through his open mouth and shoulder had left him in panicked shock that did not begin exhaling his death rattle until the fallen priest took a massive bite out of the man's torso, his wicked toothy grin and vacant eyes never breaking eye contact with me.
+He wouldn’t say more than that.
 
-Lapping at the red wetness pouring from the mangled mistake of a man was the three head fox thing that had taken the form of my long lost friend.
+Then, two nights ago, I woke up at exactly 3:17 a.m. again. The air felt heavy, like the whole house was holding its breath. I came out of my room, and there he was again — in the exact same position, standing in the dark.
 
-Kyle and I turned away and walked off to regroup with Thomas and Isaac who had found the phone of the condemned contractor left beside a pile of discarded cans of Red Bull near the columbarium.
+This time, he spoke before I said anything.
 
-We shook our heads as they approached and their defeated looks were all the communication that was needed. Isaac snapped the phone and tossed it into the fountain before making their way to hose off any missed remains.
+“Don’t interrupt it.”
 
-When we unlocked the gate in the morning we met with the cemetery director and informed him of the unwelcome intruder that night and were informed that the situation would be handled.
+His voice sounded… layered. Like it was coming from behind his own voice, delayed by a second. Like he was translating something in real time.
 
-Now when we arrive at the cemetery, all of the contractors have long since vacated.
+Then — and I swear on my life — he lifted his shirt, slowly, and burned into the skin of his chest was that same triangle symbol. Not drawn. Not tattooed. Burned. Still red and raw, like it had been pressed into him.
 
-With any luck the renovations will be over soon. From what I’ve been able to tell their progress has been exponentially expedited.
+I asked him what the hell that was.
 
-The columbarium has already been finished and all of the displaced remains have been interned once more. The mausoleum is nearly finished and the admin building has never looked better.
+He said:
 
-Starting next week we are to scale down to three guards a night and should be back to our normal schedule by the end of the month.
+“You have to make space. For what’s coming through.”
 
-As much as I enjoyed having more lively company during my night shift, I think having so many living souls in the cemetery at night angered the permanent residents.
+And then he collapsed. No sound. Just dropped like a marionette with the strings cut.
 
-I don’t know what was told to the outsiders but word around town is that the missing worker was stealing tools and trying to pawn them off. Due to the outstanding morals of the local pawn shop owner, the clearly stolen items were identified and when a call was being made to the local authorities the thief skipped town before he could face justice.
+I called 911, but halfway through dialing, the lights flickered and every clock in the house jumped to 3:17 a.m. again. My phone shut off. I was shaking too hard to even move. Just staring at him on the floor, breathing like he was dreaming with his eyes wide open.
 
-If only he had just gone a night without his phone he could have told his own stories of the self-righteous night guards that wouldn’t let him just pop inside the cemetery.
+He’s awake now. Acting normal again. Like none of it happened. He’s sitting in the kitchen right now eating toast and talking about how the Rothschilds engineered music to dull our instincts. Like the last two days didn’t exist.
 
-Instead he got the chance to find out first-hand that rules are put in place for a reason.
+But the symbol on his chest is still there.
 
-[Part 5](https://www.reddit.com/r/nosleep/s/pwjLaxGLUt)
+And last night I heard him whispering in his room.
 
-[Part 6](https://www.reddit.com/r/nosleep/s/RuVew7HXgG)
+He was alone.
 
-[Part 7](https://www.reddit.com/r/nosleep/s/MyMVtsFKNi)
-
-[Part 8](https://www.reddit.com/r/nosleep/s/g9PNgOwUQo)
-
-[Part 9](https://www.reddit.com/r/nosleep/s/7ACRWEtshJ)
-
-[Part 10](https://www.reddit.com/r/nosleep/s/F2o1TqA8YR)
-
-[Part 11](https://www.reddit.com/r/nosleep/s/5Fm5y7GGl0)
-
-[Part 12](https://www.reddit.com/r/nosleep/s/dNx3ZEQ53g)
-
-[Part 13 - Ending](https://www.reddit.com/r/nosleep/s/GJadaE0ZSY)
+But I heard two voices.
