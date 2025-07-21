@@ -1,370 +1,227 @@
-# The Old Wolfgang's Dry Goods Building is Gone
-My earliest memory of the old Wolfgang’s Dry Goods building, on 30th street, is a blurry mess of primary colors and flashing lights, metallic clangs and the sticky-sweet smell of stale popcorn and spilled soda.  It was occupied by Wham! Arcade then, in 1992, when I was six. My brother liked the arcade a lot more than I did.  I was a nervous kid, and I much preferred playing Super Mario Brothers on my Game Boy, alone in my room, to the loud rows of flashy machines with joysticks I could never grasp right.
+# Netherton [Part One]
+Sometimes people remember the exact moment their lives changed, literally, forever. They can remember it down to the absolute minute and second. Like, 12:34:56, sometime after lunch on some such of a day. 
+For others, like myself, I had a sense of the hour and only vaguely the minute. It was, or is, July 9th - 2025 - sometime after 5pm. For some, they were just going about their usual business, living in their own little worlds inside their heads, maybe standing at a photocopier machine making copies of expense reports and humming to themselves. I’m just driving in my little red jeep, smiling. 
 
-I remember the little boy with the curly red hair asked me to play.  I’d seen him at Wham! before; he was a strange, quiet kid with eyes that never seemed to focus right.  My brother told me the boy was the son of the arcade’s owner - a surly, pudgy, perennially sweaty man who sat behind the prize counter, glaring. 
 
-I agreed to play Mortal Kombat with the boy.  He led me to the console and popped in a quarter; we picked our characters, my heart began to race and my sweaty hands slipped and slid on the buttons, and I think I lasted thirty seconds before the game growled “fatality!” 
+I imagine it was sort of like my vague recollection for people on 9/11. I don’t mean they don’t remember just, at that exact second, they were probably just going about their business. Unawares something so significant was about to happen. If you’re above the age of 30, you probably remember people often asking;
 
-“Haha, you suck!” howled my brother, from the Alpha Magician machine.  
 
-I hung my head in shame.  The little boy with curly red hair smiled kindly, though.  He extended a hand.
+“Where were you on 9/11?”
 
-“Good game,” he said.  Then he froze in place, like a grinning statue.
 
-I realized he expected me to reciprocate.  “Good game,” I responded.
+For me it was 12/9 and I was half a world away. It was like a pin black hole tying the times together, yet it was in reality, actually happening at the same time. I remember seeing it on the television.
 
-\*\*\*\*\*
 
-My next memory of the old Wolfgang’s Dry Goods building occurred five years later.  Not long after the red-headed boy handed me my ass at Mortal Kombat, Wham! Arcade went under.  A boutique selling willowy, flowery women’s clothes opened in the space; less than a year later, the store front had been abandoned.  Eventually, a used music shop took over the empty space.  Chip and Scratch’s CDs and Records.  There were dusty old albums displayed in the windows, and an infrequent flow of scruffy, greasy-haired men in pea coats in and out the doors.
+It’s just past 5 o clock in the afternoon. It gets darker earlier this time of year, so the horizons a nice shade of pink and orange hues. On long drives I often zone out, I know it’s not ideal but I’m still conscious of what’s around me. I’m driving alone, no music.
 
-My karate dojo was down the street.  Kostas, a thirteen-year-old brown belt, loved terrifying us younger kids with scary stories he’d lift from Short and Shivery and try and pass off as true.  
 
-“This one’s real, though,” he insisted that day.  “Cross my heart and hope to die.  It happened to my Sunday school buddy’s cousin’s friend from soccer.  You know the record store across the street?  Chip and Scratch?  It’s haunted.”
+I lied, maybe this is the exact second everything changed. To my left, a green and white sign welcoming me to Netherton catches my eye. I really must not have been paying attention at the last stop sign because this isn’t my usual stretch of road home. 
 
-A green belt snorted.  “You still believe in ghosts, Kostas?  That’s sad.”
 
-“That’s *sensei* to you, Carrero.  The building was built in, like, 1900 by a guy named Wolfgang Stoude.  He had a store and sold random crap.  Wolfgang’s Dry Goods.  But later on, during prohibition, his real business was a speakeasy.  That means he sold illegal alcohol.”
+The road stays mostly straight, a single stretch with the occasional bend. About halfway through, a second road branches off and climbs a slight hill, but I stay on the main drag. The houses are strange, spaced out like no real town would allow. Some are barely visible behind hedges, like they’re hiding. I don’t see any people yet, and I don’t register the parked cars this time around. My brain’s chewing itself, trying to recall if Netherton is a place I’ve ever passed through before. It only takes five minutes before I’m staring at the welcome sign again.
 
-“We know what a speakeasy is, Kostas,” said another boy.
 
-“It’s sensei.  And yeah, he sold illegal alcohol in the basement of Wolfgang’s Dry Goods.  There was a secret door to go down there.  You couldn’t get in without the password.  And everybody used to say that old Wolfgang Stoude didn’t just keep liquor in the basement.  It’s where he buried the bodies of gangsters who pissed him off.”  
+A guy waves me down. Tall, mid-20s maybe. Beanie, plaid shirt, looks like a young Eddie Vedder pulled out of a Seattle poster. I slow, unsure, but he jogs to the passenger side and gets in before I can think. I flinch.
 
-Kostas paused for effect.  I breathed deeply, in and out, trying to slow my racing heart.  I didn’t like horror stories.  
 
-“My buddy’s cousin’s soccer friend was a dude named Kevin.  Before the record store opened, when the building was empty, he and a group of guys broke in because one of their brothers dared them to.  The other guys said it wasn’t even scary.  But Kevin got weird after.  Once, he asked my brother’s cousin if he knew ‘the man with suspenders and a hat’ following them.  But there was no man there.”
+ “Hey,” he says, both hands up like he’s seen this go badly before. “Not gonna hurt you. Just protecting us from her.” He nods ahead. 
 
-I wiped my sweaty hands on my karate pants.  I wanted to escape to the bathroom, but I didn’t want the guys to think I was a pussy.  
 
-“He’d talk to people no one could see,” Kosstas continued.  “Ghosts.  Or, he’d run out of class randomly, screaming about a man with a gun.  He told my buddy’s cousin he woke up in the middle of the night, and there was someone on his chest trying to strangle him.  They wanted him to go back, he said.  Back to the abandoned Wolfgang’s Dry Goods building, to the basement.  Finally, he gave in and went.  And…”
+I follow his gaze. A blonde girl is sprinting toward us, makeup streaked, black tutu flaring around her. She’s screaming something, voice cracking. Leather jacket, wild eyes. 
 
-Kostas paused again.  I twitched.  I wanted to cry.
 
-“And then… he died!”  He announced dramatically.  “Kevin died.  He dropped dead in the middle of a soccer game.  My buddy’s cousin ran to him.  Kevin’s last words, before his eyes closed forever, were ‘please don’t let the man with the hat take me.’”
+“She usually doesn’t come too close.”
 
-I slept with the lights on for a month.  
 
-\*\*\*\*\*
+I’m starting to think I might have dozed off at the wheel. Maybe this is one of those hyper-real dreams, protecting my mind right before I hit a tree. The guy in the passenger seat watches me, reads something on my scared facial expression. 
 
-My third memory of the old Wolfgang’s Dry Goods building takes place rather recently.  The storefront had been abandoned, again, for awhile - since the owner/operator of Gino’s Gyros was sent on a trip upriver, courtesy of the feds, for insurance fraud.  
 
-I found the front door unlocked, as the property manager assured it would be.  My mission: scout a location for Tomato Tart, the second Neapolitan-style pizza joint by chef and Instagram influencer Kylie J.  Kylie was a friend from culinary school; she already ran one phenomenally-successful restaurant in the city and was ready to open her second, with me as the sous chef.
+“I’m the unofficial welcoming committee,” he says with a dry kind of calm. 
 
-The old Wolfgang’s Dry Good building was… actually, it was quite nice.  It had an art deco feel - checkered tile floor, ornate geometric designs cut into the wood of the bar - combined with that of an Irish pub.  We’d need to do some remodeling, put in a pizza oven.  But the kitchen was spacious and already equipped with a large, walk-in fridge and freezer.  
 
-Between the fridge and freezer, there was a door.
+Outside, the girl’s still screaming. Her voice cracks, loops. “This isn’t real!” over and over like a scratched record. 
 
-A narrow, wooden door - cut into the white plaster walls of the kitchen - with a green-tinged, metallic knob and fancy carved patterns to match the art deco bar outside.  There was a brass-colored placard at eye level, with a calligraphic word carved into it: PASSWORD.
 
-*Password.*  With a whoosh of consciousness, I was eleven years old and in my karate dojo, listening to Kostas spinning a bullshit tale of his friend-of-a-friend kicking the bucket on the soccer field, pursued by invisible 20’s gangsters.  I breathed in the faintest whiff of stale popcorn and sticky spilled soda.  I suddenly wanted to be as far away from the abandoned restaurant as I could get.  
+The man doesn’t flinch. Just turns to me, like we’re in line for coffee, and asks, “How many times did you pass the welcome sign?”
 
-Then, I remembered I was a nearly forty-year-old man, not an anxious kid.  
 
-I took some pictures for Kylie, then shut off the lights and locked the door behind me.  *Fitting*, I thought.  *I’m back at the scene of my humiliating Mortal Kombat loss, the site of my biting childhood failure.*  The last few years of my life, I’d marinated in failure.  
+“Twice,” I say, my voice smaller than I expect. 
 
-I started west, towards the subway overpass.  Well.  Maybe it all was a sign my days of failure were over.  As soon as we nailed down a location, I’d be Kylie J’s right-hand man.  The train rumbled into the station overhead.  
 
-“You’re gonna tank this restaurant like you tanked yours, Jon” a sharp voice snapped, right behind me.
+He nods like that confirms something. 
 
-I whirled around.  There was no one there. 
 
-\*\*\*\*\*
+“Name’s Adam,” he offers.
 
-As it turned out, Kostas was full of shit.  
 
-After sending the pictures to Kylie, I curled up at a Yemeni coffee shop with my laptop and an iced adeni chai.  My return to the old Wolfgang’s Dry Goods building had inspired me to fact-check Kostas’ dumb karate class story.  A seventh-grader dropping dead during a soccer game would be a rare enough occurrence to make the news; I skimmed old archives, Google’d key words, and posted the story on the local subreddit.  
+I tell him mine. Anna. He says it back to me like he’s testing the sound of it. It feels like he’s trying to anchor me, ease the panic still crawling under my skin, despite the girl still screaming not thirty meters away.
 
-Old newspapers and obituaries gave me nothing.  No hallucinating little soccer player named Kevin, tragically struck down on the field.  On Reddit, though, a user build-a-bae posted a Letter to the Editor published in her hometown Connecticut paper, from 1993.  She’d kept it because she thought it was funny.
 
-**Always Know Where Your Kids Are**
+“Take a look at that house,” he says, nodding right. It’s two storeys. Bottom in brick, top in weatherboard, windows that don’t match. “Now that one,” he adds, pointing left. One storey. Seventies. Half a fence. Three chimneys.
 
-*My sister-in-law, a psychiatric nurse in New York City, recently related to me the tragic tale of a sixteen-year-old girl, Rebecca.  Young Rebecca, like many young people, fell in with the wrong crowd at school.  Her new friends’ lives were consumed with drugs, Dungeons and Dragons, and heavy metal music.  And soon, so was Rebecca’s.*
 
-*On Halloween, this clique of young people broke into an abandoned store.  They did drugs, then performed a ritual with an ouija board.  Harmless fun, Rebecca’s friends insisted.  But only days later, Rebecca became convinced something was constantly behind her.  She asked her mother if she saw the “man with thousands of eyes.”  She described a creature with goat horns and hooves, who stared back at her from inside the mirror.* 
+It looks to me like how houses might look if you’re trying to render them inside of a dream space. Have you ever had a dream where you’re trying to use your cellphone? It’s often not the model you usually use. You find you can’t navigate it properly or make a phone call for the life of you.
 
-*Then one night, Rebecca ate dinner with her mother.  She stood abruptly and, face twisted in fear, whispered “the goat man wants me to come with him.”  Then, she collapsed.  The paramedics couldn’t revive her.  She’d died of a sudden heart attack.*  
 
-Aside from a few details, this supposedly true story was a carbon copy of the one Kostas told in karate class, years later.  He must’ve heard it somewhere and adapted it to take place in our little corner of the city.  
+Dreaming is theorised to aid in memory consolidation, emotional regulation, and threat simulation. During REM sleep, the brain’s limbic system activates while the dorsolateral prefrontal cortex goes offline, producing surreal narratives from fragmented episodic memory and misfiring hippocampal indexing. What a hoot. 
 
-Not only was Kostas a liar, he couldn’t even come up with his own material. 
 
-Another Redditor chimed in.  User WeaponizedBlonde7171 recalled another version of the same tale - presented to her, as something that *really happened* to a brother’s co-worker in a Faraway City, by her high school sex ed teacher.  
+I tell Adam I think I’m dreaming. He doesn’t laugh. Doesn’t even smile. He reaches over and pinches the inside of my lower arm. Not hard, just enough. I blink. My eyes feel dry. I’m suddenly aware that I need to pee. I can feel the pressure in my lower stomach, the faint ache in my hip from sitting too long. My mouth is dry but not unfamiliar. These are the usual tugs and pulls of being awake. Of being in a body. 
 
-*She said this guy broke into a comic book store to have unprotected sex with his girlfriend*, WeaponizedBlonde7171 wrote, *and he got syphilis.  The syphilis made him go crazy.  Like, he hallucinated all the time.  He’d ask if anyone else saw the big, blue tiger.  He thought a monkey was following him around.  Finally, he broke into the same comic book store again because, deep in his psychosis, he thought it would cure him.  And he actually got better!  Then, he relapsed and died.*  
 
-*Y’all.  This story made me a virgin until COLLEGE.* 
+“That’s how you know,” he says. “Dreams don’t remember what your bladder feels like.” He’s probably right.
 
-I realized then: the horror story that scared eleven-year-old me senseless was an urban legend.  Typically, multiple versions of an urban legend exist; the basic structure is the same, with enough wiggle room for the teller to improvise the details, based on their own or their culture’s experiences and fears.  Kostas’ mistake? He made his story too local.  The power of urban legends is that they always happen in an unspecified, faraway place.  Kostas’ utilization of the old Wolfgang’s Dry Goods building made his tall tale all too easy to fact-check.
 
-“Hey Jon, the restaurant will burn, and you’ll drag her down with you!”  The same sharp, harsh voice in my ear.
+The girl’s screaming is getting under my skin. There’s a pressure behind my eyes now, a headache forming. I shout at her through the glass that I’m calling the cops, even though the windows are up and she can’t hear me. I pull my phone from my right pocket, pink case with the little scratch near the camera lens. No signal. Not even a flicker. Just ‘SOS only’ staring back at me. Adam glances at it. 
 
-I sprung to my feet and did a 360.  I was alone, save for the bored-looking girl behind the counter, completely involved in her phone.  Something moved in the corner of my eye.  A black cockroach, ducking back into a hole in the wooden baseboards.  
 
-I took that as a sign it was time to pack my things and go home.  As I walked out the door, I could’ve sworn I caught the scent of popcorn and sugary cornstarch.  I trembled.
+“Fanciest one I’ve seen yet,” he says. I don’t laugh. I don’t smile. Something’s wrong. Not dream-wrong. Not lost-wrong. A different kind of wrong.
 
-\*\*\*\*\*
 
-My meeting with my old friend Leona didn’t put me in a better mood.
+I’m looking around now. Really looking. There’s a Buick with Virginia plates a little ways down, parked on the wrong side of the road. Past that, a Fiat with German plates, too clean, like its brand new. My breathing shortens. Skin feels too tight. Adam places a gentle hand on my shoulder, like he’s done it before. 
 
-Two weeks had passed since I set foot back in the old Wolfgang’s Dry Goods building.  Kylie said she liked the pictures.  She wasn’t sold, though.  The place was too close to the noisy train tracks.  If it were any other location, I’d have been frustrated to the point of blind fury.  The rent was considerably cheaper than we had any right to expect, anywhere in the city. 
 
-That particular location, though?  I’d be lying if I said it didn’t give me the heebs.
+“Breathe deep,” he commands. The girl’s still screaming, shrill and unrelenting, like a fire alarm no one’s bothered to stop. 
 
-I’d heard the scratchy, disembodied voice three more times.  
 
-The first time, I was at work at TGI Friday’s, alone in the break room, guzzling a Red Bull before returning to the line.  
+“If you don’t shut her up,” I say, “I think I’m inclined to run her over.” Just then, as if hearing me, she turns.
 
-“You’re a fat, old loser,” the voice hissed in my ear.  “Nearly forty years old, Jon, and this is all you have to show for yourself?”
 
-On the floor under the lockers, two cockroaches scurried around each other and into a discarded Ramen cup.  I tossed my drink and ran.
+Chronoception is the brain’s ability to perceive the passage of time. It’s not housed in a single structure, but spread across neural networks - the suprachiasmatic nucleus, basal ganglia, even the insular cortex. Our sense of duration is fragile, warped by attention, emotion, and memory consolidation. Anxiety speeds it up. Boredom slows it down. Trauma splits it open. I don’t remember when Adam got in the car or when I stopped feeling scared. Just now I check my phone. Battery’s at 73 percent. Time reads 6:12 PM. Somehow, an hour has passed since I saw the sign. It felt like fifteen minutes.
 
-The second time, I was at the park with my kids.  Theo bonded with a beagle in the dog run while Kassidy flew higher and higher on the swings. 
 
-“It’s your fault you lost the house.  When they learn that, they’ll never forgive you.”
+Adam opens the door and steps out casually, like we’re parked outside a diner. 
 
-Panic seized up in my chest.  Was I schizophrenic?  Experiencing a side effect of alcohol withdrawal related to my 38-day-old abstinence from the stuff?  I made a mental note to call my GP on Monday.  I gathered the kids and told them it was time to leave, bribing them with the promise of gelato.  
 
-The third time was later that same day.  I’d just gotten off the train, having completed the last leg of the epic trip to return my kids to their mother in the suburbs.  As I walked back to the one-bedroom apartment I sublet, I passed by a lively dive bar.  Unpretentious, the sort of place where weekend warriors played lousy pool and sung tone-deaf karaoke.  
+“Shall we go find out what house this place has chosen for you?” he asks, like it’s the most natural thing in the world. 
 
-“You should go in,” the voice taunted.  “Everyone knows this bullshit AA thing isn’t going to last.”
 
-I whirled around, fists clenched.  My invisible friend could scare me in the break room all it wanted, but if it thought it could screw with my sobriety, it had another thing coming.  
+I follow. He feels safe in a way I can’t explain, like something I decided without realizing. We start at the mismatched townhouse to the right. Inside smells like dust and old lemons. Adam takes the stairs two at a time. 
 
-But - as I’d come to expect - I was alone on the street.  Alone, except for a dark horde of cockroaches in the gutter, crawling around a discarded kebab sandwich.  
 
-\*\*\*\*\*
+“Up here,” he calls. I find him in the first bedroom on the left, standing before a wardrobe. Inside are my clothes.
 
-“Have you noticed more roaches out lately?” I asked Leona.  “It’s January.  They’re supposed to stay in their hidey-holes until June.”
 
-Leona shrugged.  “Not really.”
+I just stand there, staring at a hoodie I know for a fact is back home in my bedroom. Adam doesn’t seem surprised. 
 
-Leona Burrell agreed to meet me at a Starbucks by my apartment.  We’d been friends for years, ever since our days at L’Petit Rose French Bistro - her, the night supervisor; me, the twitchy new line cook.  When Kylie finally settled on a location for Tomato Tart, I intended to hire Leona on as the general manager.  
 
-“That location, the one you told me about,” Leona said, “I know it.  I don’t want to work there again.”
+“Mines the one with the chimneys,” he says casually, nodding toward the street. “Right by the town hall.” 
 
-“The old Wolfgang’s Dry Goods building?  You worked there before?"
 
-She nodded.  “Yeah.  Back in 2004.  Toddy’s Bean Town?  It was a coffee shop, with a kinda Central Perk from Friends vibe. I worked as a barista there for a few years in my 20’s, until it went out of business.  It was fine.  But one of my co-workers got a stalker.”
+I finally manage to speak. “What the fuck is going on?”
 
-Something cold settled on my skin at the word *stalker*.  “Like an ex-boyfriend?”  I asked Leona. 
 
-“Boyfriend is stretching it,” Leona said.  “He was a customer, this harmless-looking dude.  They went on one date.  She didn’t feel a spark; he - well, he started popping up everywhere.  Her college campus.  Her apartment.  Even her mom’s house.”
+He exhales through his nose, then says, “It’s better if I explain it in parts. Too much at once and you might crack.” There’s something about the way he says it that makes me believe he’s seen it happen.
 
-“Did… did the police ever get the guy?” I asked, wiping my sweaty palms on my jeans.
 
-She rolled her eyes.  “Stalking laws were trash in the early 2000’s.  And she died.”
+In my early twenties I went to a public neuroscience lecture about quantum teleportation. I barely understood a word of it but I went to impress someone and I think all twenty year olds try to seem smarter than they are. The speaker described a theoretical process of disassembling atomic structure, transmitting it across space, and reassembling it in perfect order. Matter, not just information. The laws of physics stretched but not broken. I remember sitting there, hungover and half asleep, thinking it sounded like science fiction. But now I am staring at my hoodie and wondering if it’s not.
 
-My heartbeat accelerated like a rollercoaster.  “He killed her?”
 
-“Not exactly,” Leona said sadly.  “She had a brain aneurysm, a genetic thing.  But I’m pretty sure the stress of the situation didn’t make it better.”
+The Ouzel Galley set sail from Dublin in 1695, bound for the Ottoman Empire. When it failed to return within its expected timeframe, ship and crew were declared lost. Yet five years later, the vessel sailed back into Dublin Bay, apparently unharmed. The crew, in good health, claimed it was still 1695 and believed only months had passed. Their logs stopped abruptly, offering no clue as to the missing years. The ship’s sudden reappearance sparked confusion and speculation. Some blamed piracy or hidden exile, but others wondered if the Ouzel had slipped through time, returning unchanged from a different year.
 
-“I’m sorry,” I told Leona.  I didn’t know what else to say.  *You ever hear the urban legend where*… seemed inappropriate.  
 
-We sat in silence for a moment, sipping out coffees.  
+I try to make sense of it all. The lecture, the wardrobe, the boat. I remember the professor’s voice echoing across a packed hall, diagrams of particle entanglement on a yellowing projector screen. The Ouzel Galley returned as if no time had passed for its crew. It was the same year inside their heads, the same day even. My thoughts slide sideways. I have always wanted something strange to happen to me. Not a lottery win. Not a ghost. Just something impossible and quiet. A fracture in the averagely normal. I just did not want it to feel like this.
 
-“There was an arcade in that building once, too,” Leona said finally.  
 
-I frowned.  “You knew Wham! Arcade?”
+I start to panic. Not just nerves. Real full blown panic. My chest tightens. My hands are shaking. My throat feels like it is folding in on itself. I start rambling.
 
-“Yeah.  Wham! Arcade, that’s what it was called.  The kids I baby-sat were obsessed.  I’d always end up getting roped into losing a game to this little boy, David.  The owner’s son.”
 
-“The kid with curly red hair?” I asked, cringing involuntarily at the memory.
+“My cat,” I say. “His name is Atreyu. Like from the movie. If I’m here, who’s going to feed him? Who’s going to submit the expense report due tomorrow?”
 
-“Yep.  He was a real-life arcade wizard,” she said.  “I never saw him lose a game.  I’m glad he had something though, poor little guy.”
 
-“What do you mean?”
+I look at Adam. “What if no one notices I’m gone? What if they think I just vanished again?”
 
-She eyed me like I was the most oblivious person in the world.  “Jon, you seriously didn’t notice?  I was ten, and I picked up on it.”
 
-“Picked up on what?”  An uncomfortable sourness curdled in my veins.
+I can’t breathe. My vision prickles.
 
-“He was skinny, like malnourished skinny.  And there were always bruises all over him.”
 
-\*\*\*\*\*
+Adam’s voice cuts through gently. “Put your head between your legs. Breathe.” Yeah, sure bud.
 
-I hadn’t looked at my Reddit post in weeks.  After my coffee with Leona, though, I had an irresistible impulse to check in and see if any other Redditors had chimed in with added perspective.  
 
-Because.  Because… I didn’t know.  I couldn’t say the words, not even to myself.  *I’m a nearly 40-year-old adult and father.  I’m not a nervous kid.*  
+It’s easy for him to say. He doesn’t know Atreyu. He’s a fussy rag doll of a thing. He only likes wet food, the stuff in the tins with the silver lids. His water has to be filtered and poured fresh, or he’ll meow like he’s dying. If I don’t submit the expense report on time, Susan is going to be passive aggressive again, sending emails with smiley faces and phrases like “just circling back.” Me being here has real world implications. There are dominoes. There is fallout. This is not a daydream. This is disruption. This is total collapse.
 
-Reddit, though?  Reddit delivered.  Oh, did it ever deliver.  
 
-First, user BoilandBass3500 had done some research.  He gave us all the full history of the old Wolfgang’s Dry Goods building.  
+Adam doesn’t want to interrupt my spiralling, societal-induced panic, but he leans in slightly, voice low. 
 
-*Construction was begun in 1912 and finished in 1913,* he wrote.  *Wolfgang Stoude, the original owner, ran a dry goods store there until his death in 1928.  His son took over the business, but it went under during the Great Depression, and the building remained an empty, poorly-maintained bank property until it was purchased by Bluebell Properties United in 1940 and leased to a Walgreen Drug Store.  The Walgreens closed in 1974.  The building housed a disco club for a short time, then a men’s clothing store.*  
 
-*From 1983 to 1993, Wham! Arcade occupied the store front.  After the arcade was unexpectedly abandoned, a series of businesses opened and closed in the spot: Laura’s Boutique (1995-1996), Chip n’ Scratch Records (1997-1999), The Bar on the Tracks (1999-2002), Toddy’s Bean Town (2002-2004), Loew & Ludwig Coffee (2004-2005), Hammadi Kebabs (2005-2010), Amato Pizzeria (2010-2011), The Grey Cat Tearoom (2011-2012), Big Time Natural Foods (2012-2013), Larsen’s Market (2013-2015), The Dog Place (2015-2016), Black Rain Bakery (2016-2017), Bubbles Tavern (2017-2018), The Acai Lover (2018-2019), The Nut House (2019-2020), Kawaii Boba (2020-2021), Just Grilled (2021-2022), and Gino’s Gyros (2022-2023).*  
+“I need to tell you a few things before Father Mark or the speedheads get wind of you.” I blink at him. He continues, “There are factions here. Groups. You don’t have to join one, but you’ll want to know who’s who before someone tries to claim you.” 
 
-I counted.  Twenty-three businesses in total.  Since 2010, only one lasted longer than a year.  That was a lot.  Even in the fickle, high-risk-high-reward city entrepreneurial scene, that was a lot. 
 
-After that, Redditors posted a series of urban legends - different, now, from the first few I’d read.  These urban legends didn’t take place in an unspecified locale, far away.  Each and every one centered on the old Wolfgang’s Dry Goods building and the twenty-three businesses that had operated and failed there.
+His tone shifts, steadier. “We call ourselves the normies. Normal people, basically. Five of us. We stick together, keep to routines, eat dinner together, try to keep our heads on straight.” I nod slowly. He watches.
 
-User ICaughttheFlyingSausage: Oh crap, not that place.  My dumbass friend dated a girl whose brother worked at the grilled cheese shop.  The brother told her the building had been built on top of an ancient Native American graveyard.  He swore ghostly Native American warriors were chasing him around the city.
 
-User TurboGerbil1925: This hippie chick my ex-boyfriend used to smoke weed with told him it was built on a faerie circle.  Apparently her boss pissed off the other side.  I think she worked there when it was a natural foods store?  Anyways, the boss had some sort of a mental breakdown.  I think he ended up dying.  
+Adam rubs his hands together like he is gearing up for something unpleasant.
 
-User RunnerintheNight42: LOL Wut?  You know a serial killer used to be a cook at the pizza joint, right?  He’d lure chicks to the basement and seal their bodies up in the walls.
 
-User LoloPanda: I heard the woman who ran the Grey Cat Tearoom was a witch.  When her business failed during the recession, she put a curse on the store.  That’s why no business ever succeeds there for longer than two years.  
+ “Then there is Father Mark and his lot. Seven of them now. They live in the school. Turned it into their own kind of monastery. Real Bible Bashing types. Think penance and salvation and all that. Mark used to be an alcoholic. Now he thinks this place is some divine test.” 
 
-User AtticCat1290: This is a throwaway.  Can you DM me?  I think we should talk in person.
 
-I didn’t know what to make of all these accounts - or how they related to me, or the voice, or the cockroaches I kept spotting, or Leona’s victimized coffee shop co-worker, or little red-haired David, the arcade owner’s son.  So I ignored AtticCat1290’s request.  I turned off my computer.  I went to CVS and invested in a can of Raid.
+I glance at him. “What kind of test?” 
 
-\*\*\*\*\*
 
-Long past midnight, I jerked awake.  I felt something small and itchy brush against my leg, or maybe my eyes snapped open because my spidey-senses alerted me I wasn’t alone.  Through my bedroom window, the city lights cast a pale, silvery column across the floor.  A small, fast-moving blotch jutted into the light, then disappeared in the darkness.  
+He shrugs. “One where the answers do not matter.” He pauses. “They pray. They chant. They fast. But they let you use the library. I negotiated that myself.” 
 
-I sat up in bed and reached for my light.  Wispy, disorganized legs skittered across my hand.  I jerked back as I pulled the chain.
 
-My room was coated in cockroaches.
+Adam rubs the side of his bristly face.
+“That second road you passed, the one that veers up behind the town hall? Leads to the mansion. That’s where the speedheads live. Four of them. Their ringleader’s Vincent. Wall Street macho-macho type. Slick hair, expensive watch, real self-important.” 
 
-Hundreds of cockroaches.  Cockroaches clustering in the windows, up the walls, stacked in corners.  Thousands of tiny legs sprinting across the floor.  Quivering feelers, flitting wings, cockroaches piling on top of each other and mating and fighting and scaling the walls and skittering across the ceiling.
 
-I closed my eyes and screamed.  I screamed until I couldn’t breathe.
+He shifts slightly. “They don’t think any of this is real. Just treat it like a bad trip they’re riding out. Drugs, sex, nonsense theories.” 
 
-I opened my eyes, panting and gasping for air.  The cockroaches were gone.  
 
-Then, the voices started.  There were many of them now - male and female, guttural and nasal, vicious whispers and mocking taunts.
+I raise an eyebrow. “And 80s girl?” 
 
-*How did you get so fat, Jon?  You’re a slightly better father than you are a businessman, but that bar is practically on the floor.  Your face looks like a French bulldog crossed with a rat.  You’re such a loser.  Do you fully comprehend how embarrassed your parents are to have spawned you?  Thank God your brother’s successful, or they’d probably kill themselves in shame.  Your ex-wife is better off without you.  Your kids are better off without you.*  
 
-I couldn’t take it anymore.  I stood up, threw on jeans and a sweatshirt, grabbed my laptop, and ran out of my apartment.
+“Yeah,” he says. “She’s with them. Has been since she got here. They cling to each other. Makes them feel untouchable.” 
 
-*If you want us to go away*, a sing-song female voice cajoled, *you know where to find us!*
 
-I took refuge in a 24-hour diner.  Kylie had sent me a message.  *Went to see the potential location by the river,* she’d typed.  *The plumbing doesn’t work.  Surprise!  You’ll never guess how much money this low-life property manager had the absolute gall to quote me.  Let’s talk more about the place you saw tomorrow.  I’ll deal with the noisy train so long as the toilets flush.* 
+“They’ll both try to recruit you,” Adam says, stepping out of the room so I’ll follow. “The fanatics want your soul. The speedheads want your body. Neither care much about your mind.” 
 
-She was warming up to the old Wolfgang’s Dry Goods building.  The place where twenty-three businesses failed.  The cursed location, claimed by faeries and ghostly Native American warriors, where a serial killer buried dead girls in the basement walls.  
 
-I logged onto Reddit and messaged AtticCat1290.  I asked when and where she wanted to meet.
+I trail him down the stairs. “What if I don’t join either?” 
 
-\*\*\*\*\*
 
-AtticCat1290, Claudia, met me at a hipster-ish coffee shop.  
+“Then you’re like me,” he says. “We just try to ride it out. Stay sane. Eat dinner together. Keep the days from melting into each other.” 
 
-Claudia was a bony blonde in her mid-thirties; a bank assistant manager.  She had a prominent nose and wide-set eyes, and her skin wrinkled in a way that gave the impression of rapid, recent weight loss.  She picked at her nails as we spoke, her eyes darting to and fro.
 
-“You think the old Wolfgang’s Dry Goods building is haunted,” I said.
+I pause at the foot of the stairs. “Are we stuck here?” 
 
-She pursed her lips.  “I don’t know.  Haunted might be the wrong word.  I’d say… it chose me.  The place chooses people.”
 
-I nodded. 
+He doesn’t look back. “Pretty much,” he says. Like he’s said it before. Like it’s the weather. Fuck.
 
-“I used to walk by the building on my way to the train,” she explained.  “Back when the grilled cheese shop was there, I’d stop for a coffee and a breakfast sandwich a couple times a week.  I got friendly with this young guy who worked there… a kid named Sam.  We’d talk about TV shows and baseball.  Well one day, Sam disappeared.  His co-worker told me he’d had a mental breakdown. I felt sad, but there wasn’t much I could do.  It’s not like we were besties.”
 
-Something tugged unpleasantly on my id.  *My dumbass friend dated a girl whose brother worked at the grilled cheese shop.*  The Reddit thread.  The guy who’d been chased by ghost warriors.  
+We reach the front door and I squint outside. The sky hasn’t budged. Same smear of peach and violet along the horizon. 
 
-“I kept on going to the grilled cheese place, and then when it shut down, the gyro place,” Claudia continued.  “I… I can’t explain what happened.  Just, I’ve always been nervous about doctors and hospitals and medical stuff.  I had allergies when I was a kid; I was poked so many times I developed a lifelong fear of needles.  But that all happened years ago, and I thought I’d gotten over it.”
 
-She took a deep breath.  “Suddenly, one day, I started seeing these… these people in white scrubs with caps and masks.  Standing there, on a street corner or subway platform, staring at me.  Sometimes, holding a cartoonishly huge syringe with a giant needle.  No one else could see them but me.  At first, they kept their distance.  Then, one appeared in an elevator.  Then I woke up to a giant man in scrubs standing over my bed.”
+“It doesn’t move,” Adam says, reading my face. “It’s always like that.” 
 
-I trembled.  Goosebumps rose on my arms.  
 
-“I see cockroaches,” I told her.  
+I blink. “Always?” 
 
-She raised her eyebrows.  “Are you scared of bugs?”
 
-“Not exactly.”  I took a deep breath.  “I used to co-own a restaurant.  Diego’s Hideout.  Mexican fusion.”
+“Like the sun in Antarctica. Months without change. Throws off your body clock, makes some people crack.” 
 
-Claudia looked confused.  I decided to not feel offended she’d never heard of my restaurant.  She’d been honest with me, I could be honest with her.
 
-“We were successful.  Ridiculously successful.  A couple people complained they’d seen roaches in the dining room, but I didn’t think it was an immediate problem.  It was the city in the summer.  There’s roaches everywhere.  Then one morning I walked into the kitchen, and the entire place was crawling with cockroaches.  The were all over the floor and walls and the dishes in the sink.”
+I step outside. The air feels the same as when I arrived. “How do you tell the days apart?” 
 
-My body twitched.  Words couldn’t do justice to the physical, icky sensation of watching those legs and feelers and crusty wings writhe and clutter. 
 
-“We had to shut down for two weeks,” I continued.  “Word got out why, and we never recovered.  Turns out, no one wants to eat at the roach restaurant.  We went bankrupt four months later.  Oh, and to make things even better - I’d just taken out a mortgage I could no longer afford, and my wife and I lost the house.  She left me.  I started drinking while the sun was still up.  And now, I’m seeing roaches everywhere and hearing psycho disembodied voices.”
+He shrugs. “Clocks still work. You learn to stop expecting morning or night. Just call it Tuesday and move on.” I’ve never been to fucking Antarctica, dude. 
 
-Claudia stared at me, considering.
 
-“They wanted me to go back,” she said finally, firmly.  “The creepy figures in scrubs wanted me to return to the building - the gyro place - and then go down to the basement.  I didn’t want to do it.  The gyro place shut down, and I didn’t want to be hanging around an abandoned store front.  But they wouldn’t stop.  The doctors and nurses with masks and syringes - they were everywhere.  At my job.  In my apartment.  So, I did it.”
+In Antarctica there are months where the sun does not set at all. This period of constant daylight is known as the Midnight Sun. It disrupts the circadian rhythm in people. Sleep becomes fragmented. Fatigue accumulates. Depression rates rise sharply. A condition known as Polar T3 Syndrome has been observed where thyroid hormones drop, affecting mood and cognitive function. Memory lapses become common. Emotional regulation is diminished. People become more irritable. Some experience mild hallucinations or paranoia. Even with artificial dark rooms the body struggles to recalibrate. Without the natural cycle of day and night the mind begins to unravel.
 
-Her eyes flickered in remembrance.  I suddenly thought of the wooden door in the kitchen, the art deco piece politely enquiring after a password.
 
-“There was an arcade in the basement,” Claudia said.
+Adam lingers near the front doorway, rubbing the back of his neck. 
 
-It took me a second to process her words.  “An arcade?  The whole building used to be an arcade.”
 
-“Yeah, well, apparently they left the games in the basement.  All these old 80s style machines.  I could only get one to work: a fighter game, like Mortal Kombat.  The gist was, you played an adventurer battling it out with Native American spirit guardians to find a buried treasure in an old graveyard.  It was actually really racist.  And I lost in about two seconds.  As soon as I lost, though… it was over.”
+“There’s already food in the fridge,” he says. “Pantry’s stocked. Medicine cabinet too. It’s like a hotel, sort of. One that knows exactly what you need.” 
 
-“Like, you stopped hallucinating?” I cut in, suddenly caught up in a wave of hope.
 
-She sighed.  “Yeah.  But… it might be more complicated.  Because that kid I talked about?  Sam, the sandwich shop guy who had a mental breakdown?  I learned later that he’d died.”
+He pauses, inhaling a sharp breath.
+“Come to the town hall in the morning. I’ll fill in more then. It’s getting close to ten.” 
 
-\*\*\*\*\*
 
-I couldn’t pick the lock on the old Wolfgang’s Dry Goods building while it was still light out.  No way that wouldn’t get me a free night in a jail cell.  So I waited until four in the morning, chugging Red Bull at the deli until the last of the bar patrons stumbled to the subway, leaving me alone on the street.
+I glance at my phone. Somehow, it is. Even though the sky hasn’t shifted a shade. Still that same haunted dusk. He leaves. I shut the door. Lock it. Turn the bolt. It feels necessary.
 
-If the nameless spirits of the Wolfgang’s Dry Goods building wanted me to play video games in the basement arcade, then video games I would play.  
 
-The lock snapped open in seconds.  I found my way through the abandoned restaurant with the flashlight on my phone.  Steeped in darkness, the once-welcoming atmosphere had become gloomy and imposing.  The wood-paneled walls trapped the blackness.  The geometric, art deco carvings threw jarring shadows.  
-
-I wandered into the kitchen, up to the little wooden door between the fridge and freezer.  I tried the greenish, metallic knob.  It didn’t so much as jiggle.  The door was locked.  Locked, it appeared from the inside.
-
-I stared into the placard.  PASSWORD.  
-
-The basement, where Wolfgang Stoude kept his bootlegged alcohol.  Where, apparently, the arcade’s owner had stashed his collection of consoles.  I recalled Wham! Arcade closed suddenly - no warning; just a chain on the door one morning.  *The poor little boy*, Leona said.  Little David, the kid with curly red hair.  
-
-PASSWORD.
-
-“Good game,” I said to the door.  
-
-There was a snap, then a creak.  The door popped open.  I pulled it wide, and found myself staring down a set of wooden stairs.
-
-I smelled stale popcorn and sticky-sweet spilled soda.  As I climbed carefully down the stairs, I heard metallic trills and jaunty, computerized music.  Bright lights flashed, multicolored, against the walls.  And then, I was there.
-
-It was just as Claudia said it would be.  Just as Wham! Arcade once had been.  Rows of giant computer consoles with dancing graphics and greasy joysticks.  
-
-The first game I came to was called Nephilim.  It looked like a fighter game; the sides decorated with disturbing images of eye-covered men and goat-headed women.  Next to Nephilim sat Speakeasy, a shooter game.  Prohibition-themed, you had to fire at hat- and suspenders-wearing thugs come to steal your stash.  Across the room, a pastel-colored Pac Man-esque game: Escape from the Zoo.  Instead of PacMan ghosts, you got chased by blue tigers and purple monkeys.  
-
-I didn’t question how the flashing lights and dancing graphics were even possible, as the electricity in the building had been shut off for months.
-
-I walked down the rows, passing FaerieQuest and The Grey Witch’s Cat and an extremely kid-inappropriate (and generally problematic) game called Rear Window, in which you had to stalk a girl through a series of obstacles.  Then Homicide 911, where you were tasked with picking up enough clues to jail a serial killer before he murdered again.  Beside that, I spotted Graves of our Ancestors, decorated with moderately-offensive Native American imagery.  I guessed this was the game Claudia had played.  
-
-I pressed buttons and looked for coin slots.  But the only game that worked properly, the only one I was allowed to play, was the game furthest from the door on the right.
-
-HOSPITAL NIGHTMARES!!  It was called.  According to the graphics, it worked a bit like Frogger.  I needed to avoid mad scientists trying to inject me with serum.
-
-As soon as I grasped the joystick, my hands began to sweat.  I felt my heart pounding in my ears as the bouncy music swelled.  I shook as I tried to remember which button did what.  *People are staring.  I’m going to fail.  Just like I always fail.*
-
-A melancholy trill from the game.  “Fatality!” A computerized voice croaked.  
-
-I stepped back.  Watched my pathetic avatar collapse to the ground while a ghoulish doctor laughed maniacally.  
-
-There was peace in failure.  *Now, I can go back to my room and play Super Mario Brothers to my heart’s content.*
-
-\*\*\*\*\*
-
-I don’t remember leaving the basement arcade, or taking zigzagging trains home, or collapsing into bed.  The next day, I awoke past noon from the best sleep of my life.  I didn’t see any more cockroaches, or hear the voices.  I worked a shift, then made plans with Kylie, then went to an AA meeting.  
-
-I texted Claudia a couple times.  I told her she was right, an operating arcade had been squatting in the old Wolfgang’s Dry Goods building’s basement.  
-
-For days, she ignored me. 
-
-Then today, someone texted me back.  Claudia’s sister.  She told me Claudia was dead.  Sudden cardiac death, a heart attack in her sleep, secondary to some structural problem she hadn’t known she had.  I offered the sister my condolences.  I said I’d only known her for a short time, but Claudia was there for me when I needed honesty and direction, and for that I’d eternally be thankful.
-
-I tried really hard not to think about the fact that she’d died the exact same night I’d broken into the old Wolfgang’s Dry Goods building and gone down to the arcade in the basement.  
-
-Or that her time of death was uncomfortably close to the time I must’ve lost miserably at the Hospital Nightmares game.
-
-\*\*\*\*\*
-
-All right.  So.  Um… not sure what to say here.
-
-This is Jose, Jon’s brother.  I found this account on my brother’s computer.  If you’re reading this, I’m really sorry to break it to you, but Jon passed away three weeks ago.  We’re still waiting on autopsy results, but we think it was an aortic aneurysm rupture.  
-
-I’m tempted to say my brother must’ve been losing it.  That he was suffering from either an undiagnosed mental condition or a brain tumor.  But his Reddit post is still up.  And… and I don’t know.  This is all too weird for me.
-
-Basically, I see the situation, as Jon saw it, as thus: the old Wolfgang’s Dry Goods building is haunted by a supernatural entity.  This entity chooses people.  It latches onto them, stalks them, casts horrific hallucinations, plays off their fears and insecurities.  It lures them in, then leads them along a breadcrumb trail to the arcade in the basement.
-
-Here’s where it gets tricky.  The quarry - my brother Jon, or Claudia before him - plays one game.  What they’re playing for is the life of the *previous* quarry, against a game based on the previous quarry’s specific narrative and hallucinations.  Claudia lost her game, so Sam the sandwich guy died.  Jon lost his game - the game with a killer hospital and insane doctors - and Claudia died.  Following this logic, I’m left to assume the building claimed another quarry after Jon.  That new quarry found their way to the basement, where they played a game against… I don’t know, a giant cockroach or something.  They lost the game.  Then Jon died.
-
-It’s the stuff of fairy tales.  An entity that… collects people.  Takes possession of their fears, and their stories, and keeps them locked in a basement in the form of 90’s-style arcade games.  
-
-I’d say it’s all a stupid urban legend.  
-
-Except.  Except - 
-
-The old Wolfgang’s Dry Goods building is gone.  It caught on fire - accidentally or intentionally, no one is sure, and no one particularly cares - and by the time the firefighters got there the building was beyond saving.  There were no old arcade games found in the basement.  The basement was empty.  However, the crew cleaning up the debris made a gruesome discovery, sealed into the basement walls. 
-
-A small corpse.  The remains of a five to seven-year-old child, shoved into the insulation and plastered over, hidden away for years and forgotten.  The child’s cause of death was likely related to a giant crack in the skull.
-
-A DNA test revealed the dead kid to be David M.  It’s suspected he died at the hands of his father, Wayne M, who owned the Wham! Arcade in the 80’s and 90’s.
+I climb the stairs slowly, every step muffled in thick carpet. My bedroom looks like it was decorated fifty years ago. Pale brown curtains, low wooden drawers, yellow lampshade with a fringe. The wallpaper has a strange texture, like it was painted over one too many times. The bed is low to the ground, with mismatched pillows and a wool blanket folded at the end. I do not bother brushing my teeth or washing my face. I just pull back the stiff sheets and lie down. Tomorrow I will meet Adam in the town hall. I need more answers. Sleep comes. 
