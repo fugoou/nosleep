@@ -1,25 +1,163 @@
-# i am terrified of men
-My dad was the first man to ever scare me. He used to put holes in walls, and he would scream, god, he would scream. He wouldn’t ‘hit me’ hit me, but he would hit the walls around me to let me know that he could. He hit my mom for a few years at least, until we got out of there. 
+# My Brother Brought Something Back from New Orleans. Now Something's Wearing His Skin.
 
-I don’t think any of them ever hurt as much as my dad. The man who made me couldn’t love me. Sometimes I look in the mirror and all I can do is stare at the parts of me that I stole from him. I have his red hair, his pointy freckled nose, and his stupid eyes. The eyes are the worst. I look at them, but they glare back at me, and I can feel the hate wash down my spine. 
 
-The day my mom decided she’d had enough and we left, he pulled a gun. I was sitting in the car, buckled into my car seat, and even at my age, I felt the air shift. My uncle had to hold my father down while my mom, my Mamaw, and my Papaw got my mom's stuff out of the house. My dad and uncle served together in the Marines; that’s how my parents met. My uncle invited my dad over for Christmas at his house.
- 
-I wish I could have been there that snowy day. I wish I could have seen my dad red-faced from the cold, spot my mom waiting for her brother on the porch. I imagine the look in his eyes when he realizes he wants to marry this woman, have a life with her, to love her. That fantasy never lasts long when I think about the real life they would lead. Having a baby at 19 when they aren’t yet separated from their own childhood days.
- 
-I remember my uncle crying, this war-hardened veteran begging my dad to stop, telling him I was in the car, telling him I was seeing this, seeing him like this. I don’t think I’ve ever seen him cry aside from this moment in my life. 
 
-In my dreams, my dad is a rabid beast. He’s thrashing under my uncle, trying to grab the gun my uncle had gotten away from him. His bones begin to crack, with loud pops and shifting bumps under his skin. The sharp shards start to break free, poking out of his flesh. The wounds bleed, and I know he’s in pain, but he stops screaming and begins to growl. These animalistic deep sounds that shouldn’t come from a man.
+I hadn’t heard from my brother Peter in over a year when I got the phone call. He’d dropped off the grid right after Mom died, took off to “find himself,” whatever that meant. The last I knew, he was couch surfing in New Orleans, working odd jobs, and getting too deep into the scene down there.
 
-My uncle throws himself away from my dad, scooting away from him as fast as he can. My dad doesn’t seem to notice he’s free because at this point, his teeth have begun to grow into sharp shark-like points sprouting out of every bit of empty space in his mouth. There’s blood dripping from them due to their violent birth out of his gums. I watch him slowly, so slowly, rise from the ground. His arms look closer to a spider’s than a man’s; they bend where the bones have broken, and he throws them around as though he doesn’t quite know how to use them. The father-creature crawls his broken body toward my uncle, who lunges for the gun. But he’s too slow, far, far, too slow. 
+The call came from an unknown number. The voice on the other end said:
 
-Father-creature throws himself on my uncle, staring at him with bloodshot, engorged eyes. My uncle tries to fight, clawing at father-creature's face and trying to break the already mangled bones. Father-creature takes his nails, now pointed like ten knives, and digs them into my uncle’s eyes. I want to look away, I want to focus on anything else, but when your brain wants you to see something so bad you dream it, you unfortunately have to look. My uncle screams and screams as father-creatures’ nails go deeper and deeper. His eyes pop out one by one. They hang by his cheeks, connected by nothing more than two thin red lines of tissue. My uncle stops screaming as his body falls to the ground with a sickening thud.
+“Come get him. He’s not right.”
 
-Father-creature rises off my uncle, more steady on his tangled legs now, as if the bloodshed has sated him. He lumbers toward the house where the rest of my family is, totally unaware of the beast stalking their way. I try to scream, to yell, to do anything to warn them, but nothing will come out. My throat is so dry it’s painful, and all I can get out are strained gasps. Father-creature pushes the door open, and I hear the screams start.
+That was it. No name. No location. Just the click of a dead line.
 
-I hear my papaw first, his deep voice going up to a girly tone as he yells for my mom and mamaw to run. When my papaw’s voice dies out, I hear the beginning of two female voices. One is begging, “Sal, Sal, I love you, please!” The other is hurling threats, screeching out profanities as if they will be a physical shield. One after the other, the curses halt and the begging intensifies before it's snuffed out as well.
- 	
-Father-creature emerges from the house after what feels like centuries. Years piled on years of sweating in the boiling car, decades spent with the straps of my carseat cutting into leftover baby fat I hadn't dropped yet. He pushes his way through the door, his stomach distended in a way that betrays his sins. Father-creature stares at me, and there’s no father left in his eyes. He makes his way to the car, taking the slow steps of a predator when they know their prey can't run. The knives of his nails scratch and screech against the glass as he drags his hand across it. When he finally shatters my last line of defense, the shards fly my way, and I feel warm blood flow from a new cut on my cheek. 
+I probably should have let it go. Pete always played the victim, always ran when things got real. But something about that voice—it didn’t sound angry. It sounded scared.
 
-Father-creature enters the car, corralling his spindly limbs inside. He looms over me and huffs out a breath. The smell of my family washes over me. He leans in close to lick the blood off my cheek. I feel his mess of teeth press into my skin,  and he’s gone. I started to cry then my throat was finally able to pass noise. sobs, full body heaves, and screams leave me. Father-creature is gone, and he didn't even have the decency to eat me. He didn't care enough to even give that effort. He couldn't finish what he started. He never wanted me. He never wants me.
+I drove to New Orleans. It took two days. By the time I got to the address left in my voicemail—an old shotgun house sagging on its foundation in Tremé—my nerves were shot. The street was quiet, too quiet. Most windows were boarded.
+
+I knocked once. No answer. I pushed the door open.
+
+The smell hit first—mildew, rot, and something metallic. The air was thick, and the room was dark except for the flickering of a single candle. On the floor, scrawled in what looked like dried blood, was a veve symbol. I only recognized it because I’d looked up voodoo symbols on the drive. This one was for Baron Samedi—the loa of the dead.
+
+Pete was sitting in the corner, shirtless, thin as a rail. He looked up. His eyes were too wide. Like they didn’t blink anymore.
+
+“I’m ready now,” he whispered.
+
+I told him we were going home. He didn’t argue. He followed me out like a stray dog. But the whole ride back to Georgia, he barely said a word. Just stared out the window, whispering names under his breath. Not words—names. Old names. Names that made me uncomfortable to hear.
+
+
+It started small.
+
+Pete wouldn’t eat. I’d cook, offer him takeout, beer, anything. He just shook his head. He started locking himself in the bathroom for hours at night. I heard him talking in there. Sometimes laughing. But when I asked, he said he didn’t remember doing it.
+
+One night I found dirt under his fingernails. Like black, wet soil. When I asked where it came from, he said:
+
+“From where I was buried.”
+
+I started keeping my bedroom door locked.
+
+Then came the animals. The neighbor’s cat showed up on our porch, eviscerated. Then a squirrel, its eyes gouged out. I found both of them placed neatly in front of my door. The same veve symbol was carved into their fur.
+
+I confronted Pete. I yelled, begged, even tried to slap some sense into him. But all he said was:
+
+“It’s not me anymore. He’s riding me now. Like a horse.”
+
+That was when I remembered something I’d read online—about riding, a concept in voodoo where the spirits, the loas, temporarily take control of a person.
+
+But this didn’t feel temporary. It felt like Pete was… disappearing.
+
+
+
+Then I found the jar.
+
+It was hidden behind the toilet tank. A mason jar sealed with black wax, bound in twine. Inside was a dark red fluid, clotted like congealed blood, mixed with hair.
+
+My hair.
+
+I don’t know how long I stared at it before smashing it against the wall. And I swear—I swear—when it shattered, I heard Pete scream from the other room. Not from pain. From rage. Like something ancient being torn out of him.
+
+I rushed in. He was convulsing on the floor, mouth frothing, eyes rolled back.
+
+He stopped breathing for a full minute.
+
+Then, like nothing happened, he sat up and grinned.
+
+“Too late,” he whispered.
+
+
+The real horror began after that.
+
+Pete started changing physically. At first it was subtle—he didn’t blink anymore, barely breathed, barely slept. But then I noticed his teeth. They were sharper. Yellowed. His skin looked like it was starting to sag, like it didn’t quite fit right.
+
+I called a priest. He refused to enter the house.
+
+I called the cops. They did a wellness check. Pete smiled politely. Told them I was paranoid. The cops left, laughing.
+
+That night, I heard dragging sounds. Long, wet dragging sounds. I came out of my room at 3 AM and saw Pete hunched in the hallway, chewing on something. It was raw meat. Not store-bought. His mouth was red to the ears.
+
+He looked up.
+
+“You always were the favorite,” he said.
+
+I tried to leave.
+
+I packed a bag and was halfway to my car when I saw the veve symbols carved into the windshield. The battery was dead. My phone had no signal. I started to panic, started pacing the driveway—until I realized I wasn’t alone out there.
+
+Across the street stood a woman, tall and gaunt, wrapped in a shawl of animal bones. She nodded once, like she had expected this all along. I didn’t know what made me cross the street toward her—fear, desperation, instinct—but she didn’t run.
+
+“You opened the gate,” she said.
+
+I told her I didn’t do anything. That it was my brother. That he brought something back.
+
+She shook her head.
+
+“He was the gate.”
+
+Then she handed me something. A small, fabric doll, hand-stitched with black thread, filled with what smelled like dirt and blood. My brother’s name was sewn into the side.
+
+“You have one chance,” she said. “Don’t miss.”
+
+
+
+
+I didn’t sleep that night.
+
+I waited. Doll in one hand, lighter fluid in the other. Pete didn’t come out of his room until nearly dawn.
+
+He looked worse than ever—bloated, skin sloughing, eyes filmed over like wax. His voice wasn’t even his anymore. It rasped like wind through dead trees.
+
+“Brother,” it said. “You stink of fear.”
+
+I held up the doll.
+
+“This ends tonight.”
+
+The thing wearing my brother looked at the doll… and smiled.
+
+“Then burn it,” it said. “Let’s see who screams.”
+
+
+
+I did it.
+
+I lit that thing and watched it blacken in my hand.
+
+Pete fell to the ground shrieking, convulsing. The air turned sulfurous. Lights exploded. The walls groaned. I thought the house would collapse.
+
+Then—silence.
+
+Just him. Curled on the floor, naked  and shaking. His skin was pale, the rot gone. His face was his again.
+
+He looked at me with tear-filled eyes and said:
+
+“I tried to stop it. But I couldn’t. I—I made a deal.”
+
+I fell to my knees. I told him it was over. That we’d fix this.
+
+But Pete looked past me.
+
+And he smiled again.
+
+Only this time, it wasn’t him smiling.
+
+
+It wasn’t over.
+
+I found him the next day in the backyard. Hanging from the tree, a noose of barbed wire around his neck. The bark beneath his feet was scorched black with another veve.
+
+The coroner said it was suicide. I didn’t argue. What could I say? That something from another world had ridden him into the grave?
+
+But here’s the worst part.
+
+The grave we buried him in? It doesn’t stay buried. Every morning I go out, and the dirt’s been stirred. Like something’s digging its way up.
+
+And two days ago… I found another jar. Under my bed. This time with my hair in it.
+
+It’s not over. Pete was just the beginning.
+
+And I think I’m next.
+
+
+If you’re reading this and you ever see a veve drawn in dirt, blood, or bone—walk the other way. Don’t touch anything. Don’t dig.
+
+Because once they ride you… they never let go.
 
