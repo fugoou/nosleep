@@ -1,221 +1,169 @@
-# I inherited my Grandad's pub, but I can't bring myself to go into that cellar again part 2
-Unfortunately, I couldn't track down any druids, Vudu queens or even a crystal toting hippy. But when I returned, I didn’t go alone. I brought my older cousin called Mike, who I guess will have to do as back up for now. Cousin Mike was originally first in line to take over the pub. The only reason I got it rather than him was because he “didn’t want the responsibility.”
+# I Found a Hidden Room in My Apartment… and I Wish I Never Opened It
+Hey, Reddit. Long-time lurker, first-time poster. I never thought I’d have a story worth sharing, but here we are. Buckle up, because this is gonna be a long one.
 
+A few months ago, I moved into a cheap one-bedroom in an old building downtown. The place had that “charming but slightly creepy” vibe—hardwood floors that creaked like they were haunted, weirdly narrow hallways, and a closet in the bedroom that was way deeper than it needed to be. But hey, rent was half what my friends were paying, so I wasn’t complaining.
 
+At first, everything was fine—just the usual old-building quirks: pipes groaning at night, the occasional draft from nowhere. Then, about a month in, I started hearing… other things.
 
-After hearing the thing from the basement make its debut. with that sickening imitation resounded from behind the door of living quarters, I screamed. Then I ran all the way out to the carpark, got in my car, and drove straight to cousin Mike’s house. Driving down the country lanes with tears in my eyes and a pounding heart. It’s a miracle I wasn't in an accident. I left all my stuff behind at the pub and showed up at Mike’s house with nothing but what I was wearing.
+It started with scratching. I figured it was mice—an old building, right? I set traps, but they never caught anything. Then, one night, I heard something *knocking*. Not like a branch against a window, but a slow, deliberate *tap… tap… tap…* coming from inside the bedroom wall.
 
+I told my landlord, who shrugged it off. “Probably just settling,” he said. But the knocking kept happening. Always at 3:17 AM. Exactly three knocks. Every. Damn. Night.
 
+That’s when I noticed something weird about the bedroom closet. The back wall didn’t match the rest of the apartment. The other walls were plaster, but this one was cheap plywood, like it had been added later.
 
-After I pounded his door like a police officer, he opened the door to me very confused. Then after his eyes scanned me and he realised the state I was in, his eyebrows furrowed in concern. 
+One sleepless night (after the usual 3:17 AM wake-up call), I grabbed a flashlight and started poking around. I pressed against the back panel, and it *moved*. Just slightly, but enough to make my stomach drop.
 
-“What happened to you?” He asked while ushering me inside. I attempted to explain as I stuttered over my words. Then I cried some more while sitting on his sofa, whole body shaking like I was freezing. Eventually, I just showed him the previous post I made. He read over it and I watched him grow increasingly disturbed by what I’d written. When he was done he looked up from my phone and stared at me like he was trying to figure me out. 
+I pulled out a box cutter and sliced through the caulking around the edges. The panel came loose, revealing a dark space behind it.  
+It wasn’t just a crawl space. It was a full room—about the size of a small office—hidden behind my closet. The air was thick with dust and something else… something sour, like old sweat.
 
+My flashlight beam landed on a metal chair in the center of the room. It was bolted to the floor, with leather straps on the arms and legs. Next to it was a small table with rusted tools—pliers, a handsaw, things I didn’t want to think about.
 
+But the worst part? The walls. They were covered in writing. Not graffiti, not random scribbles. Names. Dozens of them, scratched into the plaster like someone had used a knife or their fingernails. Some were so old they were barely visible. Others looked… fresh.
 
-“Are you fucking with me?” He finally asked, looking a little angry. 
+I recognized one immediately. Emily Carter. That was the name of the previous tenant. The landlord told me she’d “moved out suddenly.”
 
-I shuffled uncomfortably on his leather sofa. “What do you mean?”
+I ran out of there so fast I nearly tripped over my own feet. Called the cops immediately. They searched the room, took photos, and asked me a million questions. But here’s the thing: when they checked the records, there was no mention of Emily Carter ever living here. No lease, no paperwork. Like she never existed.
 
-“...Do you remember my sleep paralysis?”
+The cops left, saying they’d “look into it.” That night, I stayed at a friend’s place. But the next morning, I had to go back for clothes.
 
-“Yeah, from when we were kids, years ago. Why?”
+I was packing a bag when I heard it. Not from the wall this time.
 
-“Because this is eerily similar to what I used to hear when I had sleep paralysis. Y’know when I lived there for a bit as a kid. Then once we moved I stopped having it.”
+From the closet.
 
+Three slow, deliberate knocks.
 
+*Tap… tap… tap…*
 
-Mike had night terrors and sleep paralysis all his life. I had seen him bolt upright and scream in the middle of night many times as a child. He used to scare the shit out of me. And he’d talk in his sleep. 
+I didn’t stick around to see what was making them.
 
-“If you’re trying to be funny I don't like it. I’m not in the right state of mind for it.” I scolded him. 
+**UPDATE:** I’m staying with a friend until I can break my lease. The landlord is refusing to let me out of it, saying I “damaged the property” by tearing open the wall. Cops still haven’t found anything useful.
 
-“No, I promise I’m being serious.” I could tell by the sincerity in his voice and face that he wasn’t messing with me. Not this time anyway. 
+Oh, and last night? My friend’s dog started growling at the front door at exactly 3:17 AM.
 
-I shook my head and wrapped my arms around myself. “All my shit is back there. What am I gonna do?”
+I don’t think whatever’s in that room is staying there anymore.
 
-“Just stay here tonight, the place can survive one night without you. Do any of your employees have the key?”
+(*Would you guys want updates if anything else happens?)*
 
-I nodded. 
+**UPDATE #2:-** Hey, Reddit. It’s been a few days since my last post, and… well, a lot has happened. I didn’t expect this to blow up like it did, and honestly, I wish I could say things have gotten better. They haven’t.
 
-“Well message them saying there's a family emergency and they can run the place for the night while we sort things out. We can go to my dad’s and ask grandad.”
+After my first post, I tried to break my lease. The landlord, Mr. Hargrove, was *pissed*. He accused me of "vandalism" and threatened to sue if I didn’t pay for the "damages." When I mentioned the hidden room, he went dead silent. Then he hung up.
 
-“Oh I don't think asking him about this sort of thing will be good for his dementia.”
+I called the cops again, demanding they check the building’s blueprints. Turns out, the room *wasn’t* on any official records. The detective I spoke to—Detective Ruiz—started taking me seriously after that.
 
-Mike bit his lower lip as he thought about it, before nodding in agreement. “Yeah actually…” There was a sad moment of silence between us before Mike finally broke it. “You just sit there and watch some TV and try not to think about it for a minute alright. I’ll make you a tea.” He got up from the sofa and walked into the adjoining kitchen. 
+I did some digging of my own. The building’s been around since the 1920s, and according to old newspapers, it was once a boarding house. There were reports of disappearances in the '50s and '70s, but no arrests were ever made.
 
-I turned my attention to some talk show on the TV while Mike potted about in the kitchen. Hearing the kettle boil gave me an immense amount of comfort. 
+Then I found *her*.
 
+A woman named Lillian Hargrove—the landlord’s *grandmother*—ran the place back then. There was a small article from 1973 about a tenant who vanished. The police questioned her, but nothing came of it.
 
+I think the Hargroves have been using that room for a *long* time.
 
-My lovely bar staff were very understanding about the whole situation and ran the place for me for a bit. I felt terrible leaving them to fend for themselves. Laissez faire management isn't my usual style. I discussed with them that I might not be back for a few days and they decided they were happy to run it for me until I came back. Lying to my staff and shirking work made me feel like the world's shittiest pub owner. But Mike comforted me by telling me stories of how when Grandad first bought the pub, back when he was a younger man in the sixties, he sometimes got so hammered he had to be carried to his bed upstairs by his own patrons. That made me feel a lot better. 
+I haven’t slept well since I found the room. When I *do* sleep, I have the same nightmare: I’m in the chair, strapped down, and someone’s standing over me. I can’t see their face, but they whisper the same thing every time:
 
+*"You shouldn’t have looked."*
 
+Last night, I woke up screaming. My friend said I was scratching at my arms in my sleep. When I looked in the mirror, there were faint red marks—like fingers had been wrapped around my wrists.
 
-Mike and I asked around the family. Gently trying to get them to say if they’d seen or heard anything weird in the basement or the pub itself. They all said no for told us the usual ghost stories we’d heard hundreds of times. 
+This morning, I drove past my old apartment. There was a moving van outside. A young couple was carrying boxes inside, laughing.
 
+I almost didn’t say anything. But then I saw *him*—Mr. Hargrove, smiling, shaking their hands.
 
+I couldn’t just walk away.
 
-Aside from my youngest Aunt, called Tara. Auntie Tara is less than a decade older than me and she babysat me a lot when she was a teenager. 
+I pulled over and told them everything. At first, they thought I was crazy. Then the guy—Jake—frowned and said, "Wait, our closet *does* feel weirdly deep."
 
-“Well actually, when you were about ten, and I was babysitting all of you, I went down in the basement to steal a bottle of something because my little hoodlum friends and I were gonna go get drunk in the field later that night. Well, I went down there and everything was fine, I didn't feel any dark energy or whatever.” She giggled over the phone. “But as I walking up those steps, the old twisty ones, something wet grabbed my ankle and tried to yank me down.” She said the story in all seriousness without her usual giggly way of speaking. She finished off the story but I wasn’t really listening and I passed the phone to Mike. My mind was elsewhere in that moment as I tried not to cry from the horror of it all. 
+They promised to check it out. I gave them Detective Ruiz’s number.
 
+I thought leaving the apartment would stop the knocking.
 
+I was wrong.
 
-Tara’s story lingered in my mind that night as I lay on Mike’s sofa. Until I eventually slept. I say I slept, it was more lying in the dark trying to convince myself nothing was in it. I didn’t manage to convince myself no matter how logical I was. I had to resort to having a YouTube video essay about some weirdo on the internet on the TV, so I didn't have to sleep in the empty dark silence of Mike’s living room. 
+Last night, at *exactly* 3:17 AM, my friend’s cat suddenly arched its back and hissed at the bedroom door. Then—*tap… tap… tap*—three knocks, right on the wood.
 
+Whatever’s in that room… it’s not staying there anymore.
 
+**Question:** Has anyone dealt with something like this before? Should I get a priest? A lawyer? Both?
 
-Lucky for me Mike also worked evenings so he was able to take me back to the pub when, after three days of hyping myself up and researching demonic mimics, I felt ready. Mike himself isn’t religious or really spiritual in any sense. But I think he has good intuition and has a feeling of safety that follows him. Which some people have described as a “good vibe” or an “aura”. He has a punky and hippyish way of dressing that lends itself well to his personality. He might not describe himself as a spiritualist, but he’s the sort of person you’d take with you on a ghost hunt, if you understand. Odd things are often drawn to him. He’s also quite lucky. Which is maybe why he decided not to take the pub and let it fall to me instead. 
+*(I’ll keep updating if anything else happens. Stay safe, Reddit.)*
 
+**UPDATE #3: "I Went Back to the Apartment… And What I Found Changes Everything"**
 
+Reddit, I don’t even know where to start. The past 48 hours have been a nightmare. I’m typing this from a motel room with the lights on and the door barricaded. I think I’m being followed.
 
-Twat. 
+Two days ago, Jake—the guy who moved into my old apartment—called me in a panic.
 
+*"Dude, you weren’t kidding,"* he whispered. *"We found the room. And… there’s something else."*
 
+He sent me a photo. Behind the chair, in the corner of the hidden room, was a small door. A *trapdoor*.
 
-When we arrived at the pub, I spent some time gazing up at the old brickwork and the hanging baskets I’d accidentally let dry out. I put on what my grandad would call “a brave face”, standing tall and putting my shoulders back determinedly. I had convinced myself I was going to re-enact the scene in every horror film where the main character goes back and fights the monster in a symbolic metaphor for overcoming trauma. Although I didn’t really have any unresolved childhood trauma so I didn’t know what this monster was meant to symbolise. 
+I told him to call the cops immediately. He said they would. Then… nothing.
 
+His phone went straight to voicemail after that.
 
+I know, I *know*—worst idea ever. But I couldn’t just leave them there. I drove to the apartment, my hands shaking the whole way.
 
-Before going inside I stared out at the sea at the end of the road. It made me feel more at ease. Although, the novelty of the seaside wears off more quickly than I thought it would. One notable thing about this seaside town is that it doesn’t follow the usual pattern of coastal communities in the North Kent region. Because usually…these towns are shitholes. Most of them are packed with DFL’s (Down from London) for a few months in the summer. Then in the colder months they decline into roaming grounds for marauding chavs on bikes. Until said chavs can find work on the pier again in summer. Usually in this part of the world there’s a lot of drug abuse problems and unemployment. 
+The front door was unlocked.
 
+Inside, the place was *silent*. No furniture, no boxes—like they’d never moved in. But their car was still outside.
 
+Then I heard it.
 
-But in this town it’s always quiet and peaceful. It is admittedly mostly pensioners. I rarely see a younger person. I remember there rarely being other kids around when I came to visit as a girl, even on the beach. A sandy beach in the summer ought to be packed with children, but here it hardly ever is. 
+A muffled *thumping* from the bedroom.
 
+The hidden room looked the same—chair, tools, names on the walls. But now, the trapdoor in the corner was *wide open*. A set of narrow, crumbling stairs led down into pitch-black darkness.
 
+The smell hit me first—damp earth, rust, and something *rotten*.
 
-I looked over at Mike, who gave me a reassuring smile as I put my key into the lock. The click it made as it turned made me come out in goosebumps. As soon as I opened the door my stomach lurched and I was worried I was going to throw up. Definitely wouldn't be the first time someone threw up outside my pub. But it seemed uncouth for the landlady to be doing so at 10am on a Tuesday. 
+I almost turned back. Then I heard a *voice*.
 
+*"Help…"*
 
+It was Jake.
 
-I followed Mike inside watching him as he wandered around the bar, running his hand over the wood. 
+The stairs led to a tunnel. The walls were rough stone, like it had been dug out by hand. My phone flashlight barely cut through the darkness, but I could see more names carved into the rock. Some were so old they looked colonial.
 
-“Feeling out the space?” I joked. He smiled and rolled his eyes. 
+The tunnel branched in three directions. Jake’s voice came from the left.
 
-“Can I smoke in here?” He asked, already taking his tin out of his pocket. 
+I followed it.
 
-“Not if it’s of the herbal variety. Go smoke it in the garden please…” I waved my hand for him to take his illicit substances outside. “Wait Mike, do you think it’s a good idea to do drugs before facing off against a supernatural entity.”
+The tunnel opened into a larger chamber—and my blood went *cold*.
 
-“Yes.” He nodded with a smile, heading toward the beer garden without a second thought. I followed him. 
+Bones. Dozens of them. Piled in corners, shoved into alcoves. Some were old, yellowed with age. Others… *weren’t*.
 
+At the center of the room was another chair. Jake was in it, barely conscious, his wrists tied with rope. His girlfriend, Mia, was slumped against the wall, her mouth gagged.
 
+I didn’t see Mr. Hargrove until it was too late.
 
-As he smoked, I sat next to him on the bench and tried not to look up at the windows of the living area. I was frightened I’d see a face. Instead I looked over the plants in the pots lined up along the wall and last night’s unemptied ash trays sitting on the tables. 
+# He Was Waiting
 
-“By the way, I’m not here to face off against anything. I’m just investigating and helping you get some of your stuff.” Mike clarified. 
+A hand clamped over my mouth from behind. *"You just couldn’t leave it alone,"* Hargrove hissed.
 
-“Oh yeah sure. I didn't mean it like that anyway. Thankyou by the way.” I nudged him. 
+I fought like hell. Elbowed him in the gut, grabbed Jake, and dragged him toward the tunnel. Mia stumbled after us.
 
-“No problem.”
+We didn’t stop running until we were out of the building.
 
-“Are you scared?” I asked, when I secretly wanted to ask, are you as scared as I am. 
+This time, the cops *had* to act. They raided the apartment, found the room, the trapdoor, the tunnels.
 
-He shrugged. “A bit.”
+But Hargrove was gone.
 
-I tutted and rolled my eyes. “Always so bloody calm about everything.” I got up from the bench and looked out toward where the sea was again. I folded my arms over myself feeling a chill in the air. “Y’know I’m gonna do my shift tonight, and ask the locals if they have any clue about what could be haunting us.” 
+Worse? The tunnels *kept going*. They don’t just run under the apartment—they connect to the entire block. The cops think there could be *dozens* of hidden access points in other buildings.
 
-“Have you got a priest nearby? He might be the person to ask.” 
+I thought getting Jake and Mia out would make it stop.
 
-“There’s always a church somewhere close isn't there.” I said absentmindedly, staring out at the water, watching the waves, which were grey like the sky, sway with the wind. I found myself swaying along with it slightly. 
+It didn’t.
 
+Last night, at *exactly* 3:17 AM, my motel room door rattled.
 
+Three knocks.
 
-Suddenly, Mike grabbed my wrist. I snapped out of my staring contest with the sea and looked down at him. His mouth was parted in a shocked O shape and his eyes were wide. I hated seeing his face contorted like that. It reminded me of how he used to look when he had night terrors. That wide eyes terrified stare, seconds away from a bloodcurdling scream. But this time there was no mum, dad or granddad to come running down the hall, turn on all the lights and save us from whatever Mike had seen in our doorway. 
+*Tap… tap… tap…*
 
-“What?” My voice trembled as I asked. I resisted the instinct to turn around and see what had shocked Mike so much. I kept my eyes on him, his terror radiating off him and getting to me. Suddenly, his expression softened and he finally took his eyes off whatever he’d seen. “What?!” I asked again impatiently. 
+I didn’t open it. But this morning, there was a note slipped under the door.
 
-He looked up at me. His mouth moved but he seemed to struggle to find the words. 
+Two words:
 
-“I just….I saw a hand. O-on the window. But it was like…wet.” He managed to say. 
+*"YOU’RE NEXT."*
 
-I had to laugh. “What do you mean wet?”
+**Question:** What the *hell* do I do now? The cops have a case open, but they haven’t caught Hargrove. Do I leave town? Change my name?
 
-“Look, it left a mark.” He pointed forward.  
-
-I finally turned to follow where his finger was pointing. Sure enough, imprinted on the glass, was a wet hand print. 
-
-
-
-This should have made my blood curdle. But instead it made me angry. I was tired of this. I didn’t care who this moistened bastard was. I just wanted my pub back. I made a frustrated grumbling sound before marching over to the door and throwing it open. Angrily, I stomped my way through the pub, my steps thudding against the carpeted floor, and into the living quarters. Mike rushed after me trying to drag me back. I shrugged him off and threw the door to the living quarters open. I yanked it so viciously it bashed into the wall, leaving a dent in the plaster. 
-
-
-
-“Right!” I yelled, staring down into the dark of the cellar. “Listen!” I demanded of the creature. Then I continued. “I won't bother you if you don’t mess with me, understand?” I left a silent gap, I don’t know what I was expecting, maybe three knocks, a growl, a creepy hello again. I wanted some kind of acknowledgement. Even if the response terrified me, I’d like to know what the monster thought of my proposal. But the darkness stayed still. And it stayed silent. “When I come down there to get something, if you keep making creepy noises I’m going to buy a speaker and have it play high frequencies or some shit, 24/7! Okay?! And I’ll…I’ll hire a priest if you don’t leave me alone.” I could hear my Karen esque tone and poorly planned threats echo through the cellar. 
-
-
-
-My face had gone red from shouting. I stood at the top of the stairs shaking with rage and adrenaline. I felt proud of myself for standing up to the cellar creature and turned to Mike for a reassuring nod. Instead, his face looked pale. He didn’t even seem to notice me turn to look at him. His stare was fixed on the steps to the cellar. I followed his gaze. Along the steps one after the other, were several wet footprints. My eyes followed the footsteps down into the darkness. 
-
-
-
-The stillness of the dark was disturbed. Something was moving around in it. My eye made out a shape. As they began to adjust to the dark, I began to see it clearly. Waiting there, at the bottom of the steps, shrouded in darkness and barely visible, was something grinning at me. Its mouth was wide and wet. And smiling up at me, were two rows of numerous, tiny sharp teeth set behind pale grey lips. The lips shone with moisture. 
-
-
-
-The creature and its smile didn’t move for a while. Just stayed grinning in the dark. Breathing. Waiting. Then I saw movement, as slowly, one slimy blueish hand, which was webbed between the fingers, began to stretch itself out from the dark. It paused in the air for a second and my mind tried its hardest to decode what would happen next. Then the hand rested gently on the step above with a quiet wet thud. The creature froze again. Waiting. Breathing. Ready. So very alive. Not a ghost or apparition at all. 
-
-
-
-Both Mike and I seemed to be in agreement that if we moved, we’d trigger some sort of prey drive in the creature and it would chase us. We both knew it was down there in the dark, waiting to pounce. We stayed still. Matching the motionlessness of the monster. There was a tense fresh stillness in the air that felt as if it was going to snap. The air was also full of a damp smell. Perhaps like seaweed on a hot day at the beach. 
-
-
-
-Slowly, the hand began to recede. As the monster moved I saw the light catch its wide jet black eyes. We waited to see what it would do next. Personally, I thought I was about to die. That it was pulling back before it pounced. Playing with its food. I expected the creature to suddenly dart up the stairs and then drag me down to wherever it came from. Like it tried to do to Auntie Tara. Instead it did something I never could have anticipated. 
-
-
-
-The creature began to whistle. As it receded further down into the darkness a tune I vaguely recognised went with it. It was some kind of slowed eerie version of a sea shanty. It made my arm hairs stand on end. What I suddenly noticed, which made it all the more unnerving, was how it wasn’t moving its mouth to whistle. That stayed grinning. I couldn't figure out how it was doing it. The old stairs creaked as the creatures climbed down them. I watched as it left more wet footsteps in its wake. The wide grin was the last thing to go as the creature slowly disappeared into the darkness. But I could feel it still there, just out of view. Smiling. Waiting. I imagined the creature slinking through one of the doorways. Maybe the one I’d first heard it mimicking me from, and then go further and further down into the cold damp earth. Down to wherever those corridors ended. Or maybe it lingered right at the bottom of the stairs just out of view obscured by the absence of light. Waiting. 
-
-
-
-It was Mike that moved first, dragging me out of the pub with such urgency it hurt my arm. Once we were out onto the street I finally got a look at him. I’d never seen him so afraid. I was almost guilty. I didn't feel the same. In truth I felt calm and a little dazed. Although of course I was freaked out, in the end the monster didn’t attack us, so maybe that was its way of saying yeah sure I’ll leave you alone. Then just wanted to show off his whistling skills for some reason.
-
-
-
-“I don’t think we should come back here.” Mike shook his head.
-
-“What? What about my stuff?” I heard myself mumble. 
-
-“You stuff?” He turned to me, furious. “You just…there was a fucking monster in the basement and you’re worried about your stuff!” 
-
-“No. You’re right. Sorry.” His fear was starting to rub off on me now. Especially as we started walking further up the road. I was starting to realise that there was something that drew me to the monster. I was reminded of how I almost opened the door as a child. And how I’d almost done it again the other day. I always felt the need to get closer, to know more. I didn’t like that at all. The thought that my instincts could be numbed, affected, contorted. It was more horrific than the monster itself. To know you want to run, to know you should scream, but you can’t. It didn’t bear thinking about. 
-
-
-
-Mike stopped in front of a bench and sat down. I watched him take a deep breath and then look up at me. There was pure terror in his eyes. His eyes were dark brown like my grandmothers and that made them look all the more wide and afraid. 
-
-“Do you remember how people used to say there was a ghost of a pirate that sang sea shanties in the pub?” He asked, his entire body trembling. His words trembled too in a way that made him seem so far from the calm and stoic older cousin I knew. In his expression I saw the little boy with night terrors again. 
-
-
-
-My jaw dropped as I realised what he had said. “You think it was the creature.” I whispered, almost afraid to say it too loud. 
-
-Mike nodded that he did indeed think the creature that lurked in the basement and mimicked me, had been mimicking a pirate too. 
-
-“Well I’ve been thinking as well.” Mike began, swallowing before he spoke. “About the Victorian lady and the little boy who giggles.”
-
-“Oh my god.” I gasped, putting my hand to my mouth. “But then how do you explain people saying they see them?”
-
-“Maybe it shapeshifts. Or drunk people lie. You often find little spooky things like that have some truth in them and it gets twisted. Maybe people really did hear these things. And it was the sea creature thing mimicking people. And then they just lied about seeing things too because…well it's a good story.”
-
-
-
-Whatever has made its home in my pub basement has clearly been there long before me, mimicking people who’ve been dead for centuries now. I keep going back and forth about whether this thing is my enemy. A demonic entity. Malevolent and to be exterminated. Or whether it's a creature like any other, without human morality, incapable of evil and acting as it naturally does. I wish I knew what it wanted. Maybe it was just hungry.
-
-
-
-Mike and I are going to have to speak to our grandfather. Dementia or not I’m convinced the old man knows things he’s been keeping from us. We should probably also ask around the town. Maybe speak to the local church. I’m not really sure where to go from here. But I’m glad Mike saw the creature too. I can’t imagine carrying a weight like this alone. 
-
-
-
-I no longer live at the pub. For now. I come and I work but I’m never there alone, not even in the bar area. I really should tell my employees about the cellar but I suspect I’m already on thin ice with them over all the absences and poor management. I’ve not even been here a month and already I’ve made a terrible impression. I will say though, no one seems to have heard or seen anything when they go down there. This thing just wants to freak out me and my family for some reason. 
-
-
-
-I’ve also started having night terrors. Like Mike used to. I see the creature in my doorway at night. 
-
-
-
-It’s that smile that disturbs me most of all. If you’ve ever seen the old animated Alice In Wonderland movie where the cat’s last thing to go is his smile. It was a bit like that. But instead of singing about the mome raths, this creature’s mouth doesn't move at all as it whistles eerie tunes. It makes sounds, but it doesn’t speak. 
-
+*(If I don’t update again… well, you’ll know why.)*
