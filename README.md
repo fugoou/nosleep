@@ -1,169 +1,102 @@
-# I Found a Hidden Room in My Apartment… and I Wish I Never Opened It
-Hey, Reddit. Long-time lurker, first-time poster. I never thought I’d have a story worth sharing, but here we are. Buckle up, because this is gonna be a long one.
+# There was a strange beetle hidden in the desk of a house we were flipping. I should’ve left it there. (Part 2)
+I'm starting to freak out a [little.](https://www.reddit.com/r/nosleep/comments/1lqzt9v/there_was_a_strange_beetle_hidden_in_the_desk_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-A few months ago, I moved into a cheap one-bedroom in an old building downtown. The place had that “charming but slightly creepy” vibe—hardwood floors that creaked like they were haunted, weirdly narrow hallways, and a closet in the bedroom that was way deeper than it needed to be. But hey, rent was half what my friends were paying, so I wasn’t complaining.
+Actually, scratch that, I'm starting to freak out a lot.
 
-At first, everything was fine—just the usual old-building quirks: pipes groaning at night, the occasional draft from nowhere. Then, about a month in, I started hearing… other things.
+I keep finding the stone bug in my hand, without any memory of picking it up.
 
-It started with scratching. I figured it was mice—an old building, right? I set traps, but they never caught anything. Then, one night, I heard something *knocking*. Not like a branch against a window, but a slow, deliberate *tap… tap… tap…* coming from inside the bedroom wall.
+I lock it in my desk drawer. Twenty minutes later, I'm holding it while brushing my teeth, and I don't remember taking it out. The drawer is still locked.
 
-I told my landlord, who shrugged it off. “Probably just settling,” he said. But the knocking kept happening. Always at 3:17 AM. Exactly three knocks. Every. Damn. Night.
+I put it in the freezer, wedged behind a bag of frozen peas. I'm watching TV when I look down and there it is, clenched in my fist. My hand is numb from the cold, but I have no memory of going to the kitchen.
 
-That’s when I noticed something weird about the bedroom closet. The back wall didn’t match the rest of the apartment. The other walls were plaster, but this one was cheap plywood, like it had been added later.
+I seal it in a box, inside another box, and tape the whole thing shut with an entire roll of duct tape. I hide it in my closet, behind old textbooks. An hour later, I'm holding it again. The boxes are still in the closet, still sealed, still covered in gray tape.
 
-One sleepless night (after the usual 3:17 AM wake-up call), I grabbed a flashlight and started poking around. I pressed against the back panel, and it *moved*. Just slightly, but enough to make my stomach drop.
+I'm starting to lose it. Really lose it.
 
-I pulled out a box cutter and sliced through the caulking around the edges. The panel came loose, revealing a dark space behind it.  
-It wasn’t just a crawl space. It was a full room—about the size of a small office—hidden behind my closet. The air was thick with dust and something else… something sour, like old sweat.
+A quick search online tells me it's a Scarabaeus sacer. A dung beetle. A scarab. But not like the ones on the museum websites. Those are flat on one side and stylized, with Egyptian carvings. Mine is completely three-dimensional and disturbingly lifelike. I'm still not sure what it's made of.
 
-My flashlight beam landed on a metal chair in the center of the room. It was bolted to the floor, with leather straps on the arms and legs. Next to it was a small table with rusted tools—pliers, a handsaw, things I didn’t want to think about.
+I put it in my pocket. Not like anything else has helped. Then I head over to my parents' house. When in doubt, pretend everything is normal.
 
-But the worst part? The walls. They were covered in writing. Not graffiti, not random scribbles. Names. Dozens of them, scratched into the plaster like someone had used a knife or their fingernails. Some were so old they were barely visible. Others looked… fresh.
+I promised my mom I'd mow the yard for my dad while they go visit my sister. His knees are giving out after years of factory work, and helping them out is the least I can do for them. They *are* putting me through college after all.
 
-I recognized one immediately. Emily Carter. That was the name of the previous tenant. The landlord told me she’d “moved out suddenly.”
+I'm almost done with the front yard when my throat starts to feel weird. Tight. Like something is stuck back there. I try to swallow, but it won't go down. If anything, it feels like it's moving upward.
 
-I ran out of there so fast I nearly tripped over my own feet. Called the cops immediately. They searched the room, took photos, and asked me a million questions. But here’s the thing: when they checked the records, there was no mention of Emily Carter ever living here. No lease, no paperwork. Like she never existed.
+I turn off the mower and lean against the fence, trying to cough up whatever it is loose. But it won't come up. It just sits there, tickling the back of my throat.
 
-The cops left, saying they’d “look into it.” That night, I stayed at a friend’s place. But the next morning, I had to go back for clothes.
+Finally, I double over and hack as hard as I can.
 
-I was packing a bag when I heard it. Not from the wall this time.
+Something hits the driveway.
 
-From the closet.
+I stare down at it, my heart pounding.
 
-Three slow, deliberate knocks.
+There, sitting on the sun-bleached grey concrete, is a small, thin object. About an inch long. Jagged. Curved.
 
-*Tap… tap… tap…*
+A leg.
 
-I didn’t stick around to see what was making them.
+It looks just like one of the beetle's limbs. Same dull greenish-gray. It's wet. Slimy. There's still saliva clinging to it.
 
-**UPDATE:** I’m staying with a friend until I can break my lease. The landlord is refusing to let me out of it, saying I “damaged the property” by tearing open the wall. Cops still haven’t found anything useful.
+I stumble backward, nearly tripping over the mower. My hands are shaking as I reach into my pocket.
 
-Oh, and last night? My friend’s dog started growling at the front door at exactly 3:17 AM.
+The scarab is still there. I pull it out, turning it over in my palm.
 
-I don’t think whatever’s in that room is staying there anymore.
+All six legs are in place. None missing.
 
-(*Would you guys want updates if anything else happens?)*
+I look back at the driveway. The leg is still there, glistening in the afternoon sun.
 
-**UPDATE #2:-** Hey, Reddit. It’s been a few days since my last post, and… well, a lot has happened. I didn’t expect this to blow up like it did, and honestly, I wish I could say things have gotten better. They haven’t.
+I'm on my hands and knees, dry heaving into the flower bed, when Uncle Joe's pickup truck pulls into the driveway.
 
-After my first post, I tried to break my lease. The landlord, Mr. Hargrove, was *pissed*. He accused me of "vandalism" and threatened to sue if I didn’t pay for the "damages." When I mentioned the hidden room, he went dead silent. Then he hung up.
+"Jesus, kid, you okay?" he calls out, slamming the truck door.
 
-I called the cops again, demanding they check the building’s blueprints. Turns out, the room *wasn’t* on any official records. The detective I spoke to—Detective Ruiz—started taking me seriously after that.
+I wipe my mouth with the back of my hand and try to stand up straight. "Yeah, just... got overheated, I think."
 
-I did some digging of my own. The building’s been around since the 1920s, and according to old newspapers, it was once a boarding house. There were reports of disappearances in the '50s and '70s, but no arrests were ever made.
+He walks over, and I realize the leg is still sitting there on the driveway. But when I glance down, there's nothing there.
 
-Then I found *her*.
+"You look like hell," Uncle Joe says, squinting at me. "When's the last time you ate something?"
 
-A woman named Lillian Hargrove—the landlord’s *grandmother*—ran the place back then. There was a small article from 1973 about a tenant who vanished. The police questioned her, but nothing came of it.
+I can't remember. My mouth tastes like old pennies.
 
-I think the Hargroves have been using that room for a *long* time.
+"I'm fine," I lie. "Just need some water."
 
-I haven’t slept well since I found the room. When I *do* sleep, I have the same nightmare: I’m in the chair, strapped down, and someone’s standing over me. I can’t see their face, but they whisper the same thing every time:
+We head into my parents' kitchen, and I grab a bottle of water for me and a bottle of beer for him.
 
-*"You shouldn’t have looked."*
+As I'm cooling off in the kitchen, forcing myself to drink the water, I ask him about the house we were working on.
 
-Last night, I woke up screaming. My friend said I was scratching at my arms in my sleep. When I looked in the mirror, there were faint red marks—like fingers had been wrapped around my wrists.
+"Hey," I say, trying to keep my voice steady. "That place up on Broke Neck Ridge... What's the deal with it?"
 
-This morning, I drove past my old apartment. There was a moving van outside. A young couple was carrying boxes inside, laughing.
+"That job?" he says. "Yeah, it's a real son-of-a-bitch. One of those that looks easy at first, but turns out to be weird iron."
 
-I almost didn’t say anything. But then I saw *him*—Mr. Hargrove, smiling, shaking their hands.
+Uncle Joe isn't superstitious. He doesn't believe in ghosts or demons or the supernatural. But he does have this thing about houses.
 
-I couldn’t just walk away.
+When he says a house has "weird iron," what he means is that the place fights you. Things keep breaking. Repairs don't stick. Nothing goes right. It's like trying to patch a sinking boat with duct tape. You fix two things, and three more fall apart. The best you can hope for is to make it look decent and flip it fast.
 
-I pulled over and told them everything. At first, they thought I was crazy. Then the guy—Jake—frowned and said, "Wait, our closet *does* feel weirdly deep."
+I want to tell him about the scarab. About what just happened. But every time I try to form the words, my throat closes up. Like something is blocking them.
 
-They promised to check it out. I gave them Detective Ruiz’s number.
+"The previous owner," I manage to croak out. "What happened to him?"
 
-I thought leaving the apartment would stop the knocking.
+Uncle Joe leans against the counter, scratching his grizzled chin. "Guy just disappeared. Packed up in the middle of the night and left the house with food still in the fridge and a half-empty laundry basket by the door. Didn't tell his neighbors. Didn't leave a forwarding address. The bank repossessed the place, and I picked it up at auction."
 
-I was wrong.
+He pauses, studying my face. "You sure you're okay? You look green around the gills."
 
-Last night, at *exactly* 3:17 AM, my friend’s cat suddenly arched its back and hissed at the bedroom door. Then—*tap… tap… tap*—three knocks, right on the wood.
+"I'm fine," I say again, but my voice cracks.
 
-Whatever’s in that room… it’s not staying there anymore.
+Uncle Joe stays for another twenty minutes, but I can barely focus on what he's saying. I keep touching my throat, convinced I can feel something moving around in there. When he finally leaves, I lock the door behind him and lean against it, breathing hard.
 
-**Question:** Has anyone dealt with something like this before? Should I get a priest? A lawyer? Both?
+That's when I notice the scarab isn't in my pocket anymore.
 
-*(I’ll keep updating if anything else happens. Stay safe, Reddit.)*
+I tear my parents' house apart looking for it. I check every drawer, every cabinet, every couch cushion. I'm getting desperate when I finally find it.
 
-**UPDATE #3: "I Went Back to the Apartment… And What I Found Changes Everything"**
+It's sitting on the kitchen counter, right where Uncle Joe had been leaning, and all six legs are still attached.
 
-Reddit, I don’t even know where to start. The past 48 hours have been a nightmare. I’m typing this from a motel room with the lights on and the door barricaded. I think I’m being followed.
+I check the time and realize my parents will be back soon. I leave before they show up. This is not something I can explain to them.
 
-Two days ago, Jake—the guy who moved into my old apartment—called me in a panic.
+I clutch the scarab in my sweaty palm as I drive home, and I swear I can feel it getting warmer. The metallic taste in my mouth is getting stronger. Every few minutes, I have to pull over and spit, convinced something else is trying to crawl up my throat.
 
-*"Dude, you weren’t kidding,"* he whispered. *"We found the room. And… there’s something else."*
+I don't know what I brought home. I don't know what it wants.
 
-He sent me a photo. Behind the chair, in the corner of the hidden room, was a small door. A *trapdoor*.
+But I'm done pretending this is something I can ignore. I'm not waiting until the weekend.
 
-I told him to call the cops immediately. He said they would. Then… nothing.
+I'm going to find out who lived in that house before the bank took it. If there's a paper trail, I'll follow it. If there are news clippings, I'll dig them up. There has to be something. A record. A reason. Anything.
 
-His phone went straight to voicemail after that.
+I get the feeling that if I don't figure this out soon, something even worse is coming.
 
-I know, I *know*—worst idea ever. But I couldn’t just leave them there. I drove to the apartment, my hands shaking the whole way.
-
-The front door was unlocked.
-
-Inside, the place was *silent*. No furniture, no boxes—like they’d never moved in. But their car was still outside.
-
-Then I heard it.
-
-A muffled *thumping* from the bedroom.
-
-The hidden room looked the same—chair, tools, names on the walls. But now, the trapdoor in the corner was *wide open*. A set of narrow, crumbling stairs led down into pitch-black darkness.
-
-The smell hit me first—damp earth, rust, and something *rotten*.
-
-I almost turned back. Then I heard a *voice*.
-
-*"Help…"*
-
-It was Jake.
-
-The stairs led to a tunnel. The walls were rough stone, like it had been dug out by hand. My phone flashlight barely cut through the darkness, but I could see more names carved into the rock. Some were so old they looked colonial.
-
-The tunnel branched in three directions. Jake’s voice came from the left.
-
-I followed it.
-
-The tunnel opened into a larger chamber—and my blood went *cold*.
-
-Bones. Dozens of them. Piled in corners, shoved into alcoves. Some were old, yellowed with age. Others… *weren’t*.
-
-At the center of the room was another chair. Jake was in it, barely conscious, his wrists tied with rope. His girlfriend, Mia, was slumped against the wall, her mouth gagged.
-
-I didn’t see Mr. Hargrove until it was too late.
-
-# He Was Waiting
-
-A hand clamped over my mouth from behind. *"You just couldn’t leave it alone,"* Hargrove hissed.
-
-I fought like hell. Elbowed him in the gut, grabbed Jake, and dragged him toward the tunnel. Mia stumbled after us.
-
-We didn’t stop running until we were out of the building.
-
-This time, the cops *had* to act. They raided the apartment, found the room, the trapdoor, the tunnels.
-
-But Hargrove was gone.
-
-Worse? The tunnels *kept going*. They don’t just run under the apartment—they connect to the entire block. The cops think there could be *dozens* of hidden access points in other buildings.
-
-I thought getting Jake and Mia out would make it stop.
-
-It didn’t.
-
-Last night, at *exactly* 3:17 AM, my motel room door rattled.
-
-Three knocks.
-
-*Tap… tap… tap…*
-
-I didn’t open it. But this morning, there was a note slipped under the door.
-
-Two words:
-
-*"YOU’RE NEXT."*
-
-**Question:** What the *hell* do I do now? The cops have a case open, but they haven’t caught Hargrove. Do I leave town? Change my name?
-
-*(If I don’t update again… well, you’ll know why.)*
+My throat won't stop moving, and I'm starting to think it's not me [doing it.](https://www.reddit.com/r/nosleep/comments/1lumedf/there_was_a_strange_beetle_hidden_in_the_desk_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
