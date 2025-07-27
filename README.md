@@ -1,102 +1,34 @@
-# There was a strange beetle hidden in the desk of a house we were flipping. I should’ve left it there. (Part 2)
-I'm starting to freak out a [little.](https://www.reddit.com/r/nosleep/comments/1lqzt9v/there_was_a_strange_beetle_hidden_in_the_desk_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+# I think my favorite podcast is predicting my death
+I’ve been searching for answers and came across this subreddit. After reading some of the posts on here, I figured I might as well make an account and see if anyone could help me. 
 
-Actually, scratch that, I'm starting to freak out a lot.
+Last year I moved to a new town and knew no one. I tried going for drinks with coworkers, meeting girls on dating apps, even going by myself to the farmer’s market. It never worked out though and after months of trying to make friends or find a girlfriend, I gave up. I just didn’t click with anyone. That’s when I realized I just needed to find a solo hobby. And that’s when I started hiking on the weekends. It was great at first, I was accepting life as an introvert, getting in tune with my feelings, reconnecting with nature, all that bullshit. Really it just made me feel better about myself to be doing something I could call healthy and productive instead of sitting alone in my apartment. After a few months I had even built up some endurance and invested in a pair of quality hiking boots. I was able to do the relatively easy 3 mile trail closest to me in under an hour. I started looking for harder trails, figuring I needed more of a challenge. I guess I got what I wanted. 
 
-I keep finding the stone bug in my hand, without any memory of picking it up.
+I finally found a trail about twenty minutes from me promising a rugged 10 mile loop around a lake. Perfect. The first time I went I was ready to give up hiking. I had gotten bored halfway through and it stopped being fun. The next weekend it was either go or sit alone so I downloaded a podcast to listen to as I walked. What a game changer. The time flew by and I was mad at myself for not thinking of it sooner. Another month went by and I had been listening to the same podcast every weekend on that trail. I knew it pretty well by now, occasionally venturing off the path to explore, but I didn’t want to move on to a new place. It was actually very pretty, late fall at this point, and it felt familiar. I felt comfortable there. This last time though… earlier today... I think that really will be my last hike. 
 
-I lock it in my desk drawer. Twenty minutes later, I'm holding it while brushing my teeth, and I don't remember taking it out. The drawer is still locked.
+The air was crisp, a slight chill to it so I put on my blue jacket and set off down the trail. I pulled up this week’s episode I had downloaded last night as I walked. Pressed play, earbuds in, deep breath as I slipped the phone into my inner pocket. I readjusted my backpack, a small thing with some first aid stuff, water, and snacks, as the hosts began. All of this, before everything, I can remember so vividly. But then it gets a bit hazy. I know it happened. I know it had to have been real. But it’s all so impossible. Since I thankfully downloaded the episode, I can maybe try and figure out how to upload it and let you listen for yourselves because I know no one would ever believe me otherwise. I can’t find the episode online anywhere. It's like it has been erased and I feel crazy. But I know it was real.
 
-I put it in the freezer, wedged behind a bag of frozen peas. I'm watching TV when I look down and there it is, clenched in my fist. My hand is numb from the cold, but I have no memory of going to the kitchen.
+The hosts, Isaac and Archer, began with some introductions and the premise of today’s story. Usually they would just read a scary fictional story and throw in their opinions on it. Today apparently they would be discussing a real true crime story. I wouldn’t call myself a true crime listener but I liked these guys and figured it would be interesting if they wanted to talk about it. I could listen to them read off their grocery lists and be content. Yes, today they would be talking about a hiker found dead on a trail. I smiled at that, amused. I thought this was the perfect time for this and would make it atmospheric. I continued walking and zoned out as I listened, focusing on the dirt path and lowering my head. 
 
-I seal it in a box, inside another box, and tape the whole thing shut with an entire roll of duct tape. I hide it in my closet, behind old textbooks. An hour later, I'm holding it again. The boxes are still in the closet, still sealed, still covered in gray tape.
+There are a few paths that break off the main one and as I came up on the first one, I decided to take the left one today. I was pretty sure this one dipped down closer to the lake and would make for a nice change. As I got a few yards out they finally got to describing the details of the case. A person, unidentifiable, burned to a crisp apparently, was found on the shore of a lake. I looked up and could see the start of the water about a mile ahead of me. One of them, Archer, interjected and guessed that you’d have to be pretty unlucky to burn right next to water. The other, Isaac, scolded him for being so callous and pointed out they need to show some respect. I agreed, there was usually something morbid about the true crime story tellers. Isaac added that most likely the body was moved there anyways as police had found a blue jacket and one hiking boot further up the trail. This caused me to stumble and I almost fell but caught myself. This was making it a little too immersive. 
 
-I'm starting to lose it. Really lose it.
+I pulled out my phone to hit pause, deciding the sounds of nature were what I needed. I heard a branch snap behind me as the sound of a branch snapping played through my headphones. My breath caught and I froze. Slowly I looked over my shoulder, my neck the only part of me able to move. But there was nothing I could see. I stared off into the trees as the hosts continued talking. 
 
-A quick search online tells me it's a Scarabaeus sacer. A dung beetle. A scarab. But not like the ones on the museum websites. Those are flat on one side and stylized, with Egyptian carvings. Mine is completely three-dimensional and disturbingly lifelike. I'm still not sure what it's made of.
+One of them was now theorizing about what had happened. They said he was probably stalked on his hike until the killer found an opportunity to surprise him. I waited, frozen, for five minutes but there were no more sounds of disturbance in the brush or on the audio. I shook my head and continued walking, taking in some deep breaths. It was just an effective story and I was psyching myself out. “You’re fine Thomas, you’re fine” resounding in a whisper to myself with each step. I walked quickly and made it to the edge of the lake in no time, my heartbeat and breathing both returning to normal by the time I got there. This path was shorter than the main trail and cut back to where I started in another mile. I could have turned around right there and saved myself about an hour, but for some reason I didn’t want to walk by where I thought I had heard the noises. I debated my options as I looked across the lake. Then I remembered them saying the body was found on the edge of a lake and the fear swept over me again. I was sure I was being irrational. Weird weird coincidences. I’d come barely two miles so far, another half a mile and I could be to the turn around, on my way back. I decided that is what I would do. 
 
-I put it in my pocket. Not like anything else has helped. Then I head over to my parents' house. When in doubt, pretend everything is normal.
+The podcast had been continuing as I internally debated and subconsciously it had influenced me. They had gone back and forth with their theories. No someone must have driven the body and dumped it, no who could drag a body miles into the woods, no it must have happened out there, maybe he was burned alive, set on fire as he walked, maybe he was taken there alive and then chased through the trees and was stopped by the water nowhere else to go, no NO definitely a random hiker happened to pass by a serial killer just laying in wait. I couldn’t take it anymore and ripped out my headphones and threw them into the water. A small splash and then they were gone. And then another splash, slightly bigger, a few feet over. 
 
-I promised my mom I'd mow the yard for my dad while they go visit my sister. His knees are giving out after years of factory work, and helping them out is the least I can do for them. They *are* putting me through college after all.
+I scanned the shore around me but there was nothing, no one. The treeline wasn’t far though. Was there someone hiding there? What would they have thrown? 
 
-I'm almost done with the front yard when my throat starts to feel weird. Tight. Like something is stuck back there. I try to swallow, but it won't go down. If anything, it feels like it's moving upward.
+I couldn’t circle back because if someone was waiting that would make it too easy. I couldn’t stay here either. I had to keep going. There would be what, six miles left? I wasn’t sure if I could run that without stopping, but I had to try.
 
-I turn off the mower and lean against the fence, trying to cough up whatever it is loose. But it won't come up. It just sits there, tickling the back of my throat.
+I steadied myself and began walking slowly, each step meticulous, until I reached the tree line. The path curved upwards and away from the shore and if someone was watching, they would lose sight about here. As soon as I was in the trees I heard another noise, leaves crunching behind me. I took off. I threw off my backpack almost immediately and heard it land right behind me on the path. Another branch snapping somewhere behind me. There really was someone and they had given up on hiding. I felt lighter without the extra weight and the adrenaline made me believe I could sprint full speed for hours, but I knew that was unrealistic. I could still think clearly enough to know that. I managed to sprint another mile though and finally let myself slow to more of a jog run while I listened. I could still hear someone running but it sounded distant, more like echoes of footsteps. I knew if I stopped though I wouldn’t be able to start again. I realized I was sweating and clumsily ripped off my jacket and my phone went with it. 
 
-Finally, I double over and hack as hard as I can.
+I alternated between sprinting and jogging in a daze. I know I made good time, a personal record for sure, but it felt like years. Finally I saw the end, my car, the only one sitting in the empty lot, waiting for me. I was so close. I had left it unlocked thankfully as my keys had been in my pack and clutched the handle throwing the door open and myself inside. Once the doors locked I began shaking violently. I clutched the wheel as every muscle in my body seized and my lungs gasped for air. My eyes scanned the outside and set themselves on where I had just come from. I waited there too long but no one else came out. 
 
-Something hits the driveway.
+Once I had control over myself again I pried my fingers off the wheel and leaned over to the glove box. I was just checking for my spare key but as I reached across the passenger seat my elbow hit something. Looking down there was my backpack. I spun my head around to the backseat but it was empty. I inhaled sharply and could not let it back out. I was being watched. I knew it. I unzipped the main pouch and all my things were still inside, my phone placed on the very top. I reached inside to the small pocket I kept my keys in. There they were. I pulled them out quickly and started the car. 
 
-I stare down at it, my heart pounding.
+My foot shook and I could hardly press down on the gas enough to make it move so I creeped back onto the road, swinging my head madly, checking for any movement, any sign of someone or something. 
 
-There, sitting on the sun-bleached grey concrete, is a small, thin object. About an inch long. Jagged. Curved.
+Back on the highway the fear subsided and I began rationalizing what had happened. By the time I pulled into my apartment complex I was laughing about it, at myself, for letting it affect me like this. I had acted crazy. 
 
-A leg.
-
-It looks just like one of the beetle's limbs. Same dull greenish-gray. It's wet. Slimy. There's still saliva clinging to it.
-
-I stumble backward, nearly tripping over the mower. My hands are shaking as I reach into my pocket.
-
-The scarab is still there. I pull it out, turning it over in my palm.
-
-All six legs are in place. None missing.
-
-I look back at the driveway. The leg is still there, glistening in the afternoon sun.
-
-I'm on my hands and knees, dry heaving into the flower bed, when Uncle Joe's pickup truck pulls into the driveway.
-
-"Jesus, kid, you okay?" he calls out, slamming the truck door.
-
-I wipe my mouth with the back of my hand and try to stand up straight. "Yeah, just... got overheated, I think."
-
-He walks over, and I realize the leg is still sitting there on the driveway. But when I glance down, there's nothing there.
-
-"You look like hell," Uncle Joe says, squinting at me. "When's the last time you ate something?"
-
-I can't remember. My mouth tastes like old pennies.
-
-"I'm fine," I lie. "Just need some water."
-
-We head into my parents' kitchen, and I grab a bottle of water for me and a bottle of beer for him.
-
-As I'm cooling off in the kitchen, forcing myself to drink the water, I ask him about the house we were working on.
-
-"Hey," I say, trying to keep my voice steady. "That place up on Broke Neck Ridge... What's the deal with it?"
-
-"That job?" he says. "Yeah, it's a real son-of-a-bitch. One of those that looks easy at first, but turns out to be weird iron."
-
-Uncle Joe isn't superstitious. He doesn't believe in ghosts or demons or the supernatural. But he does have this thing about houses.
-
-When he says a house has "weird iron," what he means is that the place fights you. Things keep breaking. Repairs don't stick. Nothing goes right. It's like trying to patch a sinking boat with duct tape. You fix two things, and three more fall apart. The best you can hope for is to make it look decent and flip it fast.
-
-I want to tell him about the scarab. About what just happened. But every time I try to form the words, my throat closes up. Like something is blocking them.
-
-"The previous owner," I manage to croak out. "What happened to him?"
-
-Uncle Joe leans against the counter, scratching his grizzled chin. "Guy just disappeared. Packed up in the middle of the night and left the house with food still in the fridge and a half-empty laundry basket by the door. Didn't tell his neighbors. Didn't leave a forwarding address. The bank repossessed the place, and I picked it up at auction."
-
-He pauses, studying my face. "You sure you're okay? You look green around the gills."
-
-"I'm fine," I say again, but my voice cracks.
-
-Uncle Joe stays for another twenty minutes, but I can barely focus on what he's saying. I keep touching my throat, convinced I can feel something moving around in there. When he finally leaves, I lock the door behind him and lean against it, breathing hard.
-
-That's when I notice the scarab isn't in my pocket anymore.
-
-I tear my parents' house apart looking for it. I check every drawer, every cabinet, every couch cushion. I'm getting desperate when I finally find it.
-
-It's sitting on the kitchen counter, right where Uncle Joe had been leaning, and all six legs are still attached.
-
-I check the time and realize my parents will be back soon. I leave before they show up. This is not something I can explain to them.
-
-I clutch the scarab in my sweaty palm as I drive home, and I swear I can feel it getting warmer. The metallic taste in my mouth is getting stronger. Every few minutes, I have to pull over and spit, convinced something else is trying to crawl up my throat.
-
-I don't know what I brought home. I don't know what it wants.
-
-But I'm done pretending this is something I can ignore. I'm not waiting until the weekend.
-
-I'm going to find out who lived in that house before the bank took it. If there's a paper trail, I'll follow it. If there are news clippings, I'll dig them up. There has to be something. A record. A reason. Anything.
-
-I get the feeling that if I don't figure this out soon, something even worse is coming.
-
-My throat won't stop moving, and I'm starting to think it's not me [doing it.](https://www.reddit.com/r/nosleep/comments/1lumedf/there_was_a_strange_beetle_hidden_in_the_desk_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+I’ve been home a few hours now and the feeling of being watched has returned. I can’t rationalize it anymore. Re-listening to the audio, they had to have been talking about me. Everything was so specific. I keep thinking I smell smoke, too, I feel like I’m losing it.
