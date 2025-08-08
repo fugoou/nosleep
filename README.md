@@ -1,220 +1,94 @@
-# The Dweller In The Void
-The kids down in Raker's Cove know things the adults don't. They know the shadow lingering under their bed is the boogeyman. They know the cry of a wolf in the night is a snarling wolfman. They know the dusty old sea cave down by the shore is home to something evil. 
+# Please Never Pick Up Strange Daggers in Strange Places (Part 1)
+Rock climbing wasn’t my first idea of a good time, but when it made my girlfriend so happy, how could I not go? What could go wrong right? Really. Just one time in real life and not in an indoor simulation of rock climbing, make the girlfriend happy. Maybe see some sights, take a souvenir, get a nasty bruise to remember the trip by and then never do it again if I could help it. Anything was better than working my shitty internet IT job setting up routers and modems remotely for mostly old folks whose tech expertise extended to that of a can opener. Their willingness to learn was varied, but again, anything was better. 
 
-Growing up-we were always told to stay away from that cave, that monolithic growth sitting idly on the edge of the beach. The entrance was a tight slit that you could shimmy through with enough effort-and it quickly gave way to a cavernous chamber.
+On our way to the rock climbing place in Indian creek, Utah, my girlfriend Mia talked animatedly in the passenger seat about rock climbing techniques, how to position your hands inside the large, open cracks that jutted their way through the reddish cliff face. I was perfectly content to listen and nod along accordingly, knowing full well that I wasn’t going to make it very far up at all. I was determined to go just high enough for her to say she was proud of me, and then scurry myself back down like a disgruntled spider to watch and be supportive from the ground. Where I belonged. I always thought she was so cool for doing this sort of thing, but you wouldn’t ever catch me near a piece of climbing equipment if it could be helped. 
 
-We were told to stay away-that we could easily trap ourselves in the entrance or slip in the dank and crack our heads clean open. Of course, we smiled and nodded-and made plans to explore behind our parents' back.
+When we arrived at the climbing spot, I got out of the car and craned my neck back a little bit to take in the absolutely gorgeous sight of the soaring peaks and beautiful array of sandstone colors that painted the landscape with their dusty hues. Towering cliff faces and spiralling precipices stared back at me as I put my hands on my hips and took in the gorgeous views. Yep. I was gonna probably die today. Better than doing IT, I reminded myself harshly.. 
 
-In the school yard we swapped ideas on the true reason we were banned from the cave. Ted theorized it was haunted by the damned souls of pirates who had succumbed to the elements and died in there after seeking refuge. 
+“Danny!” Mia called from the trunk of the car, her voice laced with a wide grin, “C’mere so I can fit you with your harness.” 
 
-Jenny said her dad had said the cave had been used as a bootlegger's den-whatever that was- and gangsters had hidden their ill-gotten gains there but were caught before they could spend it.
+Definitely gonna die. I made a show of begrudgingly dragging myself over to her to which Mia snorted in amusement and patted my chest with mock sympathy, “Oh, you poor big man forced to be active for once in your little techy life.” 
 
-Ralph-a pug nosed bully with a lisp- claimed a dragon lived there- guarding a horde of gold under his belly. He suggested in the dead of night you could hear it bellowing in the wind-daring anyone to try and take it.
+“Have pity.” I begged dramatically, throwing a forearm over my eyes for extra effect, “I miss my desk chair.” 
 
-Whatever the true cause-it became a bit of a sport to crawl into the cave and see how long we could last in the dreary dark. It sounds easy enough of course, this game of dares and one-upmanship. But then you actually get in there. 
+“I’m sure you do.” She said flatly, shoving the sit harness into my stomach just hard enough to make me let out a huff of air, “Put this on, and try not to get your junk stuck in the zipper. I don’t wanna have to take you to the hospital yet.” 
 
-After you squeeze through the slit-your chest flattened as you shuffle in-and can breathe properly again, you'll find the main chamber. I'm sure there are other passages or tunnels leading deeper in, but we always stuck there- for all our talk I suppose none of us were that brave.
+“Yet?” I asked, only half nervously. 
 
-In the center of the chamber was a massive, circular pool. The water was a sparkling green-dimly lit by rays of sunshine crawling down from cracks in the ceiling. If you squinted and looked up, you could see them-along with sharpened cones pointed right at you.
+She grinned at me and shut the car trunk with a thud, going about fitting herself with her own harness. I got mine on as comfortably as one could, it was a waist harness so if you lost your footing the rope would catch and keep you suspended enough so that you wouldn’t fall to your death. She checked the clasps on the back and then started pulling me by the waist band of my harness towards the nearest cliff face. 
 
-I tended not to look up.
+Better than IT, I told myself as she secured the rope, tying several knots over and over in a particular sort of way. She chatted happily with me, explaining the clasps and what they meant. The terms Solo Roping and bolts being spoken out loud but I was too busy staring down, or rather up, the side of the ridiculously high cliff face she wanted me to attempt to climb. Before I knew it she had monkeyed her way up a stretch, and pounded in the rope and tether before scurrying back down to secure a length of rope around me and reassured me that if I fell, the knot would catch me before I hit the ground. 
 
-The cave walls themselves smelt of aged salt and felt like it to the touch. They were stained with moist reminders of the sea's past-the water long since receded into the shimmering pool.
+“And what…dislocate my hip?” I asked, tugging at the rope to make sure it was properly connected. 
 
-The game was simple: head into the main chamber and see how long you lasted till you got spooked. Again, sounds easy enough. But whatever outlandish lie we came up with about the cave was nothing compared to the simple truths.
+“Only if you don’t fall from a high place but I’m not gonna let that happen.” She smiled brightly from above, beautifully. She was like the sun, reflecting its rays back at me in a gorgeous redirection of positivity and confidence. 
 
-See we called this place "The Void Cave," no sound from the outside world could penetrate those walls- and vice versa. The only real light was the ghostly green glow of the water-like a shroud of otherworldly energy just blanketing you. That odd glow was something to do with the way sun reflected against the rocks, whatever the case it gave us the willies. All you could do was sit back against the cool feeling wall and wait it out.
+I felt like a rain cloud, but smiled back, my anxiety peaking as she spun on her heel and approached the wall. I had seen Mia climb many cliffs before, some of them even bending over her at an angle in some instances, but there was something about THIS cliff that made me extremely afraid for her. Maybe it was the fact that I was expected to climb the damn thing too that made me see it in a more intimidating light. I watched her go up, up, up, one foot after the other. 
 
-There was no reception in there-in fact tech in general seemed to fritz out once you passed the barrier. All you could do was twiddle your thumbs and listen to the sounds of the cave. It was far and few between-but droplets would fall from the ceiling. Every few minutes a *plop* would echo out-or it would hit the calm water with a *plunk,* and you could count the ripples.
+Looking far above her head I noticed something odd in the cliff. Something was shining in the sunlight. Mia had paused at this point and was looking up, squinting against the sun to look at the same thing I was seeing. Above this oddly shining rock was a slice in the cliff, an opening. I knew Mia, and by the time I had opened my mouth to tell her that I didn’t want her climbing that high, she told me: “I’m going to see what that is! Follow me!” 
 
-Seconds would melt into minutes; minutes would drag into hours. The longer you sat there the more your mind would start to trick you. You would feel the air start to stiffen around you-you'd feel something flutter past the hairs on your neck. Things would start to take shape on the walls-fuzzed dots would dance into mishappen monstrosities. Sometimes the wind would whistle in-and it would sound like raspy whispering in your ears. Mumbled words in a dead language, calling out from the dark.
+Me, being a good boyfriend, knew enough about my girlfriend’s hobby and had done it enough in practice to be slightly okay at it. But it was a requirement from the beginning as it was her passion, and my skill determined how long I was going to keep on living my life, so I followed dutifully after her, watching the ground get lower and lower with every god forsaken hoist of my body weight. I pressed myself against the hot, gritty stone, and looked up at her as a gust of wind blew by, sending a small dust cloud over us both. “You doing okay?” She called down after me. “I’m just peachy!” I called back, trying not to sound as stupid as I thought I sounded. 
 
-The isolation would eat away at you until you scrambled to your feet and scurried out of there like a frightened crab. You would be met by the jeers of your peers calling you out- and the blinding light of the afternoon sun. 
+“Whenever you say that, you aren’t peachy!” Mia called back, unperturbed at the meters of space between her and the ground, looking down at me, “Do you need to go back?” 
 
-I had gone in twice, once for twenty minutes, the second for about forty-five. I was in the lead for the longest time-Jenny and the others could only last a half hour at most. They would come out of the cave shivering and playing it up-saying the place gave them the "Heebie-jeebies."
+“NO.” I called back up at her, taking another shot at grabbing for the stubborn handhold I couldn’t quite reach, “I’M AN EXPERT.” She laughed again. Good. This was better than IT. When I looked down at the ground again after the next five minutes I came to the eventual conclusion that it actually was not better than IT, and in fact, much worse. At this point I clung to the cliff wall and breathed as steadily as I could. One misstep and I could fall. One misstep and this harness would be the thing that determined whether or not I was to keep living. What felt like miles above me, Mia suddenly shouted: “Dan! I found the thing!” 
 
-That was until Ralph went in. He was a bit of a-wide child, so I was surprised he managed to squeak in. He went in there with a cocky grin and a boastful attitude, saying he could beat forty-five easy.  He was in the void cave for a solid hour and a half at least. He was in there so long it sparked debate wither or not we should go in after him. All our attempts at calling his name were futile, the cave simply devoured our shouts.
+“What thing?” I called up at her, my voice cracking pathetically and echoing over the rocks. 
 
-Finally, he emerged, wiggling his broad shoulders out of there. He still had that cock-eyed grin, but his complexation was ghastly pale, and there was a staggered limp in his step as he waddled towards us. We crowded around him, mystified at just how long he had remained. He dared us all to beat that and took great pride in rubbing his time in my face.
+“The shiny thing!” She had disappeared from the side of the wall, and had somehow managed to hoist herself up into the crack in the cliff face. She was looking down at me on her belly, holding the object out for me to see. She was still too far away from me for me to see it properly but I squinted anyway. “What is it?” I asked, wondering if I could go down now. 
 
-I remember how pissed I was this lispy slob claimed to be the bravest-and in my wounded state I announced that tomorrow morning I would stay in there for Three whole hours. I was looked upon with awe and doubt as we left the beachfront to spend our summer-filled day elsewhere.
+“A dagger!” She called back excitedly and that got my attention almost immediately, “It’s a really cool ornate dagger. Someone must’ve lost it.” “Hold onto it!” I grumbled as I began to climb higher, determined now more than anything else to see this interesting forgotten dagger. Maybe it was worth something! Before I knew it, I was up where she was, and I scrambled pathetically into the crack in the cliff. I wiggled up beside her and she showed me the dagger, running her fingers across the expertly crafted metal. It looked like a Scottish Dirk, which struck me as immediately odd for being in the area. It looked extremely old, the blade chipped in several places and rusted over slightly after being exposed to the elements for what appeared to be months. The hilt of it was wide, and wrapped in dirty leather scraps, but the pommel was round, and bore a faded inscription that wrapped around it several times. Mia tilted it so that I could see and we both tilted our heads at it in confusion. “Can’t read it.” I said, rubbing my jaw in thought. 
 
-The next morning, my three-hour expedition was the talk of the school yard, so to speak. It had spread like wildfire, and even my younger brother Billy had caught wind of it. Billy was three years my junior, a snot nosed kid with a gap tooth and a head with a bright orange mop. Billy pulled me aside the morning off and begged me to take him with me.
+“You sure it’s not the prophecy on the One Ring?” Mia joked and I elbowed her. “Oh please,” I said teasingly, “I’d obviously be able to recognize Tolkien’s elvish the second I saw it ma’am.This just looks weird.”
 
-Billy wanted bragging rights for all his buddies you see; that he was cool enough to hang with the big kids.  He looked at me with the eyes and temperament of a baby doe, and I couldn't refuse him.
+It was then that Mia had managed to wrench her head to the side to peer behind us into the crag we had smashed ourselves into. She went silent a while and then looked back at me with wide, excited eyes. 
 
-I wish to Christ I had. 
+“It goes back.” She said in the hushed, eager voice that often came up when she wanted to do something I absolutely did not want to do, “Danny there’s a cave! It opens up behind us.” 
 
-The day Billy died was a warm and welcoming one. Not a cloud hung overhead, and the ocean was calm and drifting. Tiny waves curled up and splashed our ankles as we stood before the void cave. A crowd had gathered on the beach-kids of all ages had come down to see us achieve the impossible. 
+“We don’t have the equipment for it, Mia.” I said, fixing her with what she called ‘the look of supreme lameness’.  
 
-Billy was bouncing up and down the beach, pumped up to set the unbeatable record. I had a fleeting moment of hesitance-but as the growing crowd cheered us on, I stuffed it down and began my descent. I went first sucking my gut in as I slide through the crevice. It was a slow and steady shuffle, careful not to cut my checks on the stoney surface. The cheers began to fade the deeper I went and were cut short when I entered the main chamber.
+She frowned at me in response, her cheeks puffing out in a you-never-wanna-have-fun kind of way, but let’s be real here, I was just trying to keep us from getting hurt. Caving was no joke. People got stuck, or lost in caves, and they died. There was a story I read a long time ago on the internet called Ted the Caver that had absolutely destroyed any and all of my already nonexistent willingness to descend into ANY subterranean space. Not to mention that one caving incident where a man got stuck upside down in a crevice and died there waiting for help. I’d be damned if I let Mia die like that. She had a free spirit but by no means was I going to let that spirit lead her to death. 
 
-Billy had an easier time shuffling through, he was half my size and scrawny for his age. I noticed the look of confusion on his face when he popped out-the sudden quiet immediately unnerving. In front of me the eerie glow of the center pool beckoned to us, but I grabbed Billy by the wrist and sat us down a few feet away.
+“We need to go back down.” I said, beginning to pull my body over the ledge and back down onto the cliff face. She wriggled her arm from its awkward spot and grabbed my sleeve, tugging me back towards her. 
 
-The floor of the chamber was oddly smooth-like freshly cut sandstone. Billy plopped down next to me, his eyes darting around the chamber. He turned to me- confusion in his face
+“Please, Danny.” She was really pushing this, the knife still held in her other hand, glittering tantalizingly in the light. My eyes fell on it again and I can’t exactly explain why but I started to believe that it would be fine if we just…wriggled in a little ways to see what would happen. Maybe we were at the site of some kind of archaeological discovery. Maybe we had found a secret cave entrance that was some kind of important site for ancient people of the area. 
 
-"Is this it?" He sounded disappointed. 
+I doubt they’d have Scottish style daggers though. 
 
-"This is it." I confirmed-staring blankly forward. The center pool was completely still, the edge lime green and sparkling. I didn't dare gaze down into the inky void it held. Jenny confided in me once she had dropped a quarter in there once-it vanished from sight instantly, the drink swallowing it whole.
+I looked into her eyes and made a big show of sighing dramatically before I relented with a nod, and Mia wiggled over the distance between us to kiss me softly in thanks before turning all the way around and facing the dark inside of the cave. 
 
-The minutes began to drip as we sat in silence. Billy sighed and drummed on his knees while I zoned out-hoping the time would simply fly by. Occasionally something would drip into the pool or something would bubble up. I could make out faint shapes near the surface-little pockets of air come up as they swam around. I felt Billy's boney elbow in my ribs, and I resisted the urge to smack him one. 
+“Can you reach into my backpack and pull out the flashlight?” She asked, and I obeyed, struggling in the cramped space to really move at all. She had more mobility than me since she was significantly smaller, and I handed her the flashlight. She clicked it on and shone the beam of light deeper into the cave. It seemed to narrow on all sides into an odd little hole near the back. She then began to army crawl her way deeper. 
 
-"What?" I hissed at him.  I happened to glance at my stopwatch-only twenty-five minutes had passed. 
+Some instinctual part of me thought it would be best to just…change my mind. Even if I ended up sleeping on the couch or not getting affection for a while from her it would still be better than whatever was deeper in this cliff cave. Anything was better than losing her, but the light off the dagger in her hand bounced tantalizingly, like a beautiful thing I couldn’t reach, so I followed. Dutifully I followed her like I had always done since the very beginning of our relationship.  
 
-"Why do they call it the "boid cave?' He whispered. I rolled my eyes at the flubbed "V"
+Near the back of the tunnel, the hole looked different. It had looked small when we first saw it from the front, but now it looked barely passable as a hole at all. It looked more like a generous crack in the wall. I watched as she began to wriggle through with no trouble but as I watched more and more of her body disappearing into the crack I had this panicked urge to grab her leg and pull her back to safety. “There’s a room!” She called excitedly, her voice reverberating off the stone walls.Then, before I could move properly, her feet had slipped through and I could only see the frantic light of her flashlight flashing over the walls as she seemed to be able to stand up. 
 
-"Void-V-v-v Void." I teased as he slugged me in the arm.
+My turn. 
 
-"Whatever-why do they call it that?" He repeated.
+I began to squeeze through after her, grunting with effort and feeling the air leaving me as I pushed through the crevice. I had to turn my body sideways to fit my shoulders through and push with my legs. When I was halfway through, she reached down to play with my hair gently. She was sitting cross legged next to the hole, smiling happily with the flashlight beam under her face. 
 
-"Because no sound comes out-no sound comes in. You haven't noticed we can't even hear the waves crashing?" I said. He mulled that over. He then cupped his hands over his mouth and leaned towards the crevice.
+It made her look slightly psychotic. 
 
-"Hey Jenny- Tommy's got a hUGE CRUSH ON YOU!" He screamed. My face flushed with crimson panic and became as hot as a steaming kettle. I pushed him down as he burst out laughing, the thud of his fall bouncing against the walls.
+“Are you having fun?” I asked her in a breathless voice as the rock pushed against my back and chest, restricting my air intake slightly and making me kind of panic. 
 
-"Dude shut up." I growled at him. He rolled around on the smooth stone floor braying like a donkey, finally he sat up-wiping tears from his eyes.
+“So much fun!” She said, leaning down to kiss my sweaty cheek, “This is so awesome.” 
 
-"But I thought you said sound doesn't leave the cave." He said in a mocking tone. I shoved him once more and sulked against the wall-still red as a tomatoe. 
+“Yeah? Well…” I grumbled, getting my arms through and catching myself before I fell on my face, “I’m glad one of us is having a good time.” Her face fell slightly and she reached out to help me the rest of the way. I laid on the dirty ground for a minute in my back, trying to catch my breath and thinking about how if we’d need to make a quick exit I would probably get stuck in there if I wasn’t concentrating properly on movement. 
 
-"Not the point dillweed." I grumbled. He giggled to himself a few moments more before settling down, and the booming silence returned. Time began to slip by as the cavern walls seemed to get closer with every passing moment. I knew it was just my mind tricking me-but every creak and wind crawling through the rocks sounded like venomous whispers. At times I swore I felt icy breath on the knap of my neck, I gasped and clasped my hand-finding nothing there of course.
+Quick exit? From what? She leaned over me, hands on her knees and tilting her head. 
 
-Billy seemed to be doing better with the extreme silence-but I could tell he was bored. His face was slumped, and he was hunched over, head in his bouncing knees. At one point he got up and began pacing-loudly humming this annoying tune to himself. I watched him entertain himself for a while, the cave filling with that annoying hum-it sounded like a mix of "*Take me out to the ballgame*" and "*My Fair Lady*."
+“You okay?” She asked softly. 
 
-Of course, we both grew tired of that, and Billy collapsed onto the ground in a sprawl. He was a couple feet closer to the edge of the pool. He looked at me with-boredom forever seared into his face.
+“Yeah! Why wouldn’t I be?” I replied nonchalantly, trying not to be the downer she always claimed I was. I had always been the careful one, the nervous one, the scared one. It had been a source of contention in our relationship for a long time and I couldn’t help the fact that I had anxiety. Just because I wasn’t as outgoing as her didn’t mean that I was any less fun. Just because I was careful didn’t mean I wasn’t capable of having a good time. I looked up into her beautiful face and managed a shaky smile. 
 
-"How much longer?" He whined. I glanced at the stopwatch-One hour and fifteen minutes.
+“You’re freaking out aren’t you?” She asked, helping me sit up. 
 
-"Halfway there." I said to him as he groaned. The faux whispers around the stalactites began to slow to a crawl-and finally nothing was heard in the cave save for our exhausted breathes. I felt a pit in my stomach start to form-my pulse quickened but I wasn't sure why. Something was amiss- I could feel it.
+“Not yet.” I sighed, tired of this conversation. 
 
-I glanced around the room and found nothing but the familiar shadows of the pool dancing on the walls. They mocked me with gaping jaws and gnashing teeth-I could feel the walls laughing at me-telling me it was too late now, and I was trapped here forever. They surrounded us you see-these shadows. They were circling around us like we were the main course at a feast.
+I pushed myself to my feet and she began to shine the flashlight through the room again. It wasn’t so much of a room as it was a sort of natural chamber. The air in there was very still, but fresh since it had a direct link to the outside. The floor was windswept near the hole, and now that I could reach my backpack I pulled out my own flashlight to observe the area. I shone it back towards the way we had come in and paused as I noticed something weird about the way the rock looked from this side. There were scuff and scratch marks on the stone beside the crack that looked uncomfortably like marks made from desperate hands. Darker stains in the dirt arched around the hole like someone was struggling to get through from this side… 
 
-I knew it was just my mind playing tricks on me-my brain trying to freak me out enough so I would book it out of this bizarre place. I had to tough it out though-just so I could rub it in Ralph's face. Come to think of it-when I first proclaimed I was gonna outpace him, he got this odd look on his face. Not annoyance, more like a nervous twitch.
+I really needed to stop reading scary books before bed. It was probably from animals. 
 
-In fact, I hadn't seen him on the beach this morning. My eyes wandered around the walls, and I could make out strange etchings and carvings. Didn't phase me at first-we all had taken a pocketknife in at some point and carved out initials in. Proof we weren't cowards.
+“Look!” Mia said in a voice pitched up in excitement, “Look at that doorway!” 
 
-Other names and initials were graffitied onto the walls as well- I could barely make them out in the silent dark. Vulgar drawings and sprayed things like "*Jonesy was here*." and "*Mark sucks dick*." I laughed at the crude words of those who came before-probably teenagers who were just of bored in our small town as we were.
-
-On the far edges of the wall were cracked and dusty drawings-they looked ancient and were carved into the cave walls with the precision of a surgeon. There was some weird language accompany the crude stick figures-who were locked in eternal combat with fishy looking beasts. It was something to the effect of detailed squiggly lines.
-
-To this day I don't know what it said-or what language it was even in. It looked old-that's all I can really confirm.
-
-We were half the past way point now-and the dreaded quiet was starting to get to me. It had been twenty minutes now, and even the dripping was gone. Billy was still sprawled on the floor-which I noticed was a tone of pearl white. A stark contrast to the shades of green and stained black on the walls. Billy snapped his head towards me- a frown on his face.
-
-"What'd you say?" He mumbled. I looked at him dumbfounded. 
-
-"I didn't say anything." I replied. He rolled his eyes at me and turned his back-gazing at the ever still pool. After he a few moments he sat up again and snapped towards me, anger in his eyes. 
-
-"You did it again-I'm not going over there the water smells rank." he said with disgust. 
-
-"What are you talking about?" I squared my face at him. 
-
-"You keep telling me to go to the water." He complained.
-
-"I haven't said anything in like forty minutes."
-
-"Uh-huh, you're just trying to scare me. It's not gonna work." He pouted as he turned away from me. 
-
-"Whatever." I said under my breath. With the bickering over with, we resumed our solitary waiting. We were past the halfway point now-In theory we could have left with our heads held high.
-
-We could have.
-
-We should have. 
-
-In a blink Billy groaned in annoyance and shot up like a weed. He waltzed over to the edge of the pool, turning his back to it as he plopped down to face me.
-
- "There-happy? I'm at water." He brayed. 
-
-"Bill, I don't know what you're talking about. Be careful you don't fall in." He waved his nose at me as he turned around and dangled his feet. He was wearing these Velcro things that lit up with red and blue flair-he liked to run laps around the neighborhood at night-a blur of color in the stark darkness.
-
-From the far side of the chamber, I heard light splashing as he kicked his feet. I counted the ripples from each impact as they scattered the surface. The splashes echoed around the chamber-the sound so dense it was like a stinging in my ear among the silence. Billy titled his head down towards the murky deep.
-
- "It's really dark. How deep do you think it goes?" He asked. 
-
-"Ends of the Earth-right down to the core probably." I confidently replied as Billy snorted. 
-
-"I bet if you jumped in-it would take you like- a billion years to reach the bottom." He mused. 
-
-"I don't think you could hold your breath that long bud." I laughed. 
-
-"Probably n-" He stopped mid-sentence. He was looking straight down-he had stopped kicking even. He sat there frozen, staring at-something. I glanced up, noting just how close to the edge he really was. I also noticed he was trembling-the air in there had chilled dramatically.
-
-He looked like he was about to turn and run-but he became a blur as something yanked him into the water. He managed to get out a small yelp before he went under, and the only sounds were splashing and gurgles.
-
-For a moment I couldn't believe it-then I scrambled up and raced to the edge.
-
-"Bill-BILLY" I screeched at the pool. I looked down and saw nothing, no trace of him in the ink. God, I had never actually looked that close before-it the water seemed thicker the further down you went, like an oil well.
-
-Then I saw it, a faint flash of blue and red, fading rapidly as it was pulled down into the depths. Without hesitation I jumped in. The water was colder than ice-if it weren't for the sheer amount of panic and adrenaline flowing through me, I think I would have went into shock then and there.
-
-I squinted-eyes stinging from the salty brine I found myself in. I wish I could describe just how empty that pool felt-it was devoid of anything. As I dived deeper, it felt like I was swimming in a bottomless pit. The green glow faded, and the walls were nonexistent, there was only me and that fading light.
-
-My lungs began to burn as I dove deep, struggling to keep the lights in view. I could feel the sting of rancid salt prying at my eyeballs as my vison became cloudy. Soon enough-what little hope of my brother's lights sank away.
-
-I clawed at my chest, my throat, I had to get out of there. I swam upwards, arms stretching towards the surface. It looked like an otherworldly portal-that lime green glow, what little sunlight shone. I heaved myself upward, as voices called out to me from the deep. They were all around me, hideous, angry things. They demanded I stay below with them- called me a coward for leaving Billy behind.
-
-It was all in my head-it had to be right? I felt something tug on my feet as I pulled myself towards the light-lungs bursting out of my chest. The pressure was obscene, my head throbbed and told me to just let it happen. A thousand wandering fingers seemed to claw at me from all sides, trying to drag me back down below and seal my fate.
-
-I pushed it all away as I rushed upward, breaching the surface with a thunderous gasp. I thrashed my way to the edge, coughing up the black liquid. The water seemed to cling to my body, it was this vivacious slime that stank like bile and decayed minerals. I grasped the side, huffing and puffing as I caught my breath.
-
-With a grunt I heaved myself out of the water, clothes dripping and clinging to me as I crawled along the floor. I collapsed and held back tears of anguish, rubbing the hate out of my sullen eyes.
-
-He was gone-I think I knew it the second he hit the water.
-
-He-he fell and hit a rip current or something, it was pure luck I didn't get grabbed.
-
-Grabbed, no that was the wrong word for it. There was nothing down there, it was absurd. My mind playing its sick games with me, making me think I was surrounded by snickering beasts trying to drag me to a watery grave.
-
-I looked back at the pool. It was bubbling with foam and churning water, as a massive shape loomed at the surface. I crawled away in horror at the thing. A pair of long, gangly limbs shot out from below spraying the icy drink everywhere. They clasped to the ground with an angry thud.
-
-I struggled to call them arms, because while it had massive four fingered hands, the limbs themselves seemed-blurry and unfinished. The limbs were coated in a sloppy, mucus membrane that oozed onto the floor. What you could call the flesh of this thing was just melting off its skeletal body, I could see fossilized bones and decayed tissue clinging to them.
-
-Another pair of sickly limbs emerged-as a soothing yet crackled voice spoke. It was booming in my mind; it felt like my head was going to split open with every throbbing word. 
-
-"Come to the water, Tommy." It spoke as the second pair rested at the far end of the pool. A massive hump of something clung to the surface, this groaning noise echoing across the cave, shaking the walls with the cries of this lumbering beast.
-
-A third pair now, gripping the front edge facing me. Skeletal fingers clasped the end-the sludge flesh falling off them in clumps-becoming one withe sea as it fell with a splash.
-
-The head of the great leviathan began to rise. It had brilliant blue diamonds for eyes, four on each side of its triangular skull. Mounds of its oily hide fell to the side as it rose. It seemed to unhinge its jaw like a snake-and I believe in its gaping maw I saw hell that day.
-
-It was cold and dark, an unending void this serpent held. From his bottomless gullet I swore I heard Billy crying out for me, begging me to come save him. 
-
-"Come swim with me child, bath in the eternal dark with me." It tempted. It leered over me-emitting a guttural growl as I felt its eight sparkling eyes stare at me hungerly.
-
-The ground around me became warm as I stared into hell-and I screamed and screamed, my cries lost to those outside this cave of the damned.
-
- I don't remember how I escaped the clutches of that thing. My memory of the next three days after that is very fuzzy actually.
-
-I'm told I did not emerge from the crevice on the beach. The crowd eagerly awaited the full three hours, amazed at our commitment. When three became four panic began to spread amongst the crowd-yet no one could muster the courage to go in after us.
-
-It was only when someone spotted me up the beach standing among the waves did the horror set in. I was halfway down the shore, standing there covered in oily mucus looking dead eyed at the receding tide.
-
-As they rushed towards me, they saw I was holding a soggy, worn-out shoe. It was small, and dull lights struggled to blink on the sole.
-
-Police were called and our parents soon became wise to our summer game. They searched the cave and found no trace of Billy or the decaying serpent that lurked below. They trawled the shore, a body was never found, nothing of his ever washed up. Save the lonely shoe-no trace of Billy remained.
-
-When I was finally lucid enough to explain myself-I screamed at the cops that Billy had been taken by the horrid thing. They refused to believe me of course.
-
-The shrink I was dragged to explained that the trauma of seeing Billy fall in and get washed away by the current was too much. I had concocted this whole elaborate "sea monster" tale to hide my trauma and lessen a guilt-ridden mind.
-
-Afterall-I was the older brother, he was my responsibility. A fact my parents never let me forget.
-
-As school started in the fall- I would get whispered looks and accusing glances from my peers. When I got older- I learned the town gossip was that I had drowned Billy, and parents warned my friends to stay away, or they would be next.
-
-Kids can be cruel-adults more so.
-
-My childhood became a friendless husk filled with shame, and that nagging guilt followed me all the way to college.
-
-Ironically only Ralph treated me with kindness. Sometimes he would sit with me at lunch, and we would give each other knowing looks in the hall.
-
-This was ten years ago-and the pain of losing Billy still lingers like a nail in my heart. My current therapist suggested I write all this down-it would help me break through the fiction and see fact.
-
-Looking at it now-it all feels hollow.
-
-Who knows-maybe they're right and I'm just crazy. Maybe I did conjure up this elaborate fantasy to shield myself from the truth.
-
-Afterall the adults in Rakers Cove know things the kids don't you see.
-
-We know the boogeyman creeping under the bed is just a passing shadow.
-
-We know the wolfman stalking the forest is just a lonely wolf.
-
-We know that old cave down by the shore is just that-and nothing more.
+I followed her beam of light to find that there was indeed a doorway. Man made. It had wooden beams on the sides and top with supports. Further beyond it was a tunnel that curved at an angle, seemingly chiseled out of the stone itself by tools. The urge to grab Mia and shove her right back out the crack was mounting as I watched her stride confidently through. I took one look back at the crevice that led to the outside world, before following after her. Dutifully, Faithfully. As always. 
