@@ -31,7 +31,7 @@ jobs:
       - name: Commit and push changes
         run: |
           git config --local user.name "fugoou"
-          git config --local user.email "xchillds48@gmail.com"
+          git config --local user.email "me@n4x.moe"
           git add README.md
           git commit -m "nosleep for $(date +'%Y-%m-%d')"
           git push
