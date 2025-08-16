@@ -1,26 +1,258 @@
-# Do NOT stop to help the people inside the burning car in the Stevens tunnel. Drive away and live with the guilt.
-I know what you're thinking. What kind of sick, emotionless person is this guy? He wants us to pass a burning car and potentially leave people to die? Yes, I do. Perhaps you can take solace in the fact that these....*things* in the car are already dead. Hell, I don't even think they are even *human.* And now, they've claimed my girlfriend.
+# I Used to Think Nightmares Ended When You Woke Up
+I woke one morning drenched in sweat, my heart hammering against my ribs like I’d been running for my life — but I hadn’t moved.
 
-It started off as a normal trip. We loaded up my truck Friday morning and we headed due west. We would drive to Cali, spend a few days on the beach and drive back.
+My skin felt… wrong. Not just clammy. Wrong. Like it didn’t belong to me anymore.
 
-Around 10pm we entered a tunnel. All of a sudden, in the left lane, a small red sedan sped past going *way* too fast for the curvy tunnel road. Within seconds of it disappearing from sight, there was a loud terrifying bang. My girlfriend Sarah woke up from her nap instantly. "What was that" she asked. "Call 911" I said, accelerating to try and get to the crash site "Someone just got into a horrible accident".
+Even the sheet on my chest felt off. Heavy, like it was trying to hold me down.
 
-We pulled up to a horrifying scene that is now the beginning of my nightmares. The car was horribly smashed, debris scattered all around the tunnel, a tire still rolling away. But the biggest concern was the car itself which was already engulfed in flames. Sarah, ever the hero, was out of the truck immediately, sprinting towards the burning wreckage. "Wait" I shouted, grabbing her phone from the dash which had connected to 911.
+I lay still, listening to my ragged breathing — and then I heard another.
 
-As I got closer to the car, I saw hands pressed against the passenger side window. There was a woman's  face behind those hands but it....was not human. Her face was white, too white. She didn't seem to be panicking. In fact, she was....smiling. "Sarah" I shouted. "Somethings not right"
+Softer. Slower. Not mine.
 
-"Obviously" she yelled back, "the damn car is on fire"
+I froze.
 
-I tore my eyes away from the hellish scene in front of me. Sarah was trying to get into the rear seat, which was not engulfed yet. "Sarah" I shouted, feeling even more uneasy about this whole thing. Something was truly wrong, and it *definitely* wasn't that people were stuck in a burning car.
+The ceiling above me didn’t move, but I could feel it watching.
 
-"Just stay on the phone with 911, Sam" she yelled back. "I got this". At this point, the 911 dispatcher was trying to figure out how many people were in the car. When I looked back at the passenger side seat, the woman from hell was.....gone. My first thought was that she passed out and had slumped over in the seat, so, despite my instincts telling me to run away, I sprinted closer to the back door to join Sarah.
+Then the room began to change.
 
-"Sarah" I said, catching up to her, "Do you see the woman in there"
+It started in the corners — blurring, softening, like heat rising off asphalt. My chest tightened. I couldn’t tell if I was waking up… or slipping away.
 
-"I....don't know" she said, turning back. "You're right, somethings off here".
+And then I wasn’t in my room anymore.
 
-"Help is 5 minutes out" I said. "It's too late now to go in without protective gear and hoses, we have to wait for the fire department".
+I didn’t blink. I didn’t black out. I just… wasn’t there.
 
-Suddenly, a scream erupted from the flames. In the instant that my beautiful girlfriend turned back, a hand grabbed her by the throat and yanked her back. I yelled and ran towards the flames but she was nowhere to be found. Then, all of a sudden, the hands appeared on the window again. Except this time, they were not some random woman's....
+The darkness I landed in wasn’t empty.
 
-They were my girlfriend's.
+It was aware.
+
+It knew me.
+
+I felt it crawling over my thoughts, peeling back memories I thought I’d buried forever.
+
+Then the smell hit.
+
+Sweet. Rotting. Like overripe fruit baking in the sun.
+
+My stomach lurched, and something thick rose in my throat. I turned to spit, but there was no floor.
+
+Maybe there wasn’t even a me.
+
+Then I started to fall.
+
+Not down. In.
+
+I landed on something wet, warm, and beating.
+
+A heart.
+
+Something unseen moved over me — through me.
+
+Not bugs.
+
+Thoughts.
+
+Thoughts that weren’t mine.
+
+They slid into my head and sifted through my memories, touching every cruelty, every regret I thought I’d forgiven myself for.
+
+Whispers rose all around me.
+
+Not words — intent.
+
+Then the black rain started.
+
+Slow, syrupy drops that went through my skin, nesting in me.
+
+I tried to scream, but only static came out.
+
+I thought: This must be death.
+
+Then another thought: No… this is worse.
+
+A voice bloomed inside my skull, soft and certain:
+
+“Wake up.”
+
+And I did.
+
+I bolted upright, gasping. My lungs burned. The ceiling fan spun lazily above me, sunlight leaking through the window.
+
+But everything felt… off.
+
+The air too thin. The light too flat.
+
+Hours later, I saw the scratches on my ankle. Thin. Deliberate. Not bleeding.
+
+A reminder.
+
+In the bathroom mirror, my reflection seemed… delayed.
+
+My eyes were shadowed, sunken, and there was a dark smear beneath one that wouldn’t wash away.
+
+When I stepped back into the bedroom, my foot landed near something wet.
+
+A small, bare footprint.
+
+Not mine.
+
+Then the smell returned — sweet, spoiled.
+
+
+---
+
+I didn’t sleep.
+
+I lay in bed staring at a ceiling I didn’t trust. The corners stretched if I blinked too long. At times the fan slowed.
+
+At times I heard that second breath.
+
+And at times, I didn’t remember lying down at all.
+
+Every morning I asked myself the same thing: Was it real?
+
+And every morning, something inside me waited too long to answer.
+
+
+---
+
+One night, I hovered.
+
+My body refused to move. The walls pulsed with a heartbeat that wasn’t mine.
+
+Around 3 a.m., I blinked — and the room blinked back.
+
+Then I was gone.
+
+No falling. No flying.
+
+Just nowhere.
+
+Weightless. Grey.
+
+My body a memory.
+
+Then the screaming started.
+
+Far away but endless, a thousand voices overlapping like a choir underwater.
+
+I knew them. All of them.
+
+They were mine.
+
+Different ages. Different mistakes. Moments I thought I’d buried.
+
+A figure appeared.
+
+Tall. Flickering at the edges.
+
+No face. No eyes.
+
+Just attention.
+
+It didn’t walk. It didn’t float.
+
+It just happened.
+
+Chains slid from its shape like unspooling memories.
+
+One brushed my arm — if I even had an arm — and I froze.
+
+Not from fear.
+
+From recognition.
+
+“Stay.”
+
+My own voice.
+
+
+---
+
+When I woke again, the world was… wrong.
+
+The mirror hesitated before following me.
+
+The floor curved at the edges.
+
+My shadow leaned toward me.
+
+I dropped a mug just to see it shatter.
+
+It didn’t.
+
+It sank.
+
+The hallway stretched too far.
+
+The front door kept retreating.
+
+I understood then.
+
+I wasn’t dreaming.
+
+I was drifting.
+
+This time, I didn’t fall.
+
+I arrived.
+
+A field. Empty, yet alive.
+
+Memory sprouted from the dirt.
+
+Scarecrows with my face bent toward me, their straw-stuffed mouths whispering my own regrets.
+
+The sky cracked.
+
+The figure stepped through, chains twitching like they were eager to hold me.
+
+It didn’t look at me.
+
+It didn’t need to.
+
+“You never left,” it said, in a voice I’d once loved.
+
+And I believed it.
+
+The chain wrapped around my chest, cold and familiar.
+
+The world folded.
+
+
+---
+
+Now I wake to darkness.
+
+No ceiling.
+
+No room.
+
+Just the echo of someone I used to be.
+
+A single pinprick of light hovers far above, like a thought I can’t reach.
+
+My scream spirals inward, joining the others.
+
+Yes.
+
+The others.
+
+Versions of me.
+
+People I loved.
+
+People I feared.
+
+Suspended.
+
+Remembering.
+
+We wait.
+
+And sometimes — when the veil goes thin, when the world blinks wrong — we reach through.
+
+We borrow your eyes.
+
+We borrow your dreams.
+
+And we wait.
