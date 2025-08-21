@@ -1,207 +1,158 @@
-# …and three insist he’s still there.
+# Void of Terrors
+The sterile scent of the Mars One shuttle’s interior was a constant companion, but it never quite masked the memory of Earth. Leaving home wasn't easy, even for a quiet guy like me. My single mother, a woman who had taught me everything from astrophysics to how to make a decent grilled cheese, hugged me tight. “Be careful, Jacob,” she’d whispered, her voice a fragile thing. I nodded walking off and posed for the cameras with the rest of the crew, a forced smile plastered on my face. This was it, the first manned mission to Mars. NASA had already laid the groundwork with AI drones, building a base just waiting for us. The Mars Rover, a relic of past ambition, would be there to broadcast our landing, a symbol of humanity's reach. Commander Evans, a burly man with a booming laugh and an ego to match, clapped me on the back. “Don’t forget the line, Jacob,” he’d joked, “ ‘One small step…’ ” I just rolled my eyes.
 
-It’s a decades-old joke. Cliche “boomer humor”. Probably been told almost as long as there’ve been telephones to call. It basically goes like this:
+The launch was a controlled chaos of rumbling and shaking, a symphony of raw power that vibrated through my bones. I’d run the simulations a thousand times over; I knew this beast and made no mistakes. No troubles. Once we cleared Earth's embrace, the autopilot took over, a digital nanny for the next five months.
 
-“A woman doesn't come home one night. The next day she explains to her husband that she slept over at a friend's house. The husband calls his wife's five best friends. None of them know anything about it.
+The weeks ahead blurred into a monotonous rhythm. I spent my time in the cockpit, running diagnostics, checking systems, anything to keep my mind engaged, occupied from the desolate emptiness we were hurling through. My other crew-mates, a lively bunch, often tried to pull me into their card games, but I preferred the quiet hum of the ship. The desolation was calming. Evans, though, was a different story. He’d stomp into the cockpit, barking orders, reminding me he was in charge. “Jacob, status report! Are we still on schedule? Any inconsistencies?” he’d demand, even though the autopilot handled everything. He was a good commander when it mattered, I guess, but a bit of a dick when there wasn't a crisis.
 
-A man doesn’t come home one night. The next day he tells his wife that he slept over at a friend’s house. The wife calls her husband's five best friends. All of them say he had slept over, and three claim that he was still there.” 
+The crew was a mixed bag of personalities. Dr Remieres, our medical officer, was usually a calm presence, her dark eyes always full of a quiet understanding. Then there was Samuel “Sam”, our Chief Engineer, a gruff but brilliant man with grease perpetually under his fingernails. His second-in-command, David, was younger, quieter, and always seemed to be in Sam’s shadow. Our biologist, Lena, was perpetually excited about everything, her infectious enthusiasm a stark contrast to my own reserved nature. Finally, there was Ben, the geologist, a lanky man who could talk for hours about rock formations. We were a family, albeit a slightly dysfunctional one, hurtling through the vast emptiness of space.
 
-Of course, the number of friends varies, etc, but it’s a pretty specific joke, so it has fewer forms than most. It’s just there to go “Haha! Women’s friends are catty and insincere while boys are ride-or-die for the guy who said ‘nice shirt’ one time at a Wendy’s—cliche stereotype stuff. 
+It was during the last month, the final stretch, when the first tremor of unease started to ripple through me. I was reviewing the navigation logs when I noticed it. The autopilot was off course, subtly at first, then more dramatically. Too far off. Then, a cluster of mass appeared on the radar. Space junk, I thought, trying to dismiss the knot tightening in my gut. I tried to veer the ship back on its intended trajectory, but it was like an unseen force was pulling us. I swore it was aiming for us. I watched as the dot on the radar veered with the ship.
 
-Now, if the joke happened to you, unlike some weirder ones you wouldn’t bat an eye. Either your friends suck, or they're awesome depending on which side of the joke you're playing. But, well… you’ll understand in a moment I guess. 
+Then, *thud*.
 
-My marriage has been pretty smooth. Me and my husband haven’t been together long. We only got our first apartment together a year ago. 
+The entire ship shuddered, a bone-rattling jolt that sent equipment clattering. Alarms blared, a cacophony of red lights flashing across the control panels I quickly turned off. I ran a quick diagnostics. Communication blocked. The crew, jolted awake, piled into the cockpit, their faces a mask of confusion and fear. Minor freak out, as Evans would say.
 
-We’re still pretty young, so we aren’t always responsible. It happened around the holiday season; not right around Christmas or anything, just in the general time. Maybe it was around the 3rd? The old gang went bar hopping because it was the anniversary of when someone did something. I was friends with some of them too, but I could never figure that one out. I don’t even think it happened on the same date every time.
+“What was that, Jacob?” Sam asked, his voice laced with concern.
 
-Anyway, I came home one night, and he didn’t. The next morning, Tom (my husband) comes in trying to look like he isn’t a hungover train wreck run through a washing machine, and miserably failing. 
+I tried to sound calm, confident. “Just a bit of space junk. We’re back on course. Looks like the communication satellite took a hit.”
 
-“Oh! Well hello.” I greeted him with icy cordiality. I was brewing my morning coffee. It was a weekend, so I didn’t need to head anywhere right away. I’m sure that had played into his decision in the first place. 
+Sam, ever the pragmatist, stepped forward. “Damaged satellite? I can fix that, but we’ll need to slow down. I’ll need a spotter, someone to tether me.” He looked at me, a silent question in his eyes. “You come with, your already up”
 
-“Heh. Uh, sorry.” He abashedly scratched the back of his head. “Got a little too wild last night.” 
+David threw his hands up before rubbing his eyes, I wasn't getting out of it.
 
-“And just where did you get a ‘little too wild’ yesterday to come in today?” I certainly think I had the right to be asking that. It wasn’t any sort of party he had planned, or had told me about at least, that justified staying the night. Had it been, I certainly would have been more involved.
+I nodded, the logical choice. “I’ll go.”
 
-“Sorry, really. I got a little more wasted than I thought. Crashed at a friend’s place.” He rushed over to pour his own coffee, gulping it black as fast as he could to fight his obvious hangover. 
+The void outside was an oppressive blanket of black, punctuated by the distant pinpricks of stars. Tethered to me, Sam floated, a tiny silhouette against the immensity. I watched him, my breath fogging inside my helmet. The Onward sun cast long, distorted shadows around the broken satellite, making it hard to discern detail. I kept missing the handles as I fumbled along. Following Sam at a safe distance, reaching the satellite, for a second, I thought I saw a hole in the hull, a jagged tear in the ship’s skin, but I dismissed it as an optical illusion, a trick of the absence of light.
 
-“Mh-hm. And what friend was this?” I questioned. I was being hard on him, but it certainly wasn’t unjustified considering what he just pulled. I think anyone would have expected a call at least. 
+Sam worked with practiced ease, his movements precise and economical. I kept my gaze fixed on him, but my mind was playing tricks. The vastness of space began to press in, a dizzying sense of disorientation. I felt like I was spinning, unable to tell up from down, staring into an abyss that seemed to stare back. The emptiness was no longer just a backdrop; it felt like a living entity, cold and indifferent. I tried to look at my hands but i couldn't even see them, they looked like the void, devoid of all light. It made me wonder if I was even holding on.
 
-His brows furrowed in obvious confusion. I was a little relieved not to see him go right to guilty dodging, but annoyed that he struggled to recall even that basic fact. 
+Finally, after what felt like an eternity, Sam gave me the thumbs-up. We worked together and brought the damaged satellite back, a cumbersome, metallic carcass. Back inside, Sam took it to his station, his brow furrowed in concentration. The day droned on, a false sense of normalcy settling over the ship.
 
-“God, was it Jay? Don? It feels like I was at all of them.” 
+That night, I was jolted awake by a faint, persistent scraping sound. It was subtle at first, like something dragging across metal, then growing louder, more rhythmic. My heart hammered against my ribs. I lay there for a moment, listening, my imagination conjuring horrors in the silence. Before a loud crash. Curiosity, or maybe a desperate need to dispel the growing fear, propelled me out of my bunk.
 
-I think that having seen that joke recently influenced my decision by putting the idea in my head. Normally I wouldn’t bother interrogating his friends. Even if I were truly pissed, I would come up with a better way to press the issue than that. That time though, I decided to go with the first idea that popped into my head. It wouldn’t reveal anything useful, but it would make him squirm a little as payback for his terrible judgment. 
+The halls were eerily empty, the emergency lights casting long, unsettling shadows. Every creak of the ship seemed amplified, every distant hum of machinery a potential threat. I was halfway down the corridor, nerves frayed, when I bumped into Evans. We both jumped, startled, a comical moment if not for the gnawing dread.
 
-“Okay. I’ll call them.” I had barely thought it before I said it out loud.
+“Jacob? What are you doing awake?” Evans’ voice was a low growl.
 
-“Huh?” He was confused. Of course, he was also still nursing a horrible hangover and next to zero sleep, so obviously that was to be expected. 
+“I heard something,” I whispered, “A scraping. And a bang You didn’t hear it?”
 
-“I’ll call them. See where you stayed last night.” The way I said it firmly communicated this wasn’t optional. 
+His eyes narrowed. “Yeah, the bang, I heard it. Figured it was just the ship settling but good enough time to do rounds.”
 
-“Okay. Cool.” He mumbled, already nursing his third coffee. 
+A sudden, sickening crunch echoed from Sam’s station. Evans and I exchanged a terrified glance. Without a word, we moved towards the sound, our footsteps unnervingly loud in the quiet hall. Evans pushed open the door to Sam’s engineering bay.
 
-“Let’s see, you mentioned Jay, Don, Tony, Jin, and Bill.” I thought through each good friend I knew would have been there. 
+The smell hit me first – a coppery, metallic tang, thick and nauseating. My eyes adjusted to the dim light, and that’s when the corner of my eye caught something, I.. I could have sworn it saw something. A shadow, long and slender, slunk into the vent system with an unnatural speed. It was too quick, too fluid to be human.
 
-I dialed Jay.
+Then Evans' flashlight beam cut through the gloom. What it revealed will forever be burned into my memory. Sam, what was left of him. His body was a grotesque parody of a human form, mangled, half-eaten from the waist down. His face contorted between a scream and a cry is mouth open to inhuman size, his arms frozen, rigor-moriced, posed as if he was pushing away something that wasn't there anymore. Blood splattered up the wall in two sickening trails, oozing from where his gut would have been, leading to the ceiling, as if something had played in his entrails, a trail of blood slinking towards the vents.
 
-It took a second attempt, no big surprise, he would have been just as hungover. Finally, he answered.
+Panic, cold and sharp, seized me. My knees felt weak at the sight. Evans, his face ashen, fumbled for his comm unit as he pulled the emergency shutter closed on Sam's room. “Code Red! All crew to the cockpit! Repeat, all crew to the cockpit!” he bellowed, his voice raw with terror.
 
-“Jay?”
+We sprinted towards the cockpit, the most secure room on the ship. The other crew members, still half-asleep, began to trickle in, assuming it was just another monthly drill. Dr Remieres, Lena, Ben, and David, their faces creased with sleepy annoyance, shuffled through the blast doors. Evans waited until everyone was inside, then slammed the door shut, the hydraulic hiss of the lock a chilling finality. This woke up most of the crew's grogginess.
 
-“Huh?” An indistinct grumble came through the line. 
+He moved to a terminal, bringing up the security cameras. Looking over them, not to see sams halfway, he was a deadzone, but to see everyone's domicile doors, he began rewinding their feeds. We weren’t armed. Why would we be? The closest thing to a weapon on this research vessel was a kitchen knife, maybe some gardening tools from the hydroponics bay, or a power tool from engineering. But nothing that could do that damage to a human.
 
-“Did Tom stay the night with you?” I asked, trying not to sound accusatory.
+I tried to tell everyone what was happening, the words tumbling out in a desperate rush, but Evans cut me off before I could start, his voice hoarse with forced authority. “Sam is dead. Murdered. We’re in lock-down until I find out who did it. Send a message to base, Jacob.”
 
-“Yeah? He didn’t message you? Did he make it home? I think I heard him leave, like, an hour ago?” He paused. “Wait, what time is it? Don’t hold me to that guess.” His voice was a slurred mess of exhaustion and confusion. 
+“There’s still no communication, Commander, Sam didn't get to finish the repairs” I stammered, the words catching in my throat, as I thought of my comrade.
 
-“It’s alright Jay. I think he just arrived.” I hung up. Clearly, he needed more time to sleep it off.
+Evans glared at me, his eyes darting to the other crew members. “ If one of you did this, have mercy, you've damned us all.”
 
-“So that’s that. It was Jay.” Tom was clearly happy to end this quickly. 
+I couldn't fathom it. A human being couldn’t have done this. Half of Sam was simply… gone. The crew began to argue, a rising tide of disbelief and anger. Evans was persistent, convinced one of them was guilty, clinging to the flimsy evidence that he’d found him with me. Luckily that kept me off his list. But the fear of the unknown was quickly turning into resentment. Finally, unable to contain the rising tide of mutiny, Evans reluctantly opened the blast doors. The crew, shaken but convinced it was some sort of mental break from Evans, They didn't even see what we saw, they shuffled back to their quarters. Evans whispered to me, “We locked down Sam's room, no one sees the crime scene, if one of them did it they’ll let something slip, say something only they would know” i was barely listening to him, the thought of one of our crew, our family, doing this to someone was unthinkable, plus I couldn't shake the thought of the shadow out of my head, sliding into the vent.
 
-“You don’t remember it being Jay’s apartment you stumbled out of just an hour ago?” I questioned.
+The next morning, the ship felt different, the air thick with unspoken dread. We gathered in the dining area, David gave a few words for Sam, “He was more a father to me than my own, that man..” David stammered and choked on his words before regaining himself “That man had dreams to build a new world, Engineer a new planet. God rest his soul” a grim silence hanging over us as we ate our meager breakfast. David left after his speech, *distracting his grief* I thought to myself. Lena and Ben, predictably breaking the silence, began to bicker about food rations. It had become a common occurrence, the close quarters wearing on everyone’s nerves. Lena was accusing Ben of taking too many portions, insisting we conserve food. 
 
-“I don’t think I can remember ten minutes before I came through that door.” He admitted. I was glad he was honest instead of going straight to insisting it was totally Jay and that he remembered everything now. 
+"Ben, you can't take that much!" Lena insisted, her voice tight with urgency. "We have to make these rations last, both here and on Mars."
 
-“I want to test something.” I was honest too.
+Ben rolled his eyes. "An extra jello isn't going to topple society, Lana Banana."
 
-“Don?” I dialed the next number. 
+"But it could starve us when we're trying to get the plants to grow," Lena retorted, a sharp edge to her tone. "And don't call me that. We're not together anymore."
 
-“Hnk.” I heard a misshapen snort. “Yeah, Ellie?”
+That’s when it dropped.
 
-“Did Tom crash with you?” 
+From the ceiling, a black, slender creature, with long, spindly limbs, seemed to unfold, growing as it descended. It was a nightmare given form. Its arms, tipped with spike-like talons, lifted like cobras, then plunged into Lena and Ben’s heads. Bringing their bickering to an end as their foreheads met. Their eyes twitched, a horrifying dance of agony. Lena's voice crackled her last sentence as Ben swung his arms around him, a horrifying attempt to swat at the creature, a futile effort in his last moments. The creature’s mouth opened back with a crackling reminiscent of a campfire, as it revealed an array of razor-sharp teeth. It bit down on their heads with a brutal force. A sickening crunch echoed in the now silent mess hall, pulling back, tearing flesh and brain matter, in a grotesque feast of my crew-mates scalps.
 
-“Yeah. Just left twenty minutes ago. Should be home soon. Don’t kick his ass too hard.” He sounded a little better off than Jay, despite his undignified opening. 
+Dr Remieres screamed, a high-pitched, guttural sound of pure horror, and turned to run out the doors. I was frozen, my mind unable to process the monstrosity before me watching as the beast coiled its neck back to swallow the bite. Then Evans grabbed me, his grip like iron, and hauled me out of the mess hall back towards the cockpit. David, our second engineer, was already there, hunched over a terminal, running diagnostics with his back to the door when Dr Remieres burst in, already clicking the blast door button as Evans and I walked through the door. It shut with a loud hiss of gas.
 
-“You don’t need to lie for me dawg.” Tom spoke up, sounding terribly embarrassed by the whole thing. 
+“What’s going on?” David asked, before looking up at the security camera feed. His eyes widened, his face paling as he saw the aftermath in the mess hall. The creature was gone, vanished as quickly as it had appeared, but the horror of Ben and Lena's body was in the center of the camera, their faces unrecognizable bodies mashed together in a pile of visceral gore. The Lights flicked off briefly before the ship's backup kicked on, casting a red glow across the ship. “What was the, David, Status report!” Evans barked, it was different to hear him ask someone else. “Our main power supply is reading as destroyed, were running back-ups, Should be okay as long as we stay in the sun”
 
-“The fuck?” Don sounded confused. “You’re home already.” 
+Dr Remieres became hysterical, sobbing uncontrollably. David was trying to calm her when Evans grabbed me aside, I was shocked his voice was shaking “We need to take that thing out, or we’re dead. There’s no way out of here.”
 
-I heard a confused chuckle from the other side. 
+But then a thought, cold and clear, cut through my panic. There was a way out. The landing shuttle. It was designed to land on Mars while the main station orbited, to limit casualties, crew land in the shuttle and the ship's autopilot lands the payload. It had its own fuel, enough to get us on course, and then enough to brace for landing. It would be cutting it close, but it was our only chance. We’d need supplies for the next two weeks for the four of us, and we’d have to make it across the ship, past… that thing.
 
-“I swear to God T, if you weren’t here, I don’t know who the fuck was.” I could almost feel the defensive shrug through the line. 
+Dr Remieres and David stayed behind in the relative safety of the cockpit. Evans, ever the leader, volunteered me, of course. “You’re the pilot, Jacob. You know the ship's layout best.”
 
-“He’s been home over five minutes already. No way he could have gotten here that fast.” I wasn’t going to start a fight with Don, but I had to point out the reality. 
+We made our way to the med bay first, carefully avoiding the mess hall. Making our way through the red lit corridors. We gathered what we could: first aid kits, oxygen tanks, anything essential. We loaded them onto a rolling cart, its wheels scraping against the metal floor. The sound, that incessant scraping, was unnervingly similar to the noise that had woken me up last night. It's like it was everywhere now, a phantom echo of my trauma. Echoing.
 
-“I know.” Don admitted. “I must have lost track of time…?” He seemed uncertain.
+We reached the mess hall. Evans gestured towards the bathroom that connected the hallway to the kitchen and mess hall. “Through here, we can avoid the scene.” We pushed the cart through the narrow doorway, the scraping of the wheels continuing, but it started to sound.. different. Then we abruptly stopped. I couldn't tell you why we did, but in unison Evans and I both froze. We listened, every nerve on edge as the scraping continued, sounding like it came from every direction, we sat frozen for what felt like forever until it stopped.
 
-“We’ll figure it out.” I made sure not to sound too harsh, he was legitimately confused seeming, even if I was sure that it was too much alcohol and a misguided intent to be a good friend. “Bye.”
+“Come on,” Evans whispered, his voice low, “The less time the better.” He pulled the cart forward, and I jumped, startled, my heart pounding.
 
-I hung up.
+We entered the kitchen, the familiar smell of stale food a stark contrast to the horrific aroma that still lingered in the air from the mess hall, a room away. We loaded the cart with food rations, our movements swift and efficient. Now, we just had to make it back.
 
-“That was so messed up.” Tom chuckled. 
+“Come on, this way. We need to move quicker.” Evans led the way back through the mess hall. I tried not to look, but my eyes were drawn to it, the aftermath. Lena and Ben lay intertwined, their bodies mutilated, the floor slick with blood and something else, something I didn't want to identify. The sheer brutality of it, the way their bodies were torn apart, made my stomach churn. These were my friends, the people I had laughed with, argued with, shared a journey with. Now, they were just… pieces. Sprawled together in some sick art piece. Their heads stumps and torsos slashed, Ben's arm was missing, Lena’s stump of a head containing a piece of her jaw, her tongue exposed.
 
-“You know what they say about guy friends.” I wasn’t even angry at Don. “Everyone will say you were there. And two will insist you still are.”
+As we pushed through the doors, leaving the unspeakable behind, a shadow in the red caught the corner of my eye. The creature, coming as a blur of black, seemed to materialize out of thin air, launching itself at me. Its nails, impossibly sharp, dug deep into my uniform, piercing the fabric. A horrible, acrid smell, like stale blood and something else, something truly toxic, filled my lungs as it drooled onto my face. It made a series of rapid clicking sounds as it unhooked its jaw displaying the rows of teeth, a chilling rhythm that spoke of hunger and predatory intent.
 
-“Yeah, I know. He just seemed confused. Must have been one of the other guys.” Tom’s face, slowly regaining its life and color, betrayed confusion of his own. 
+Evans reacted instantly. “Hey! Over here!” he yelled, moving back, flailing his flashlight trying to draw its attention. The creature looked up, its eyes, if you could call them eyes, fixed on Evans. It let go of me, its claws tearing a jagged rip in my shoulder, putting the weight on the other before creeping away toward Evans. It crept toward him like a cheetah ready to pounce.
 
-“I guess I’ll find out.” I started dialing the next number.
+“What are you doing?” I gasped, scrambling to my feet.
 
-“Wait, you’re still doing this?” He questioned. 
+“Saving you! Now go!” Evans shouted, “Over her come on!” as he bolted around the corner, the alien followed him, its claws scraping as its limbs slid on the spaceship floors, its clicking growing louder as it unhinged its jaw more.
 
-“Let me enjoy this spectacle and maybe I’ll forget to be mad at you.” I pointed out the obvious.
+I didn’t hesitate. I grabbed the cart and ran, the scraping of its wheels a frantic heartbeat in the silence of the ship. I heard the sickening clicking turned to screaming and then crunching, the alien feasting. I saw the shadow of the scene, cast by Evan's flashlight as it rolled away, his body being ripped from its midsection, the last vestige of his life. My friend, my commander, sacrificed himself for me.
 
-That made him quiet. 
+I burst into the cockpit door, adrenaline coursing through my veins as I pounded on its glass. David looked up, pressing the button to open the door, his face etched with concern. “Where’s The Commander?”
 
-“Hey, Jin.” I eagerly greeted the next on my list.
+“He didn’t make it,” I choked out, the words tasting like ash. Dr Remieres let out a fresh sob, her face buried in her hands.
 
-“Ugh, yeah?” He vaguely tried to cover up his obvious hangover. 
+“Oh my god.. We're all gonna die” Dr Remieres wailed.
 
-“Did Tom crash with you yesterday?” I asked the same question.
+“Get your head on straight. We have to go. And we have to go now,” I said, my voice surprisingly steady.
 
-“Did he? He’s still here.” 
+We moved through the corridor, the only sound was the insistent scraping of the cart. Each step was a silent prayer, each breath a tightrope walk. We reached the shuttle doors, a beacon of hope in the suffocating dread. We quickly loaded the food, then scrambled for our suits. David checked the terminal. 
 
-I had to stifle a laugh. Tom looked mortified. I held up a hand to stop him from speaking up and ruining the fun.
+His face fell ill of color. “Jacob… there’s only enough fuel to land, not to get us there. Or the other way around, get us there but we won't be able to land.”
 
-“Could you put him on?” I wondered just how he would get out of this. 
+My heart sank. The shuttle was meant to be filled with fuel by the computer once the ship was in orbit and no longer needed the reserve. We couldn't do it manually. No overrides. We were stranded.
 
-“Sure.” 
+Then, a flicker of an idea, a desperate, dangerous gamble, crossed David’s face. “I can throttle the ship… use the inertia to throw you two on track. You’d have to detach before the main ship oxygenates and depressurizes the shuttle”
 
-I looked at Tom in befuddlement. He looked equally lost. Just what was Jin going to do? He couldn’t fake my husband’s voice if his life depended on it. 
+My throat tightened. It was a suicide mission for him, and possibly for us. “No, David…”
 
-“Hey, man! Get up!” I faintly heard him talking over the phone he was clearly holding it away from his face. 
+“There’s no other way, Jacob,” he said, his voice firm, resolute. “If you two make it. Tell my family… tell them I did my duty for the new world, and died loving them.”
 
-“Yeah?” 
+Dr Remieres began to cry, a heart-wrenching sound. We said our goodbyes, a hurried, tearful farewell. David left for the cockpit, his shoulders squared as he turned the corner.
 
-My blood ran cold.
+Dr Remieres was having a full-blown panic attack as we suited up. She zipped mine as I hinted for her to turn “I… I can’t breathe,” she gasped, her hands trembling as she tried to pull her suit over her arms. Bad time to be claustrophobic, I thought grimly. “Doctor, i need you, i can’t do this without you” i tried to assure her. She didn't lighten up. Getting impatient I put on my helmet. I was already fully suited, but she still needed help. “Come on Remieres, Breath with me, In.. And out, Come on with me” She joined in, “In.. and out, In.. and out”
 
-That sounded exactly like Tom. 
+David’s voice crackled over the comms, a distant, metallic echo. “Ready, Jacob. Just need the signal.” 
 
-“Your wife’s calling. Bro, I told you you should move your ass. You’re screwed, man.” 
+“Copy stand by” I spoke firmly into the comms unit on my suit.
 
-I could hear the phone get chucked onto a bed, and someone fumble to pick it up. 
+That’s when we heard a thumping from above, a heavy, deliberate sound that traveled to the vent on the wall. My blood ran cold. The air even in my suit went stale. The creature sprung out the vent, a black, spindly horror as it landed on its feet, standing to its hind legs. It let out a piercing scream that vibrated through my bones, and I felt a sickening *crack* as the glass on my helmet fractured.
 
-“Hey, Ellie.”
+Dr Remieres felt the scream direct as she fell, clutching her head, blood streaming from her ears and eyes. I lunged to brace her, my space-suited hands clumsy, unable to get a firm grip. But the alien was faster. It had her leg, its talons dug deep into her flesh crunching the bone as it insured her leg would be shredded if she tried to escape. She squeezed my hand, her grip surprisingly strong, a last desperate connection. The creature crawled forward over her as it began tearing into her stomach with its free claw, a horrifying symphony of tearing flesh and crunching bone as it bit down on her sternum.
 
-Tom’s face contorted in horror at a much clearer sound of what was unmistakably his own voice coming from over the phone. It was groggy and slurred, but absolutely his own.
+I tried to pull free, to help her, but she wouldn’t let go. Her grip tightened, even as her lifeblood spilled onto the floor. I looked at her eyes, wide with pain and terror as her body twitched with each bite from the beast, and in that moment, I knew. She was holding me, keeping me there and she couldn't let go. I unhooked my glove, tearing my hand free from her grasp. I watched as she pulled the glove in, her last cling to life.
 
-“What is this?” My words were of pure shock. 
+The beast locked eyes on me and lunged and I reacted as quick as I could “Now!” I screamed into my radio, diving into the shuttle and slamming the door shut behind me. The beast's claw broke off as it tried to reach into the shuttle. 
 
-“I’m sorry! I got way too smashed. I conked out right here with Jin. I should have had someone drive me home. And I definitely should have messaged you.” 
+The ship lurched forward, fast, before a massive veer left. I felt the inertia throw me back, then the sudden, freeing sensation of the detachment. The shuttle shot from the rear port of the ship, detaching just as I heard the shuttle ship begin to pressurize. Leaving a trail of gas and oxygen, a gaseous tether to David. The smoke was broken a moment later, as I saw the beast flung out the ship from the docking bay, into the void of space.
 
-“I- Y-yes. You should have…” For a moment I wasn’t sure if I should probe for more, but I was just too terrified by what I was hearing. I hung up the call.
+My head throbbed as I watched. I quickly realized, my suit’s oxygen was leaking, a steady hiss from my wrist and ungloved hand. My hand, exposed to the vacuum of space, was already turning an alarming shade of blue. I fumbled for the roll of patch tape, my fingers clumsy with the cold, and sealed the rip around my wrist and then covered my hand in a makeshift bandage. I breathed slowly, deeply, calming my ragged nerves. Then, with a click, I flipped the switch to pressurize the shuttle. 
 
-“What the fuck was that? What! In the living hell! Was that!” I was freaking out. I could feel myself hyperventilating.
+I waited a minute, before removing my helmet. The hissing of the shuttle as it filled with gas was deafening, even through the helmet. The two weeks to Mars were a blur of fragmented sleep and waking nightmares. The putrid stench of blood and bile, the clicking of those talons and its jaw, the screams of my friends – it was all replayed on an endless loop in my mind. I barely ate, barely slept, I lost 25 pounds in that desolate journey. The beast claw lay in the corner on the shuttle, tucked away from my view. I couldn't bring myself to, every time I did I saw it piercing another friend. Taking another member of my family.
 
-“It’s got to be a prank.” My husband was clearly barely keeping it together any better than I was. “Let’s not panic. You know AI these days. They must have just heard the same joke you did and are doing a bit.”
+Then the entry to Mars was a cruel joke. Entering the atmosphere was fine, a familiar shudder and roar, but in the thin air, the fuel gauge dropped to empty quickly. The shuttle heated as it plummeted, breaking off a fin. It quickly began to spin, a dizzying, uncontrolled descent. The parachute deployed, but it fluttered uselessly, unable to stabilize us. I needed to drop the fins and pull the winglets straight. Pieces of metal flew off the shuttle as it plummeted to the desolate planet. The shuttle's window cracked as the air began to leave the shuttle again.
 
-I wasn’t convinced. He obviously wasn’t either. It wasn’t impossible that could be the explanation, but it seemed very, very improbable. 
+Back home, they were watching. A world, holding its breath, as the *Mars One* shuttle spun wildly, a tiny, fragile speck against the red backdrop. In the spinning, the G-forces pressed down on me, crushing me. My exposed hand, the one that had been in the vacuum, was turning a terrifying shade of navy as my arms were forced forward. I felt consciousness slipping, the world fading to black.
 
-What was the explanation then? Without an answer to that, I knew what I had to do.
+I felt a surge of raw, desperate will. My mother’s face flashed in my mind, Dr Remieres last grip, Evans' sacrifice. I reached with my good hand and dropped the fins. It gave little relief. My blue, lifeless hand, still stretching, grasping. My head felt like it was going to pop as my bandage caught around the lever. I winced as I pulled, the tape from the patch roll tearing my already dead skin.
 
-“Tony?” I called the next friend. “Hey, Tony?” 
+The wings of the shuttle dropped down, a jarring shift that slowed the spin. The parachute billowed open, a magnificent, white blossom against the crimson sky. From the Mars rover, a whole week later than scheduled, the people watched as the shuttle descended. It came to the landing pad with a jarring thud.
 
-“Ugh. Yeah. Sorry, cleaning up over here.” 
+I look closely at the crack in my helmet, my gaze soon fixed on my now black hand, devoid of life, a price of survival. I walked to the shuttle doors, my legs feeling like lead. Using my forearm to spin the hatch, I stepped back as it fell open, taking a deep breath as I looked out.
 
-He sounded markedly better than the others. 
+The light was blindingly different from the shuttle, from earth even. The rays of heat cast like a brilliant sun on an alien world. The world was utterly, breathtakingly beautiful. A vast, desolate landscape of ocher and rust, stretching to a horizon under a sky of muted salmon. Pillars of segmented rock rose like towers. And there, in the distance, bathed in the Martian light, was the home-base NASA’s AI had built, a cluster of gleaming modules. The rover, a silent sentinel, waited patiently at the landing zone. Its robotic camera arm zoomed in on me as I stepped onto the martian sand.
 
-“That’s alright. I just wanted to check. Did Tom stay at your place?” 
-
-“Tom, did you really not call Ellie?” Tony shouted away from the phone, annoyance clear in his voice. 
-
-“I lost my phone man! Sorry!” My husband, yet another one, called back.
-
-“Jeez. Yeah, he’s right here. I’ll send him home when he’s done cleaning my sink out. You can guess why.” 
-
-“I-I… okay. Thank you. I’ll… call back later.”
-
-I stumbled through hanging up. Something felt so deeply, terribly wrong. My hands were sweating. They really prepared these perfect responses after a night of getting stone-cold smashed at bars? No way. This wasn’t a joke, and it wasn’t okay. The world was somehow wrong, terribly wrong.
-
-I misdialed Bill three times before getting through. Tom just started pacing the room, wracking his brain for what could be happening? Or trying to remember? I was too focused on the last call to ask.
-
-“Bill?” I couldn’t hide the desperation in my voice.
-
-“Yeah? You alright?” He sounded concerned at my panic. “Shit, did Tom not tell you? He stayed over. Everyone’s okay.” 
-
-He guessed at the source of my panic. 
-
-“Is he-is he still there?” I didn’t know which I wanted. If he said no I would have no more answers. If he said yes, I didn’t know if I could keep it together hearing another impossible husband. 
-
-“Yeah, hey! Times up buddy.”
-
-I could hear the phone being passed off.
-
-“Hey, El. Sorry, I lost my phone. I crashed safely here the whole night. I know I should have had Bill text. I guess I drank too much.” 
-
-“You can’t be! I’m here! I came home! I’m right here!” Tom finally snapped
-
-There was a long, tense pause. 
-
-“That can’t be man. We crashed right here at Bill’s the whole night.” Tom, the Tom on the other side, quietly insisted. 
-
-“Who are you? What are you?” I was borderline sobbing as I demanded answers. 
-
-“It’s me, Ellie. It’s Tom. Who is over there with you?” I could sense a quiet desperation in the voice over the phone. 
-
-I hung up. I had to. I couldn’t answer it after all.
-
-“What is happening? What happened to you?” I broke down sobbing at last. Nothing made sense, least of all the equally broken-looking man across the table from me. 
-
-“I don’t know.” He muttered, barely able to speak himself. “I don’t know. I can’t remember anything. I know we went out. I can’t remember anything.” 
-
-He kept repeating it, trying to force himself to remember.
-
-He never did. 
-
-We tracked his phone to a bar restroom across town. 
-
-None of the other Toms came home.
+The sheer, overwhelming wave of it, the pain, the beauty, broke through me. I fell to my knees, the dust of Mars coating my suit in a cloud, and I wept. Not just for relief, but for the faces I would never see again, for the horrors I had witnessed, and for the silence that now stretched before me, a silence I would carry for the rest of my life. Through my choked sobs, and cracked helmet I uttered three words, my commander fresh on my mind. “One.. Giant.. leap”
