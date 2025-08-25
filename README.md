@@ -1,255 +1,83 @@
-# Most of the people around me have disappeared, and I seem to be the only one who remembers them. Yesterday, we captured one of the things that erased them. (Part 2)
-[PART 1. ](https://www.reddit.com/r/nosleep/comments/1mf9lsg/most_of_the_people_around_me_have_disappeared_and/)  
-\- - - - -
+# I clicked a Reddit 50/50 link… I think what I saw is still watching me…
+I’m writing because the last few days have been some of the most taxing I’ve ever experienced, and I need advice… or maybe not advice exactly. I just need help making sure I’m not losing my mind.
 
-Sam and Dr. Wakefield heard the commotion and were coming to investigate. I nearly trampled the old woman as I turned the corner, but stopped myself just in time.
+It all started a few days ago. I won’t lie — I was a bit under the influence, scrolling through some Reddit 50/50s. You know, the page that gives you two possible outcomes: one wholesome like puppies, the other usually something gross or NSFW. The twist is, you don’t get to choose — it’s random what you’ll see when you click.
 
-*“Vanessa! What the hell is going on back there?”* Sam barked.
+It had been a long, stressful week at work, so I planned to unwind. I was drinking — about a beer per page — so by the time I hit page 13, I was definitely feeling it. That’s when I came across a strange link:
 
-I collapsed to the floor and rested my head against the wall, catching my breath before I spoke.
+“Puppy Bowl Greatest Plays” or “The Truth Behind the Uncanny Valley.”
 
-*“I’m…I’m not sure he’s a Grift. Somehow…he remembers people. Like me. What…what are the odds of that?”*
+I chuckled and said, “Let’s do it.” Needless to say, it wasn’t the Puppy Bowl.
 
-Sam spun around and began pacing in front of the pulpit, hands behind his head. Dr. Wakefield, once again, appeared to be lost in thought.
+It linked to a plain webpage with just a video player — no title, no description. Still in the spirit of the game, I clicked play. A cold, mechanical voice began narrating the four-minute video:
 
-That time, though, my assumption was wrong. She was listening.
+“The Uncanny Valley is a theory introduced in 1970 by Masahiro Mori, a Japanese robotics expert. It describes the relationship between how human-like something appears, and how we emotionally respond to it.”
 
-I’ll be eternally grateful for that.
+A graph appeared on the screen as the voice continued.
 
-When I asked the question *“where’s Leah?”*, she did not hesitate. She responded exactly as Sam did.
+“The most unsettling point is at the bottom of the valley — when something looks almost human, but something is… off.”
 
-And the combination of their responses changed everything.
+A few AI-generated images and robotic faces flashed across the screen. They weren’t grotesque, but something about them made me deeply uneasy.
 
-He only got a few words out:
+“It’s normal to feel discomfort or fear when you see images like these. But where does that fear come from?”
 
-“*She’s in the car - “*
+Suddenly, the page glitched and started to freak out — flashing distorted images of AI art. The voice came back, but it no longer sounded robotic. It sounded… human, but wrong. Just slightly off.
 
-At the same time, Dr. Wakefield said:
+“The fear is primal. It comes from a deep, ancient part of your species’ memory. An evolutionary response to something that looked human… but wasn’t. Something dangerous.”
 
-*"Who's Leah?"*
+“What the fuck is this?” I muttered, frantically clicking the close button — but the video wouldn’t stop.
 
-\- - - - -
+“We’ve always been here,” the voice said. “A random face in the crowd. And you never notice. But when you do… you look away. You keep walking.”
 
-Sam claimed his girlfriend was resting in the car. Dr. Wakefield outright admitted forgetting about Leah.
+Panic rising, I held down the power button on my desktop. The voice cut off mid-sentence, but not before the screen flashed one final image: a video feed from my own webcam.
 
-I’d only been alone with the Grift for half an hour.
+It showed me — but the face on the screen was smiling. The smile was wide, too wide, with porcelain-white teeth that were eerily straight.
 
-What the hell happened?
+Shaking, I poured a glass of whiskey to steady my nerves and went to bed… but I was up and down all night. 
+ 
+        
+I wish I could tell you that the night ended there—a scary video and a panic attack, washed away by a pint of Jack. But I’d be lying if I said that was all.
 
-*“I said, who’s Leah?”* Dr. Wakefield demanded.
+The next morning, I woke up nursing a brutal hangover on top of barely any sleep. My eyes burned, the bitter, sour taste of bile clung to the back of my throat, and my head pounded like a war drum. I knew I needed to eat, but I had zero motivation to cook. Eventually, I mustered the strength to get dressed and stumble down to the local deli.
 
-He didn’t immediately respond. All was still and silent, and, for a moment, we were simply dolls in a dollhouse.
+I ordered my usual: sausage, egg, and cheese with a hashbrown tucked in, plus a black coffee. The cashier stared at me—probably because I looked like hell—but said nothing, just rang me up. A few minutes later, she called my name. I stepped up to grab my sandwich, and she was staring again.
 
-There was Sam, with his hands resting on the back of his head and his elbows arched, looming below the church’s elevated pulpit like he was due for communion. Then there was Dr. Wakefield and me, motionless at the corner that connected the main hall to the cathedral’s bargain-bin recording studio, watching for Sam’s reply. Deeper still, there was the sound-booth turned cage, with our prisoner lurking behind the barricaded door. Man or monster, Grift or not, if he was moving or making noise within his cage, it wasn’t audible to the three of us.
+Uncomfortable, I tried to break the tension. “Sorry, I’m kind of a mess. Had a long night.”
 
-Our frail plastic bodies idled in that church on the hill, waiting for the powers that be to reach their hand in and begin manipulating us once again.
+She blinked and suddenly seemed to snap out of it. “Oh! I’m sorry, sir. I don’t know why, but I could’ve sworn I served you earlier this morning. Weird. Anyway, have a great day!”
 
-My gaze shifted between Sam and Dr. Wakefield. She tiptoed over and offered me a hand up, but at no point did she take her eyes off of Sam. Her hand was surprisingly warm for how skeletal it appeared. My tired muscles groaned and my weary joints creaked, but with the woman’s help, I got upright.
+She brushed it off and returned to the register like nothing had happened.
 
-*“She’s his…”*
+If I weren’t so hungover, I might’ve asked her what she meant. But I felt like death, and I knew if I didn’t get food in me fast, I’d redecorate the deli floor. So I made a beeline for my apartment. And that’s when things started to get weird again.
 
-Before I could say more, my lips became ensnared by three bony fingers.
+My computer monitor was off—but the webcam light was on.
 
-*“Not you. Him. I want him to answer,”* she hissed.
+How long had it been like that? Had it ever turned off? Was it recording?
 
-When he swung around, I’m not sure what I expected to see. Anger? Defiance? Confusion? They all seemed possible. Instead, he displayed something I certainly did not expect. An emotion that I hadn’t ever seen driving my best friend before, not in the twenty years I’d known him.
+I reached to unplug it, bumping the desk in the process. The screen flickered on. My stomach dropped.
 
-Desperation.
+“What the hell is going on!?” I yelled.
 
-Face flushed with blood, tears welling under his eyes, he screamed at us.
+The video was still playing.
 
-*“****GET THE FUCK OUT OF MY HEAD.****”*
+That same face—way too close to the camera—filled the screen. It began speaking again, completely unfazed:
 
-Dr. Wakefield’s fingers fell from my mouth. His wails were high-pitched and sonorous, their texture almost melodic.
+“Your brain has two options. The first is to try to make sense of it. This often presents as déjà vu, or a vague feeling that you’ve seen something before, even though you haven’t.”
 
-***“WHICH OF YOU DID THIS TO ME?”*** he gasped out between cries of agony.
+It paused.
 
-Initially, I thought he was referring to the doctor and me, but he wasn’t.
+The silence dragged on—long enough to make my skin crawl.
 
-***“WAS IT YOU?”*** He pointed at Dr. Wakefield.
+Then it continued.
 
-***“OR WAS IT HIM?”*** His finger pivoted to the hallway that led to the sound booth.
+“The second option is fear. Most will call it paranoia, or maybe agita. A vague discomfort at seeing a stranger you think you recognize. They’re the smart ones.”
 
-Whatever accusation Sam was making, somehow, I’d already been exonerated. I proceeded carefully, palms facing out, signaling I meant no harm.
+It smiled then.
 
-*“Sam…what’s going on?”* I asked, voice trembling under the weight of the situation.
+That awful, hideously perfect porcelain smile—impossibly white teeth, too many of them.
 
-His lips quivered, and his focus appeared split, bloodshot eyes dancing between me, Dr. Wakefield, the hallway, the wall behind him, and the ceiling. As I approached, he grabbed a tuft of auburn hair, pulled it taut, and then brought his knuckles crashing into his skull. There was a pause after the first knock, but his tempo soon increased, eventually involving his other hand in the manic pounding. When I was just a few short steps away, his madness reached a fever pitch, knuckles striking his head over and over again.
+“My question for you is this: next time you see one of us, how will you respond? Will you fear us… or brush us off, like that cute girl at the deli? Oh well, we won’t have to wait much longer to find out…”
 
-*“Sam, I need you to talk to me.”*
+It chuckled, and the screen cut to black. Then it rebooted to a blue screen.
 
-He flew backward at the sound of my voice, tailbone colliding with the edge of a pew.
-
-*“****STAY BACK****."*
-
-I conceded the request and froze. He seemed to calm down, no longer raining his fists against his skull as if a hungry cicada was burrowing into his eardrum. What he said next, though, made me panic in turn: a passing of the baton.
-
-*“Listen: the man in the recording booth needs to die.* ***You*** *need to kill him, Vanessa, and if she tries to stop you, you’ll need to kill her too.”*
-
-My head shot around to Dr. Wakefield.
-
-*“Look at her. She’s contaminated. She…she just allowed him to take someone from me. I felt it. I felt him rip them from my mind. It was horrible.* ***She’s*** *horrible.”*
-
-God, how quickly our meager task force crumbled.
-
-I tried to piece it back together, but it was a waste of breath.
-
-*“Sam, I understand you’re scared. Truly, I do. Whatever just happened, though, surely it wasn’t Dr. Wakefield’s fault…”*
-
-I extended my hand to him and mouthed the word “*please”*. Sam, however, remained obstinate. He would not back down.
-
-\*“\****Vanessa.*** *I’m not going to say it again. Stay the* ***fuck*** *away from me,”* he growled.
-
-*"Why...why are calling me Vanessa? You never call me Vanessa."* I whispered.
-
-My hand dropped like a lead balloon and landed against my thigh. I felt the faint outline of Sam’s pocketknife over my fingertips. Whether she had been truly erased or not, it was Leah’s idea for me to carry the blade. We never quite got along, but, at that moment, I was thankful for the advocacy.
-
-Though the thought of having to use it against Sam put a pit in my stomach.
-
-He ignored my question and continued his tirade.
-
-*“Think about it - how much do you* ***really*** *know about her? Close to nothing. How do we know she isn't behind this all? I mean, consider the timeline. People disappear. Everybody but you forgets them. The atmosphere turns into a fucking tundra. And then this woman, this so-called doctor, parades into town. Just happens to know that we’re forgetting. Not only that, but she inexplicably identifies that* ***you*** *somehow remember. Then she…she fills your head with these wild fantasies. Unhinged, Sci-Fi B-Movie bullshit about demons and Grists - “*
-
-An earsplitting *thwap* emanated through the church. I flipped towards the noise to find Dr. Wakefield with a weathered Bible at her feet. She’d pulled the poor book from the underside of one of the pews and made it bellyflop onto the hard wooden floor.
-
-To her credit, it was enough. She had our attention.
-
-*“Grift. Not Grist.* ***Grift.*** *The moniker’s unofficial, mind you: an inside joke with my colleagues at NASA.”*
-
-*“You hear that?”* he cried out, still releasing a few high-pitched sobs here and there, “*The nut-job thinks she works for NASA - “*
-
-Another Bible hit the floor, causing another crack of sharp thunder to reverberate through the room.
-
-*“Would it surprise you both to learn that I grew up at the shore?”*
-
-Sam gestured at her with cartoonish vigor, eyes wide and facial muscles strained. It was a look that screamed: *“See? This is* ***exactly*** *what I’m talking about.”*
-
-*“People always act surprised when I tell them that. I suppose I don’t fit the archetype,”* she continued, undeterred. *“My disposition is admittedly cold, despite having lived in such a...bohemian environment.”*
-
-He turned to me and began pleading.
-
-*“Vanessa, take my pocketknife, go back to the recording studio, and drag the blade across that man’s neck -”*
-
-That time, it wasn’t the echoing *thwap* of leather against wood that interrupted Sam. No, the sound was much slighter. A tiny mechanical click.
-
-Dr. Wakefield produced a small pistol from her coat pocket, and the weapon was now cocked.
-
-Her eyes still hadn’t left Sam.
-
-*“As I was saying - the appearance of a thing and the actual quality of it’s character, they can be quite different, wouldn’t you agree? I’m a good example, but I have a better one.”*
-
-She shifted her feet, treading toward the sound booth while keeping the barrel trained on Sam.
-
-*“His name was Skip. Don’t recall if that was his real name or a reference to some previous maritime duties, but I digress. He was a burly man, probably in his late fifties, with a thick Slovakian accent and kind, blue eyes. As a child, he seemed like magic: living on the boardwalk, strumming his nylon-string guitar, always with his elderly calico perched somewhere nearby. I’d watch him play for hours - sometimes close, sometimes at a distance. He was mesmerizing. An enticing mystery cloaked in sweet music. Where did he go to sleep at night? Did he sleep at all? What was his purpose? How much sweeter would his music be if I got just a little closer?”*
-
-Sam wasn’t crying anymore, and yet he was still producing that strange, high-pitched noise. His expression was joyless. Utterly vacant. He didn’t seem to register my existence anymore. I crept towards him, but he did not jump back like he had before.
-
-*“My parents demanded that I stay clear of Skip, and I resented them for it. Of course, that was until someone unearthed the bodies buried below the boardwalk. Bodies of the people who had gotten too close to Skip, entranced by his music when no one else was watching. The police came for Skip, and he did not flee. He smiled as they approached him, with their hands loosely gripped around holstered firearms. Supposedly, he just continued to strum that weathered guitar.”*
-
-Dr. Wakefield raised her pistol. I shook my head in disbelief, but I couldn’t find my voice to protest. The situation felt surreal and impossibility distant. She aligned her right eye, the muzzle, and Sam’s chest - new stars forming a new constellation in the night sky, a monument to a moment that I had no chance of intervening in.
-
-*“When I was much, much older, I asked my father: how did you know? How could you tell he was dangerous? You want to know what he said?”*
-
-I reached out to Sam. I wanted to grab his hand and pull him away from this place. My fingers were almost touching him when it happened. The sensation was familiar, but the circumstances that the sensation arose within were bizarre and foreign. An inch from his body, I felt the pressure of an invisible barrier against my skin, like the feeling of trying to force two identically charged magnets together.
-
-*“He said: that man was nothing more than smoke and mirrors. A honey-trap. A ghoul excreting pheromones to draw in spellbound prey. Something that only masqueraded as a person. Blended in as best he could. Hid his horrible secret as best he could, too.”*
-
-As I pushed against that invisible barrier, Sam’s skin peeled back. It bunched up like sausage casing over the knuckles of his hand. I didn’t see muscle underneath. Nor did I see blood, or bone, or fascia.
-
-Instead, there was a second layer of skin.
-
-No matter how hard I pushed, I couldn't seem to touch Sam.
-
-*“Skip was nothing. He was emptiness in its truest form: voracious and predatory, willing to do anything to feel whole. His music - the beauty he exuded - it was simply a trick. A lie. A fishing lure of sorts.”*
-
-My eyes drifted to Sam’s face. He wasn’t watching Dr. Wakefield anymore.
-
-He was staring at me, lips curled into a vicious grin. A harsh whistle pierced through the slits in his gritted teeth.
-
-*“That thing, my father said, that thing you called Skip..."*
-
-I repeated my question one last time.
-
-*"You never call me Vanessa, Sam. You always call me V. Why...why were you calling me Vanessa?"*
-
-*"...he was a grift.”*
-
-Then, there was an explosion. A deafening, sulphurous pop.
-
-My ears rang. My eyes reflexively closed as I threw my arms in front of my face.
-
-Gradually, I opened my eyes and peeked through my arms.
-
-There was a gaping hole in Sam’s chest, but no blood.
-
-The gunshot did not send him flying. He remained upright. He was still smiling. Still whistling.
-
-Now, though, he was pointed at Dr. Wakefield.
-
-Sam brought his hands up and clawed at his face, dragging his nails through viscous skin. He flayed the tissue as if it were a layer of mud, small mounds accumulating at his fingertips as they moved. I watched as the color drained from the exfoliated skin, from beige to pink to ashen gray.
-
-The noise of a gunshot rang out once more.
-
-Sam, or the thing that had been piloting his remnants, went berserk. His hands became a flurry of motion. He removed thick clumps of skin from all over his body and threw them to the floor, where they disintegrated into a storm-cloud colored ooze.
-
-Dr. Wakefield fired again, and again, and again.
-
-Her so-called Grift did not seem to be damaged. Not in the least.
-
-In retrospect, however, I don't damage was the point. I think the act was symbolic.
-
-She was too smart to believe bullets would kill that thing.
-
-By the time the clip was empty and she was futilely clicking the trigger, the carapace that used to be my best friend had been completely discarded.
-
-The person who had been hiding underneath seemed...normal. Unremarkable. A man with short brown hair, narrow eyes, and a hooked nose.
-
-Then, I blinked. When my eyes opened, he was gone.
-
-Or he appeared to be gone.
-
-My head spun wildly around its axis. I didn’t find him again until I looked up.
-
-He was skittering across the ceiling.
-
-I turned to Dr. Wakefield. She let the pistol clatter to the floor. Her expression did not betray fear. She was sullen. Resigned to her fate.
-
-She got out a few, critical statements before it reached her.
-
-*“It...he tricked me. I'm sorry. I didn’t mean to guide it to you."*
-
-The Grift crawled down the wall.
-
-*“Remember- it craves a perfect unity. The pervasive absence of existence."*
-
-It scuttled across the floor at an incomprehensible speed. Low to the ground, he placed both hands at the tip of her right foot.
-
-*"Don’t give in.”*
-
-He wrenched his fingers apart, and her foot split in half. I could see her blood. The bone. The muscle. None of it spilled out. His form collapsed - flattened as if his body had been converted from three dimensions to two. Silently, he burrowed into Dr. Wakefield.
-
-Once he was fully in, the halves of her foot fell shut.
-
-The imprint of his face crawled up her leg from the inside. Her body writhed in response: a standing seizure. His hooked nose looked like a shark fin as it glided up her neck.
-
-Finally, the imprint of his face disappeared behind hers, and the convulsions stilled.
-
-She looked at me, and a smile grew across her face.
-
-I thought of the man I'd kidnapped. Somehow, he was important. We both were.
-
-I needed to get to the sound booth, but she was blocking the path.
-
-The whistling started again.
-
-Sure, there was fear. I felt a deep, bottomless terror swell in my gut, but the memory of Sam neutralized it. I was consumed by rage imagining what it did to him.
-
-At the end of the day, my anger was hungrier than my fear.
-
-Whatever it was, I prayed that invisible barrier would protect me,
-
-And I sprinted towards [the Grift.](https://www.reddit.com/r/unalloyedsainttrina/comments/1lu8hgo/the_seven_cardinal_sins_remastered_and/)
-
-\- - - - - 
-
-EDIT: To [Final Part](https://www.reddit.com/r/nosleep/comments/1mk5aui/most_of_the_people_around_me_have_disappeared_and/)
+All I could hear was the pounding of my heart, thudding like it was trying to escape my chest. 
