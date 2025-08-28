@@ -1,146 +1,102 @@
-# My brother hasn’t woken up in three days. Mom says he’s just tired
-It started three weeks after my dad's funeral.
+# I found the mummified remains of the biggest deer ever... [Part 2]
+\[*See*: [Part 1](https://www.reddit.com/r/nosleep/comments/1mimwoy/i_found_the_mummified_remains_of_the_biggest_deer/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\]
 
-My mom had been doing better, cooking again, even smiling sometimes. But that Tuesday evening at dinner, she looked different. Uneasy.
+For a moment, it just stared at me. It stared at me with its flat yellow eyes that oughtn’t to have been able to see. And it ever so gently, keeping calm as it worked, pushed its antlers into my thigh. Not to disable me or try to kill me. To torment me.
 
-"We need to talk," she said, her voice barely above a whisper. I was only 10 years old, but I can remember every word like it was carved into my brain.
+I screamed in the way a person can only scream once pain makes them insensible. It pulled back and looked at me. Whatever murderous idiocy ruled over the black deer’s brain told it that hurting me slowly would bring it great pleasure.
 
-"Someone's been leaving things by our door," my mom told me and my brother, her eyes fixed as if she was looking at something through the kitchen window.
+It brought one of its front hooves above my ankle and let it hover there for a minute. I shook my head (stupid, I know). “No. No, please don’t.” Its hoof was the size of a small dog. I prayed to God even as I begged the idiot-monster not to hurt me any more. “Please don’t.”
 
-"What kind of things?" I asked, noting how her hands trembled slightly as she set down her fork.
+It pressed its hoof down on my ankle.
 
-She hesitated, glancing at my younger brother Alex before answering. "At first, I thought it was trash. Maybe kids playing pranks. But this morning..." She swallowed hard. "This morning I looked closer."
+Oh, how I screamed. You wouldn’t believe someone could scream like that. I felt and heard my ankle bone snap and the muscles in my foot and leg pressed like ground beef under a rolling pin. I screamed and I screamed.
 
-The silence stretched until Alex couldn't stand it. "Mom, you're scaring us."
+The black deer pulled back in a sudden, jerky motion, like it hadn’t meant to. I realized I could hear a growl that didn’t belong to my torturer. I looked up. I saw Tooth. She was hanging onto the black deer’s back, biting it, dug into the top of its neck. The black deer roared.
 
-"There were objects arranged in what appeared to be a circle. Candles… Shells that smelled like rotting seaweed even though we're nowhere near the ocean. And herbs, dried herbs all around the thing, all connected by a thin line of salt."
+I dug my keys out of my pocket. I crawled till my back was up against my front door. My hands were so shaky. I managed my key into the lock. I unlocked the door. I crawled inside and pushed the door shut. I saved myself. Tooth was outside, but I saved myself.
 
-Her eyes never left the window as she spoke, like she was watching for something. Or someone.
+I reached up for the deadbolting jamb-to-jamb barricade, fingers stretching because if I got off my ass I got on my obliterated foot. I felt the barricade’s cold steel at my fingers and heard the satisfying, loud *thunk* as it went into place. 
 
-"Why would anyone—" I started.
+And then I heard a loud, panicked whine from outside. And then I heard a terrible howl. 
 
-"It's brujería," she cut me off, the word falling from her lips like a stone into still water.
+Oh God. Tooth. Oh God, oh God…
 
-I didn't know what that meant then. I wish I still didn't.
+Then a last, desperate yelp, and then the sound of bones and meat and something crushing them. After that, silence. So eerily quiet—I didn’t know there could be such quiet in the midst of blood and chaos. But God, it was so quiet.
 
-My brother and I exchanged glances. We'd never seen our mother afraid before, not during Dad's illness, not at his funeral. But now? Her face had the hollow look of prey that knows it's being hunted
+The black deer roared again. A battering ram bashed into my front door. The wood moaned and crackled. As hard as the elephantine revenant was hitting my door, it would break through the barricade before it even thought to try the windows.
 
-That was the first night I couldn't sleep. It wouldn't be the last.
+My gun. Where was my gun? Shit, I’d left it in my truck. I’d left it in the goddamned truck, back in the crew cab with the snow brush that stayed there even when winter was over.
 
-That night, Alex and I lay in our beds, pretending to sleep. We were waiting until Mom would fall asleep so that we could go out and see who was doing this.
+When winter was over…
 
-At 2:47 AM (I know because I checked my glow-in-the-dark watch), we crept toward the front door.
+I had an idea.
 
-The floorboards seemed louder in the darkness, each creak a gunshot in the silence. My heart hammered so hard I was sure it would wake Mom. Through the glass panel of our door, the streetlight cast everything in faint  yellow shadows.
+I pulled the area rug aside off of the trap door. I opened the trap door and dropped down into the crawlspace just as I heard the black deer roar again. I hit the crawlspace floor at the same time as the monster hit my front door hard enough that it splintered, and signalled its end.
 
-Something was at our doorstep. That thing was crouched.
+I knew it was still down here. I almost laughed as I thought of what the game warden had told me: “I think it’s a whole lot of overkill just for clearing snow. Like dropping napalm on a bee hive.”
 
-At first, my brain tried to make it normal, it seemed as if it was someone tying their shoe. But the shape was wrong. The proportions were wrong. Everything about it was wrong.
+My ankle throbbed. I thought my left hand was no good no matter what happened from there on out. It was hard getting the tank strapped to my back with just one hand. I had to roll around on the ground to position it just right. 
 
-Then it stood up.
+I got it on.
 
-It unfolded like a praying mantis, joints bending in ways that made my stomach turn. It kept rising until it was impossibly tall, its head level with our tall windows. In the dim light, I couldn't make out features, just the vague impression of rags or old skin hanging from its frame.
+I crawled toward the access door that let out on the side of my house. Above me, I heard the door and the barricade break. It sounded like an ogre snapping a tree and a steel beam at the same time. 
 
-Then it turned toward us, and two points of red light blazed where eyes should have been.
+I waited. I listened. I prayed. I don’t know if I said it out loud, but I prayed: “Please God, help that piece of shit learn to turn its antlers sideways.” 
 
-Alex's scream shattered the silence. I slapped my hand over his mouth, but it was too late. The thing outside wasn't there anymore. Not like it ran away. Like it had never existed at all.
+And then I heard it. I heard its monumental hooves clomping on my wood floor. I almost started laughing. I had to cover my mouth. Tears welled in my eyes. I thought I’d lose my shit. The thought of that stupid satanic Bambi looking around the cabin, no idea where I’d gone to. It was either the funniest thing in the world or there was a fracture run through the fundament of my psyche.
 
-Mom's footsteps thundered down the hall. "What are you boys doing?"
+I pushed out the access door. I crawled far enough away from the house so I wouldn’t burn. I saw Tooth. Her dead body was close to the house. She’d be taken up in the fire. I told myself I could cry later. I could cry when the deed was done. Yeah, I could cry when it was done. “I’m sorry, Tooth,” I managed to say. I bit my mouth shut before I’d lose my grip.
 
-We couldn't answer. We just pointed at the door with shaking fingers.
+I crawled far enough away while the black deer searched my cabin for me. I one-handedly set the front grip on my knee. I wrapped my good hand around the valve grip. And then I let her rip.
 
-She looked through the glass, then back at us. "There's nothing there."
+My flamethrower vomited fire all over the house.
 
-But when she said it, her voice cracked. And I noticed she didn't open the door to check.
+And then, my body spent and my mind unwilling to sit in the carriage of consciousness a moment longer, I passed out. I faded from consciousness to the score of that bloodthirsty idiot beast roaring as it burned to death. 
 
-I didn't sleep for the rest of the night. Neither did Alex. We lay in the dark, listening to every sound, the settling of the house became footsteps, the wind became whispers, and every car passing by made us hold our breath until the headlights faded.
+I don’t remember them, but I like to think that once I’d dropped off, I had very sweet dreams.
 
-For three days, nothing happened. No circles. No visitors. Just an oppressive quiet that felt like the world was holding its breath. Mom stopped pretending everything was fine. She moved us all into her room, as if we were all safe if we were to stay together.
+•
 
-On the fourth night, Alex and I were playing Crash Bandicoot, trying to pretend things were normal. The familiar sounds of the game almost made me forget. Until the room temperature plummeted between one breath and the next.
+I woke up in the closest community hospital, almost a hundred miles away. The game warden was there. He told me that someone called in the fire when they saw it from the air. I asked him if it was a crop-duster or what. He said he didn’t know.
 
-"Turn off the AC," Alex said, his breath now visible in the sudden cold.
+“Your house is worth shit now,” he said with the natural indelicacy of a man who regulates beer-swilling gun enthusiasts. “Truck’s okay, though. Hope you don’t mind, I looked around the cab and found clothes, whatever else I could find. Lucky you keep your license in the console. Probably saved yourself at least a little bit of trouble. Put it in your gym bag.” He nodded toward the hospital wardrobe. “It’s over in there.”
 
-"It's not on," I whispered.
+I nodded, unsure of what to say. I finally managed to say, “Thanks.”
 
-The air grew thick, viscous, like trying to breathe underwater. The game on the TV started to static, the cheerful music warping into something that hurt to hear. Then the screen went black, and in the reflection, I saw them.
+“Sure thing.” He reached out and, as awkwardly as a boss consoling a little-known employee with a hug for their personal tragedy, patted the knee of my good leg. “You’re one of us.”
 
-Two figures standing behind our beds.
+I laughed. I don’t know why, but I laughed. The game warden started laughing, too. I laughed and laughed and he laughed and laughed. Pretty soon a nurse put her head in my room to say, hey, didn’t we know there are people trying to rest in here?
 
-I tried to scream, but my lungs wouldn't work. An impossible weight pressed down on my chest. Through the paralysis, I felt something touch my face, boney fingers.
+“Sorry, sorry,” I said, waving her off, “we’ll keep it down.”
 
-The hairy long fingers covered my mouth, as if they were trying to cover up my screams.
+“Well, hell, you should be able to laugh,” the game warden said when the nurse went away. “Shit, if you can’t laugh after something like that, I don’t know…”
 
-Those red eyes hovered inches from mine, and this time, I could see what was behind them. Not a face. Just a hollow darkness that seemed to go on forever, like looking into an empty skull that held the night sky.
+We sat there in laughter’s silent afterglow. I think about it now—that’s one of the great things our species can do; we can still laugh after it’s all over.
 
-The pressure released all at once. I gasped, gulping air, just as Mom burst through the door and flipped on the lights.
+After a little bit longer, I asked the game warden, “You find a wolf’s body by the cabin?”
 
-Alex was sitting in the corner, facing the wall, completely still.
+“Yes, I did.” He leaned forward in his seat and whispered. “I cleaned that up for you. Keep you out of trouble, you know.”
 
-"Alex?!" I shouted..
+“What about the monster?”
 
-He turned slowly, mechanically. Blood trickled from his right nostril, and his eyes were blank, unfocused. When he spoke, his voice was flat, emotionless.
+The game warden screwed up his face in confusion. “What do you mean?”
 
-"They were here. The witches. They came through the ceiling. One sat on Javier. The other one made me watch."
+“The black deer. The gigantic goddamn black deer. That fucking thing. I hope it burned up good. Goddamnit, I hope it hurt like shit when it did, too.”
 
-"Watch what?" Mom asked, though by her expression, she already knew.
+“Alright, alright, take it easy now. Don’t get mad at me. I’ve got no idea what you’re talking about. What deer?”
 
-"What's coming," Alex said, smiling, but something else was wearing his face. "What you promised them."
+“There was a huge black deer. The biggest deer ever, I’d think. It got trapped in my house. I burnt it up. I burned that goddamn idiot monster to death.” Disorientation and a morphine drip dragged me further down into my hospital bed.
 
-"That's enough," my mother said. "You both come stay in my room. Tomorrow we'll have a priest come to this house to purify whatever is in here."
+I could see in the game warden’s eyes that he thought he was looking at a crazy woman. Maybe he was. I could tell, though, that they hadn’t found that black devil in the fire. Not that the game warden knew of, at any rate.
 
-Father Martinez arrived the next afternoon. He was an old friend of my mother's from church, in the end it was a small town after all. A man who'd blessed hundreds of homes. But when he stepped through our door, something changed in his face
+“I’m sure—hey, listen, I’ll talk to whoever they got investigating the fire. See if they found anything.”
 
-He walked through the house slowly, sprinkling holy water, murmuring prayers in Latin. When he reached our bedroom, he stopped. The temperature dropped. His hands began to shake.
+“Yeah. Yeah,” I said, “sure thing.”
 
-"How long has this been happening?" he asked my mother.
+“I do got one question for you, though.”
 
-"A few weeks," she replied.
+My eyes were fluttering and the morphine felt like a heavy blanket. I slurred my words when I said, “What’s your question?”
 
-He shook his head slowly. "No. This is older. Much older."
+The game warden stood up. He walked over to the hospital wardrobe. He reached down and picked up my gym bag. He came back over and sat in his seat next to my hospital bed. He unzipped the bag. 
 
-He continued his blessing, but as he raised the crucifix in our room, it fell from his hands. When he bent to pick it up, I saw his face go pale. He approached my Mom's ear and whispered "ya es muy tarde" (It's too late)
-
-Father Martinez backed toward the door. "I'm sorry," he whispered. "They're already inside. They've been inside for..." He looked at my mother with something like pity. "Since before."
-
-He left without finishing the blessing.
-
-Weeks passed. The visits stopped, no more circles at the door, no more red eyes in the darkness. Mom said the priest must have helped after all, but I knew she was lying. I'd started noticing things.
-
-She no longer cast a shadow.
-
-She stood outside our rooms at night.
-
-I could see her feet under the door, standing perfectly still for hours.
-
-She'd been collecting our hair while we slept, keeping the strands in a small wooden box that smelled like earth and decay.
-
-Alex hadn't been the same since that night. He slept more and more, sometimes for entire days.
-
-Mom said he was just tired, growing boys need their rest. But his skin was getting pale, almost translucent. I could see his veins turning dark beneath it.
-
-One night, I pretended to sleep when she came in. She stood over Alex's bed for a long time, then carefully cut a few strands of his hair with tiny scissors. She wrapped the hair in tissue and put it in the box with the others. Then she turned to me.
-
-She stood there for what felt like hours. Through my barely open eyes, I could see her face changing in the moonlight, one moment my mother's familiar features, the next something ancient and terrible.
-
-Finally, she leaned down close to my ear.
-
-"Soon," she whispered. "You're almost ready."
-
-That was three nights ago. Alex hasn't woken up since yesterday morning. Mom says he's just tired, but I can hear him breathing in a rhythm that doesn't sound human anymore. It sounds like two sets of lungs working together.
-
-She's been taking my hair now too. I pretend I don't notice, but I feel the cold metal of the scissors against my skin while I sleep.
-
-Alex just sat up in his bed. His eyes are open, but they're not his anymore. They're red.
-
-For the first time in weeks, I smile.
-
-'You made it,' I whisper, and he grins back with teeth that are too sharp, too many.
-
-Mom appears in the doorway, her shadow finally returned, but it's the wrong shape entirely.
-
-'My boys,' she says, and her voice holds such warmth, such love. 'Finally together.'
-
-I realize I haven't been fighting this at all. I've been waiting for Alex to catch up.
-
-We're a family [again](https://www.instagram.com/the._undying).
+And then, at least I knew that maybe I wasn’t crazy, because he lifted the dark green eggstone and said, “What the hell was this that you had in your [truck](https://www.reddit.com/user/DickinsonPublishing/)?”
