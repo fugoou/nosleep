@@ -1,202 +1,92 @@
-# My boss bought a taxidermied raccoon. Now he's a violent psychopath...
-I’ve been working at Frisky’s, my boss Jeff’s place, for about five years now.
+# The Price of Brotherhood
+My name's Chuck, and in the fall of 1996, I was an 18-year-old freshman at the University of Alabama, wide-eyed and desperate to fit in. I'd grown up a farm boy in a small town, the kind where everybody knows your business, and college was my shot at becomin' the first in my family to make it out into the big bad world. I wanted to be somebody. When my mama first got sick, I remember always thinkin' I could get smart enough to cure her- that didn't pan out, but my sense of optimism didn't break apart because of it- I just tried to motivate myself even more.  That's why I rushed Delta Kappa Epsilon, or DKE, the fraternity with the best parties, the best connections, and the kind of reputation that could open doors for someone like me. I didn't realize back then that some doors lead to places you can never come back from.
 
-Frisky’s has always been a bit grody. When they say a place is a “dive”, Frisky's is the low benchmark that other bars are diving towards.
 
-Recently, though, the crowd’s gotten much rowdier, ruder, and a whole lot more obnoxious. The let’s-pretend-we’re-dangerous vibe that Frisky’s used to cultivate has given way to a genuine oh-shit-this-place-is-actually-dangerous vibe.
+During rush- where groups of kids go house to house and sort of manflirt their way into the right fit- I'd mentioned my dad was a Clemson alumni, so the brothers all took to callin' me Stripes, both because Clemson's mascot was the tiger and also because "a cowardly tiger shows his true stripes at some point."  (The two schools were pretty big football rivals).  Pledging started out like I expected- me and the other pledges, twenty of us, all nervous and trying to act tough, got dragged out of our dorms at 2 a.m. by brothers in ski masks. They loaded us into vans, blindfolded, and drove us to some backwoods field. The air smelled like pine needles and cheap beer, and when they ripped off our blindfolds, we were standing in a circle of tiki torches, the brothers screaming at us to chug warm Natty Light or do push-ups in the mud until our arms gave out. When one pledge puked, another pledge had to chug a mouthful of beer to spit it in his face to "wake him back up".  It was humiliating, sure, but it felt like a rite of passage. I'd seen \*Animal House\*. I thought I knew what I was in for- gross I could handle, I grew up on a farm after all.  
 
-Jeff's solution? He bought a taxidermied raccoon and put it on the high ledge over the liquor shelf.
 
-“What the hell is that?” I said.
+My best friend in the pledge class was Tommy. He was from Mobile, a lanky kid with a quick laugh and a knack for defusing tension. We bonded the first weekend when we both got stuck cleaning the frat house kitchen after a party, scrubbing vomit off the linoleum while the brothers laughed and threw bottle caps at us. Tommy was the kind of guy who'd crack a joke about it, make it bearable. "We're basically Cinderella, man," he'd say, grinning. "Just waitin for our fairy godmother to show up with a cup for the keg."  Tommy was pre-med as well, so we got into a good habit of studying together at the libraries before line-up's; he was poor too, but he never asked for anything.  "I'm jus' happy to be doin this, man.  It's like a movie."
 
-“That, Jessie, is our new friend Roberto.” Jeff was smiling. I’d been under the impression that he didn’t know how to smile.
 
-“And Roberto’s a raccoon.”
+Our pledge educator, a fancy title for the brother in charge of training us on how to be brothers, was a senior named Kurt, a larger than life guy who loved chain smoking cigarettes and playing darts.  Most of the information we learned seemed important at the time- what year did DKE arrive on campus?  Who were our founding fathers? - but in reality, no one really remembered this shit after graduation.  What I remembered most about Kurt was the Time incident.  See, mid way into the process, two pledges get selected to show up to the house after a line up, the "smartest" and the "best drinker".  This is right after the pledge ed gets "fired" for us not learning fast enough, something dramatized and something that happens for every single pledge class, regardless of how well they're doing with retaining dumb dates and facts.  Tommy and I were the ones selected here- Tommy was the better drinker, I'd been doing the best on the weekly tests at lineup- and they immediately spouted out a super long quote to us and then asked us what time it was- if we couldn't recite the quote back perfectly, we took a shot of Jameson from a nearly full handle in front of us.  
 
-“You’ve got a very keen eye,” he said.
 
-“I see that Roberto the raccoon is dead.”
+The quote itself was challenging, but the hard part was trying to memorize it before the alcohol hit our systems; Tommy got it surprisingly fast, in a little under ten tries, while I hadn't even gotten through the first half.  "You can leave now Tommy- I know you've got class tomorrow- or you can stay here, and every time you go that's another chance for Chuck to hear the full quote" Kurt said with a dark gaze to his eyes.  "I reckon I'll stay then," Tommy said solemnly, giving me a knowing glance before rattling off the quote once more.  I got close, for whatever that was worth- but as the alcohol sunk in, both of us became sloppier and sloppier until eventually that handle was gone.  Two of us had drank it- and it was gone.  "No one ever fucks it up this bad!"  Kurt seemed furious, as he reached for another handle to put up on the table- thankfully, the other brothers stopped him, but I could see in his eyes this was genuine anger.  I don't remember much of the rest of the night, but I'm grateful I survived - Tommy and I were quick to pull trigger after we left the event, and fell asleep in his dorm, puking into buckets and regretting the full day of classes to come.  
 
-“Another very astute observation.”
 
-“Okay,” I said, “maybe I’m being unclear about what my concern here is. Jeff: Why did you put that dead raccoon up there?”
+The hazing got worse as the weeks went on. They'd wake us up at random hours, make us run laps around the house in our underwear at sun rise, force us to recite the Greek alphabet while they dumped ice water on us. I nearly dropped out when during one event one of the brothers announced loudly he was going to piss on us.  "Take your pick, pledges.  It only has ta' be one of you."  Our pledge class president- a position of unwanted responsibility, more than anything to be proud of- was a kid named Marty from Los Angeles, a lean dude with an unbreakable smile, and he quickly turned to scan over our ranks before pointing his finger at me.  "You never have to do any of the hard stuff Chuck."  Others started to agree, only for Tommy to jump in to my rescue right as I found myself preparing to walk.  "Chuck's got a girl waitin' on him later.  I'll do it, I don't care- it all washes off, right?"  I loved Tommy in that moment, but I didn't fully comprehend the sacrifice he'd made- he'd shown he was willing to put his neck on the line for us, and no one was going to forget that.  
 
-Jeff squinted his eyes and stared at Roberto the Raccoon. I could see the gears turning.
 
-“It’s going to help with the shitbirds screwing up my bar.”
+The next night for line-up, they lined us up in the basement and made us sing some of the old DKE drinking anthems while holding lit candles in a human pyramid while in our underwear. If you messed up a word, they'd take the candle from your hand press the hot wax onto your arm. At one point after fucking up twice in a row, one of the drunker brothers grabbed my arm with a grin and stared me in the eyes as he burnt into my skin.  "A tiger needs its color, right Stripes?!" I still have a scar on my wrist from that night. Tommy got it worse because he flinched when they pressed the wax, and they kept doubling the time as punishment. He didn't complain, though. He just winked at me afterward, like it was all part of the game.
 
-“How, though?”
 
-He took a beat to think about that. Then he said, “I don’t know how exactly. But it will. It told me it would.”
+By the time Hell Week rolled around, we were exhausted. The brothers had us running on no sleep, chugging liquor until we puked, and doing trust exercises that felt more like psychological torture. It started off with just loops of the same annoying song on over and over during lineups or events, which was annoying, but at least it was funny to riff about after.  But as time went on, shit got darker- one night they locked us in a room with no lights and played recordings of people screaming, while making us stand in a circle.  They told us to confess our worst fears while they mocked us, each pledge getting his own personal taste of torture. I admitted I was scared of ending up alone, a nobody. Tommy said he was afraid of drowning, which got a big laugh from the brothers. 'Good to know, pledge!" one of them shouted, bumping an elbow playfully into Kurt's side, and I saw a glint in their eyes that made my stomach twist.
 
-“The stuffed raccoon told you…?”
 
-“Jesus Christ!” He was almost yelling. His face turned red and he waved his hands like a schizophrenic vagrant at a ghost. “Quit being so nosy, Jess. Now it’s my goddamn bar, and it’s my goddamn raccoon, and I say it goes up there. No more questions. You got it?”
+Hell Week was held at an old plantation house the fraternity owned, about an hour outside Tuscaloosa, not officially registered to the fraternity through any university channels. It was a crumbling relic, surrounded by overgrown fields and a murky creek that smelled like decay. The brothers called it "The Lodge" and it was where DKE's initiation rituals had been held for decades. We arrived in a convoy of non-descript cars and beat-up trucks, the twenty of us pledges crammed into the back of three of them like cattle. The brothers were different out there- less rowdy, more focused. I thought I saw an older guy who'd always been kind of nice get into an argument early on with our ex-pledge ed Kurt, and I could've sworn he was actually crying, but that seemed crazy- we were just pledges to them, what was he worried about?  Still, something had shifted in the process now- they didn't joke as much, and their eyes had this intensity that made me feel like I was being watched, judged.
 
-He picked up a bottle of Jack Daniels and threw it on the ground. An explosion of whiskey and glass shards launched into the air. I made the sound I imagine frightened pigs make.
 
-Jeff stared at me, his respiration heavy and ragged as a pneumonic old man’s. I was afraid to move. 
+The first night at The Lodge was brutal. They split us into groups and made us compete in these sadistic games carrying buckets of rocks across the field, blindfolded, while they tripped us or sprayed us with hoses. If your group lost, you'd get "penalties" which meant more drinking or running until you collapsed. When two teams were eliminated, they had to each pick a member to take a hit in the balls from Kurt- who for the course of hell week had retitled himself "Hazemaster General".  Tommy and I were in the same group, and we kept each other going. He'd whisper stupid jokes when the brothers weren't looking, and I'd help him up when he stumbled. We were a team, you know? I thought we'd make it through together.
 
-“Roberto stays,” he said, his face quivering red.
 
-And then he stormed out into the parking lot.
+They had us staying in a large closet more or less, with a table set up in the center meant to take up as much space as possible, and eighteen chairs placed around it just tight enough to ensure no one could find the space to lay down.  We were allowed to do school work and study fraternity information but nothing else- no going back to our dorms, no going out for food, and even conversations were frowned upon, forcing us to resort to hushed whispers over the sound of a constantly blasting song - "The End" by the Doors - that we usually got away with.  I learned down the line that newly initiated brothers from the year before were supposed to be finding excuses to sneak in to bring us food through out the week, but the guys we had were either lazy or hated us; I think at one point we got a bag of chips.  For our real dinners, brothers visited local foreign food markets, combining the grossest range of things they could find ranging from clam juice to sheep stomach and even deep fried insects, though it was better than drinking on an empty stomach.  I tried to keep my spirits up by focusing on classwork; Tommy and I had our lab final the next week, and at least we could study together.  
 
-•
 
-A few nights later we had a pretty good crowd of assholes: A biker gang. Or, a gang of men who were trying to represent themselves as a biker gang (meaning they likely did not have the bona fides of homemade Aryan Nations tattoos and access to a functioning crystal methamphetamine laboratory). They were doing that thing bullies do where they “accidentally” bumped their porky shoulders into people. They loudly yelled while looking around to make sure people could hear them loudly yelling.
+The second night was a little scarier.  Brothers set up a lightbulb in one of the darker corners of the room and would call us in one by one in our underwear, forcing our heads up as our eyes strained against the light, and they'd force us to try to read off the small text on it's underside before running us through a bunch of random fraternity knowledge related questions.  When we were wrong, we took a large bite from an onion on our necks, reciting a dumb simple quote- "I'm always wrong, I'm never right, in fact I'll take another bite, sirs."  Marty was allergic to onions, so they had him do ghost peppers instead- I could see him growing more and more red, though his stomach was so empty and raw that he couldn't manage to puke up anything.  Just a lot of painful dry heaving and wretching.  Tommy managed to find the silver lining, though.  "They thought they were gonna starve us, huh?  I fuckin' love onions!"  
 
-Their leader was a guy who I would’ve guessed worked at H&R Block, if not for his leather vest stitched with associational patches. H&R Biker kept coming around the bar and trying to serve himself.
 
-“You can’t come back here,” I said. “And you guys need to chill, or I’m going to ask you to leave.”
+The third night was the scariest night I'd experienced so far.  Kurt- or Hazemaster General, as he'd been insisting we call him- assigned each pledge someone to go under the light with, whom he referred to as our "thunder buddy", where both parties needed to know each question.  The quizzes got a lot more difficult, and so did the screaming, and they'd purposefully paired people who'd been good at retaining the information with people who weren't in order to ensure fuck ups all throughout the night.  Tommy was my thunder buddy luckily, and we did alright- others, not so much.  Marty and his thunder buddy, a kid from Florida named Sam, spent nearly two hours straight in there towards the tail end of the night, coming back to our room well past sun rise.  Sam was speechless, shaking as pale as a ghost in the corner, and Tommy skipped over a few seats to check in with him.  "You don't have ta finish this man.  None of us are gonna stop being your friends- these guys can't actually stop you from just walking out of here dude.  If it's botherin' you, jus' like..." A sense of recognition seemed to hit Sam's face, as if he realized for the first time all week this was still possible, "...leave."  
 
-“Oh yeah?” H&R Biker said. He lifted his shirt, displaying the pistol tucked between his overhanging belly and his dungarees.
 
-I tightened my lips and said nothing. I do not like guns in the bar. Guns and booze are a bad, bad mix. Their combined presence anticipates events like ATF raids, asset forfeiture, and condemnation proceedings. I walked away.
+Marty immediately tried to jump in for damage control, but once the idea was seeded in his head, Sam was already packing his bags.  The room was silent enough to hear a needle drop, other than Tommy who kept quietly encouraging Sam despite Marty's attempts to sway him.  We'd had a couple of kids drop out by this point, but walking out the door with less than a week left was practically unheard of- still, Sam had never been as into it as others, he was a legacy which meant he got an automatic bid because of someone in his family and frankly I was shocked he'd made it this far, he was way too soft for some of the shit these guys threw at us.  As he forced his way through the brother standing guard at the door, who seemed shocked but made no efforts to stop him, Marty stood from his seat by the door and brazenly tried to shove a finger into his face for one last plea. "Y-you can't just... you can't just abandon your thunder buddy!  Do you know what they're going to do to me?!"  
 
-A while later Jeff came out of the office. I guess he noticed something was wrong.
 
-He came up to me and placed his hand on my shoulder, which was unusual because Jeff was not a physically affectionate (or even physically comfortable) person. “Jess, what’s wrong? You seem troubled.”
+The next morning, we found out.  By the time the fourth night rolled around, Marty was on the verge of collapse- pale as paper, shaking consistently, and covered in bruises far beyond child's play. He literally couldn't speak after, but we'd find out later via a handheld camcorder that he'd been singled out for the "gauntlet of truth," a ritual where he had to recite the fraternity's history flawlessly. Each misstep—be it a stammered date or a forgotten founder’s name—brought a swift, punishing blow, either with a paddle or a fist. One senior, his breath heavy with whiskey, landed a stinging backhand across Ethan’s cheek when he fumbled the founding year, splitting his lip and knocking out one of his canine's in the process. Another brother’s paddle thudded into Marty's shin when he missed a Greek letter in the chant, the bone visibly warped through the skin of his scrawny legs come line-up that night. A drunken senior describing his knees buckling, but that he was yanked upright by his hair, forced to continue as sweat and blood mingled together, dripping onto the floor whilst he crossed the finish line.  The brothers’ jeers grew louder, their eyes gleaming with a mix of sadistic glee and tradition-fueled fervor, as Marty's voice cracked but persisted, into a weak semblance of victory when he crossed the line.  Brotherhood.
 
-I shook my head, avoiding eye contact while I wiped down the bartop. “Nothing. Everything’s fine.” I wasn’t very convincing, as you might guess. I can lie as well as the next gal, but not when I’m scared.
 
-One of the regulars, a bawdy old skeeze with missing teeth, and untrimmed facial hair developing into an accidental handlebar mustache, whose name was Hank, leaned over the bar and told Jeff, “One of those Hell’s Angel wannabes has a piece.”
+The hazing that followed was by all intents and purposes kind of fun.  Questions shifted from fraternity knowledge to sillier things like "which brother gets the most girls?"  I found myself holding a beer while lined up in the hall way at one point, even cracking a smile as Marty managed to pull off a shotgun despite his hobbled circumstances.  Tommy at one point wrapped an arm around my shoulder and pulled me close, the optimism in his voice sending shivers up my spine.  "Tonight could be the night, man.   Tonight we might be done!"  
 
-“A gun?”
 
-“Yep,” Hank said, nodding toward the guy who’d flashed me his pistol, “the one who looks like the fat feller from *Seinfeld*. He’s packing.”
+We weren't.  On the fifth night, things changed for the worst. They gathered us in the basement of The Lodge, a damp, stone-walled room lit by a single bulb hanging from the ceiling. The air was thick with mildew, and there was this faint, metallic smell I couldn't quite place. The brothers were all there, wearing these creepy black robes with hoods, like something out of a bad horror movie. The chapter president, a senior named Garrett, stepped forward. He was a big guy, pre-law, with a smile that never reached his eyes. "Tonight," he said, "we separate the men from the boys. DKE isn't just a fraternity. It's a brotherhood forged in sacrifice. If you want to be one of us, you have to prove you're willing to pay the price."
 
-“I see,” Jeff said. “Let me think about what I should do. *Que le grand raton laveur nous guide*.”
 
-Me and Hank traded glances. Both of us were probably confused by Jeff speaking what sounded like French, especially because he was a Freedom Fries guy. We watched him reenter his office.
+I thought he meant more hazing, maybe something worse than before. I was wrong.
 
-“What was that about?” I said.
 
-Hank shrugged and sipped his beer before offering this philosophical gem: “The French, the French, a very strange race; they fight with their feet and fuck with their face.”
+They handed each of us a knife, small, sharp, with a bone handle carved with the DKE crest. Garrett explained the ritual. "The Lodge demands loyalty," he said. "It demands blood. Every pledge class gives something to keep the balance. Those who give the most are rewarded. Those who don't- well, they don't belong." He gestured to the floor, and I noticed for the first time that there were stains on the stone, dark, uneven patches that looked too much like dried blood.
 
-Jeff came almost right back out of the office, then around the counter and behind me. He climbed up on the back bar. I saw something shining silver in his hand. It was a needle. 
 
-Jeff stuck the needle into Roberto the Raccoon’s chest and said, “*Grand raton laveur, donne la sagesse de ton sang*.” Then he stuck out his tongue and pushed the needle through the tip.
+My heart was pounding, but I told myself it was just theatrics. Frats did weird stuff, right? Secret handshakes, creepy rituals, it was all part of the mystique. But then Garrett called out five names, including Tommy's. They had each been selected by cabinet for some slight- a wrong answer, an unwarranted chuckle, or maybe even because they just looked at someone the wrong way.  The chosen pledges were led to the center of the room, and the rest of us were told to stand against the walls. The brothers started chanting in a language I didn't recognize, low and guttural, like a prayer to something ancient. Tommy looked at me, his eyes wide, and I saw real fear there for the first time.
 
-Me and Hank looked at each other again, this time clear evidence of alarm on both of our faces, both of us completely flabbergasted. Jeff got down from the back bar. He removed the needle from his tongue and tucked it under the wristband of his watch. Blood dribbled down over his lips. It ran over his chin like a Halloween vampire mask. 
 
-He approached H&R Biker and his henchmen at the table where they were sitting.
+They blindfolded the five pledges and tied their hands behind their backs. Garrett said, "The Lodge has chosen. To join us, you must offer a sacrifice. One of these five will pay the price tonight. The rest of you will decide who." My stomach dropped. This wasn't hazing. This was something else, something wrong. I wanted to run, to grab Tommy and get the hell out, but the brothers were watching us, their knives glinting in the dim light.
 
-H&R Biker looked up at Jeff. “What the hell do you want?”
 
-The speed and power of Jeff’s violence stunned me. He shot his rigid palm from his side like a pneumatic nailgun rocketing out a nail, and smashed H&R Biker’s nose flat into his face. The way the blood exploded from the guy’s nose reminded me of stepping on a fast food ketchup packet. Before I could really understand what was happening, Jeff had pulled the man’s gun from his waistband, cocked it, and then pressed the barrel against his forehead.
+They gave us a choice: pick one of the five to die, or the ritual would claim more. "The Lodge always gets its due," Garrett said. "If you don't choose, it chooses for you."  The other pledges were panicking, whispering, trying to figure out what to do. Some guy, a scrawny kid named Ryan, started crying and saying he didn't sign up for this. A brother slapped him hard and told him to shut up.
 
-Several of the other bikers reached for their waistbands, their backs, or their vests. Jeff discharged a round in the middle of the table before bringing it back to H&R Biker’s skull. “The first one of you to touch your guns gets your buddy plugged. You are desecrating the Temple of Roberto. I am His apprentice. I warn thee, who would anger the Great One Who Eats Trash!”
 
-The bikers looked at one another’s faces. I think each confederate was gauging whether their fellows were planning on making a move. But then Jeff started murmuring crazy whispers with the sound harshly clipped off at the end; the quiet babble of lunatics before they explode. I think they were afraid to even move. They must’ve been, I was, and Jeff was on my side. 
+I looked at Tommy, blindfolded and kneeling in the center of the room. I wanted to save him, I swear I did. But I was scared- scared of dying, scared of losing everything I'd worked for. DKE wasn't just a frat; it was a ticket to a better life. Garrett had told us stories about alumni who were CEOs, senators, guys who ran the world because of the connections they'd made here. I wanted that. I needed it.
 
-Jeff squeezed the pistol grip so tight that his suntanned fingers blanched white all the way through.
 
-After a minute, one of the bikers said, “We’ll go. Just let us leave, and we’ll get up and walk out. We’re sorry about the trouble.”
+The pledges started arguing, throwing out names. Some said Ryan, because he was weak, always whining. Others pointed at a guy named Chris, who'd mouthed off to the brothers one too many times. But a few kept looking at Tommy, saying he was too soft, too much of a joker. I tried to defend him, but my voice was shaking, and nobody listened. The brothers didn't care who we picked; they just wanted it done.
 
-A minor chorus of yeahs and okays were halfheartedly mumbled, indicating a majority vote.
 
-“You can’t desecrate His Temple. Those who trespass before Him will be piled upon the refuse of His dumpster and scattered by His Nursery’s Great Feast.” Jeff waved the gun and screamed. “Do you understand?”
+In the end, we voted. It was anonymous, scraps of paper dropped into a box. I wrote Ryan's name, I swear I did. But when Garrett counted the votes, Tommy's name came up the most. I don't know if it was rigged, or if the other pledges really turned on him. Maybe I should've fought harder, screamed, done something. But I didn't. I just stood there, frozen, as they untied Tommy and led him to a stone altar at the far end of the basement.
 
-“We understand. Sir, we understand. I promise we understand,” their spokesman said.
 
-Jeff seemed to be considering it. Finally, he dropped the gun down by his side. “Then go, and may Le Grand Raton forgive you and bless your dreams with His omens.”
+The chanting got louder, and Garrett raised his knife. Tommy was sobbing now, begging, saying he didn't want to die. I couldn't look at him, couldn't face the betrayal in his eyes. The brothers told us this was the final test: if we wanted to be DKE, we had to participate. They handed me the knife and told me to make the first cut - "You're his thunder buddy!" - and I did.  My true fucking Stripes finally showed.  I fucking did it, okay?  It's hard to find the words to describe it, but I felt like I was outside my body, watching someone else move my hand. I told myself it was just a test, that they'd stop it at the last second. But they didn't.
 
-The bikers left. Jeff went into his office and sat down. I checked on him before I closed up for the night. He was asleep in his chair.
 
-•
+I won't describe what happened next. I can't. The sounds, the smells, the way the room seemed to pulse with something alive and hungry, it's all burned into my brain. When it was over, Tommy was gone, and the brothers were clapping, saying we'd finally proven ourselves. They told us the Lodge was pleased, that we'd secured our futures. Jobs, money, power- it was all ours now, sealed in blood.
 
-Over the next few weeks, my boss’s behavior changed, becoming more bizarre by the day.
 
-Once, when it was my shift to open the bar, I walked in and found him on his knees, facing Roberto the Raccoon, bowing his head and speaking rapid-fire French. I thought of Abraham smashing his father’s idols. The patriarch wouldn’t have gone in for Jeff’s heresies, that’s for sure.
+The end of Hell Week was a blur. They burned Tommy's clothes in a bonfire and swore us to secrecy. The Lodge protects its own, Garrett said. But it punishes traitors.  I didn't sleep for days, seeing Tommy's face every time I closed my eyes. I thought about running, going to the cops, but what could I say? Who'd believe me? DKE had alumni everywhere, cops, judges, politicians. I'd seen the photos on the walls of The Lodge, generations of brothers smiling like they knew they were untouchable.
 
-But whatever Jeff was doing was working. The instigative patrons shaped up or shipped out, and the bar became a reasonably safe place again, while still maintaining a modestly rowdy reputation.
 
-But as Jeff reached each new, bizarre toll on his lunatics’ turnpike, Frisky’s customer base shrunk smaller and smaller until barely even our regulars showed.
+I stayed. I became a brother. They gave me a pin, a handshake, a place at the table. The other pledges who made it through never talked about that night, but I saw it in their eyes, the same guilt, the same fear. We were bound by what we'd done, and there was no going back.
 
-And that was before things even really got nuts.
 
-•
+Now, I'm 47, with a corner office at a law firm in Birmingham. I've got a wife, two kids, a house with a pool. I'm living the American Dream, just like Garrett promised. But every year, when the leaves turn and the air gets crisp, I think about Tommy. I think about the choice I made, the knife in my hand, the blood on the stone. I wonder if I could've saved him, if I could've run and never looked back.
 
-My phone woke me up. It was my day off and I had wanted to sleep late, but I was also expecting a birthday present from my aunt, and I had to keep an ear out for the delivery driver’s call.
 
-I looked at my phone. It told me both that it was four in the morning and that Jeff was calling. I answered. “Yeah?”
-
-“*Jess, I have something very important to show you. Can I pick you up?*”
-
-I sat up in bed. “Jeff—well…what—do you know what time it is?”
-
-“*I need to show you. It’s very important that I show you. I’m waiting outside. Please, I just*—” it sounded like he was about to cry “—*I need your help, Jess*.”
-
-“Yeah. Yeah, okay, just give me a minute. Let me get dressed.”
-
-•
-
-I watched the lightless green-black blur of the forest go by my window as Jeff drove us further out into the sticks. We’d been driving for an hour. The homesteads changed until they were all up long dirt drives and hidden behind trees, and soon after that there were no houses at all. I saw animals’ eyes glowing yellow and red in the darkness of the woods, daylight still more than an hour away.
-
-Jeff hadn’t spoken the entire drive. So I’d tried to sleep until we got there (wherever “there” was). But I kept hearing him whisper to himself, those whispers with words harshly clipped at their ends. He said, several times, “*Sacrifiez-la en holocauste sur un tas d’ordures*.” I didn’t know what the whole phrase meant, but it’s never a good sign when someone suffering a nervous breakdown whispers the word “holocaust”. I couldn’t imagine its meaning was very different in French.
-
-“Thanks for coming out here with me, Jess. I just have something important to show you.” Jeff nodded his head while he spoke, like he was a churchgoer affirming the truth of a testimony.
-
-“Yeah, no problem. I’ve kind of been—” I stopped myself.
-
-Jeff turned his head to look at me while he drove. “What? What is it? You can tell me.”
-
-I turned to face him, too. I couldn’t believe it, I thought I might cry. “I’ve been really worried about you. Like—” I nervously laughed through my clogged nose, wiping the corner of my eye “—like really, really worried about you.”
-
-I looked into his eyes, waiting. I jumped in my seat when he started laughing. And it was weird, forced laughter. And it got louder and louder, until it was wild, unhinged; laughter that had no connection to humor. He suddenly just clamped down on it, the sound of someone closing a door on a loud laugh-tracked sitcom.
-
-“That’s crazy, Jess. That’s really a crazy thing to say. I’m doing so good. I’m doing the best I’ve ever been.” He whipped the steering wheel suddenly to the right. I screamed. He didn’t even respond to me screaming.
-
-“Jeff, where are we going? You’re starting to scare me.”
-
-“Ah, well…we’re here now. You’ll see right now. You’ll see.”
-
-He pulled off on a dirt road. After a minute, he stopped the car in a clearing inside a dense circle of pines. “Here we are.”
-
-It took me a minute to understand what the car’s headlights were illuminating. Maybe because they were familiar physical phenomena and objects, but in places where I’d never seen them before. And like sliding the last puzzle piece into place, it became clear. There was a shovel and a big dirt hole, a tarp and bungee cords right beside the freshly dug—
-
-It was a grave.
-
-“Jeff—” My speech was interrupted by blunt force trauma; I felt a distant pain and saw a bright flash of light. I’d been hit so hard that he’d knocked me out with the first punch.
-
-I came to, and it seemed like only seconds later. Jeff was dragging me by my legs toward the unmarked grave. I screamed and I kicked at his hands. He grabbed me by my ponytail and whipped me forward. He tore hair from my scalp. He was so much stronger than he looked. It caught me unaware and he seized on my shock. I felt his workboot slam into my ribs, heard the crunching sound and shooting pain when they broke.
-
-“Jess, don’t. Don’t make this harder than it has to be. Roberto has chosen you.”
-
-Whatever was going to happen was going to happen. My broken ribs meant I was incapacitated. Every breath was agony. I cried even though it hurt something awful to let myself cry, even if I kept quiet and didn’t move while I did.
-
-I watched him walk back to his still-idling car and open the trunk before taking something out of it. He walked back over next to me, and I saw he was holding the taxidermied raccoon. He placed it right next to my head, then bent down close and whispered to me, “This is a great honor for you.” I heard him sniffling. “It’s a shame He chose you, but…it’s also a great honor. You’re going to go to paradis des ratons laveurs. You’ll see. You’ll get an entire new life, resurrected as one of Roberto’s very own. And you’ll have all the trash you could ever eat, Jess. There’ll be no more pain. There’ll just be overflowing dumpsters and a new ringed-tailed family to keep you in their gaze. You’ll see. You’ll—”
-
-“Jeff!” I heard someone yell. I recognized that voice. How did I know that voice? “Let her go,” the voice said, and I heard the sound of a shotgun cocked.
-
-I managed to turn my head. It was Hank. He was flanked on all sides by almost a half-dozen coonhounds: a Treeing Walker Coonhound, a few Redbones, two Bluetick Coonhounds, too.
-
-Jeff hissed. “L'ennemi juré infernal!”
-
-“Jessica,” Hank said. “Can you drive that car?”
-
-I croaked, hardly able to speak. “I don’t think I can.”
-
-Hank was quiet for a short moment. “Well,” he then said, “you’re going to have to.” Hank whistled—it was loud and sharp, an expert’s taxi hail. “Louie,” he said, looking at one of the Bluetick hounds, who responded by stiffening his body from his snout to the tip of his tail, “emmène-la à la voiture.”
-
-Louie the Bluetick Coonhound came and dipped his neck low next to me. He nudged my arms with his nose. I understood. I wrapped my arms around his neck. It was unbearable pain. But I understood the only other option was to stay here. And I didn’t want to see what happened next.
-
-Hank kept his shotgun trained on Jeff as I completed the excruciating and tree-sap-slow process of getting in the driver’s seat of Jeff’s car.
-
-“L’entourer!” Hank shouted, and the other five coonhounds surrounded Jeff and the taxidermied raccoon. Then, Hank backed up to the car, keeping the shotgun barrel level with Jeff’s head. He knocked on the window and I rolled it down.
-
-“Hank, I don’t think I can drive,” I said.
-
-“You ain’t got a choice now, kid. Cause I got business to take care of, and you can’t be here to see it.”
-
-I looked over at Jeff. “What are you going to do with him?”
-
-He looked at me, sucked his teeth and looked over his shoulder. He used his hand to signal directions as he spoke. “You drive out the way you came in. When you come to the main road, go left. It’s gonna take you longer, but keep on that road all the way until you see signs for the parkway. Take the parkway south. You’ll be back in town inside of an hour. I’ll come find you.”
-
-“What are you going to do, Hank?”
-
-“Goodbye, Jessica. Go now. Go!”
-
-•
-
-Maneuvering the car with my broken ribs hurt worse than anything I’d ever felt. But I managed to make it all the way home without crying. When I got to my parking lot, though, I broke down. And even though the pain was incredible (or maybe because it was) I bawled my eyes out, sitting in [the car](https://www.reddit.com/user/DickinsonPublishing/).
+But I didn't. I chose this life, and I paid the price. So did Tommy. And the worst part? If I had to do it again, I'm not sure I'd choose any different.  Brotherhood, man.
