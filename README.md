@@ -1,92 +1,192 @@
-# The Price of Brotherhood
-My name's Chuck, and in the fall of 1996, I was an 18-year-old freshman at the University of Alabama, wide-eyed and desperate to fit in. I'd grown up a farm boy in a small town, the kind where everybody knows your business, and college was my shot at becomin' the first in my family to make it out into the big bad world. I wanted to be somebody. When my mama first got sick, I remember always thinkin' I could get smart enough to cure her- that didn't pan out, but my sense of optimism didn't break apart because of it- I just tried to motivate myself even more.  That's why I rushed Delta Kappa Epsilon, or DKE, the fraternity with the best parties, the best connections, and the kind of reputation that could open doors for someone like me. I didn't realize back then that some doors lead to places you can never come back from.
+# The creepiest night in my life in Detroit
+Hey, I decided to post my new story here before posting on my YouTube channel.
 
+I never thought I’d be the kind of man who aims his rifle scope at another living person.  
+But boredom has a way of twisting your routines into something you’d rather not admit out loud.
 
-During rush- where groups of kids go house to house and sort of manflirt their way into the right fit- I'd mentioned my dad was a Clemson alumni, so the brothers all took to callin' me Stripes, both because Clemson's mascot was the tiger and also because "a cowardly tiger shows his true stripes at some point."  (The two schools were pretty big football rivals).  Pledging started out like I expected- me and the other pledges, twenty of us, all nervous and trying to act tough, got dragged out of our dorms at 2 a.m. by brothers in ski masks. They loaded us into vans, blindfolded, and drove us to some backwoods field. The air smelled like pine needles and cheap beer, and when they ripped off our blindfolds, we were standing in a circle of tiki torches, the brothers screaming at us to chug warm Natty Light or do push-ups in the mud until our arms gave out. When one pledge puked, another pledge had to chug a mouthful of beer to spit it in his face to "wake him back up".  It was humiliating, sure, but it felt like a rite of passage. I'd seen \*Animal House\*. I thought I knew what I was in for- gross I could handle, I grew up on a farm after all.  
+I’d rented this apartment in Detroit, East Side. Cheap place, temporary deal—three months tops, just to be close to a contracting job. It was one of those tall, worn-down complexes: brown brick, peeling paint, neighbors arguing in the hallways. The rent was low because the landlord knew no one sane wanted to stay here longer than necessary. And me? I didn’t care. I wasn’t planning on putting down roots.
 
+Evenings were the problem. Work was boring, sure, but at least it kept my hands busy. Back home, I had nothing. No cable—I wasn’t about to waste money on that. Mobile data was enough, and signing a long-term internet contract didn’t make sense when I knew I’d be gone before the ink dried. I had a couple books, but I burned through those in the first week. That left me with long nights, a thin mattress, and silence thick enough to choke on.
 
-My best friend in the pledge class was Tommy. He was from Mobile, a lanky kid with a quick laugh and a knack for defusing tension. We bonded the first weekend when we both got stuck cleaning the frat house kitchen after a party, scrubbing vomit off the linoleum while the brothers laughed and threw bottle caps at us. Tommy was the kind of guy who'd crack a joke about it, make it bearable. "We're basically Cinderella, man," he'd say, grinning. "Just waitin for our fairy godmother to show up with a cup for the keg."  Tommy was pre-med as well, so we got into a good habit of studying together at the libraries before line-up's; he was poor too, but he never asked for anything.  "I'm jus' happy to be doin this, man.  It's like a movie."
+So I turned to the only hobby I’d brought with me: my Remington 700. Bought it second-hand at a gun show a few years back. Cleaned it up myself, fitted it with a decent scope. Nothing fancy, just a reliable bolt-action rifle. I’d never fired it at anything living, and I didn’t plan to. But I liked the weight of it, the precision. Looking through the glass made me feel steady, like the world narrowed into a clean circle where everything was sharp and in focus.
 
+At first, it was innocent. I’d set it on the table by the window, draw the curtains just enough to leave a slit, and line up the scope with rooftops and street signs. Ranging distances, testing how steady my hand was after coffee, after a long day, after two beers. Just practice.
 
-Our pledge educator, a fancy title for the brother in charge of training us on how to be brothers, was a senior named Kurt, a larger than life guy who loved chain smoking cigarettes and playing darts.  Most of the information we learned seemed important at the time- what year did DKE arrive on campus?  Who were our founding fathers? - but in reality, no one really remembered this shit after graduation.  What I remembered most about Kurt was the Time incident.  See, mid way into the process, two pledges get selected to show up to the house after a line up, the "smartest" and the "best drinker".  This is right after the pledge ed gets "fired" for us not learning fast enough, something dramatized and something that happens for every single pledge class, regardless of how well they're doing with retaining dumb dates and facts.  Tommy and I were the ones selected here- Tommy was the better drinker, I'd been doing the best on the weekly tests at lineup- and they immediately spouted out a super long quote to us and then asked us what time it was- if we couldn't recite the quote back perfectly, we took a shot of Jameson from a nearly full handle in front of us.  
+Then, one night, I slid the crosshairs across the building opposite mine. Another twelve-story complex, maybe two hundred yards away. A whole wall of glowing rectangles, each window a little TV screen playing a different channel. And once I started, I couldn’t stop.
 
+The first night hooked me right away. Dozens of glowing windows across the street, each one a private stage I wasn’t supposed to see. People arguing, eating, laughing, living. I told myself it was just curiosity, just something to pass the time. But the truth is, it felt wrong—and that was part of the pull. The fact that they couldn’t see me, while I could see everything, gave me a rush that was half excitement, half guilt. Like I’d crossed into a place I wasn’t supposed to be, and found it too fascinating to leave.
 
-The quote itself was challenging, but the hard part was trying to memorize it before the alcohol hit our systems; Tommy got it surprisingly fast, in a little under ten tries, while I hadn't even gotten through the first half.  "You can leave now Tommy- I know you've got class tomorrow- or you can stay here, and every time you go that's another chance for Chuck to hear the full quote" Kurt said with a dark gaze to his eyes.  "I reckon I'll stay then," Tommy said solemnly, giving me a knowing glance before rattling off the quote once more.  I got close, for whatever that was worth- but as the alcohol sunk in, both of us became sloppier and sloppier until eventually that handle was gone.  Two of us had drank it- and it was gone.  "No one ever fucks it up this bad!"  Kurt seemed furious, as he reached for another handle to put up on the table- thankfully, the other brothers stopped him, but I could see in his eyes this was genuine anger.  I don't remember much of the rest of the night, but I'm grateful I survived - Tommy and I were quick to pull trigger after we left the event, and fell asleep in his dorm, puking into buckets and regretting the full day of classes to come.  
+It’s funny how boredom makes you cross lines you swore you’d never cross.  
+Loneliness teaches you habits you’d never admit in daylight.
 
+Over the next few nights, the habit stuck. I’d come home, heat up some leftovers, maybe drink a beer, then pull the curtains just enough and lean into the scope. The apartment complex across the street turned into my private theater. Dozens of shows, none of them knowing they had an audience.
 
-The hazing got worse as the weeks went on. They'd wake us up at random hours, make us run laps around the house in our underwear at sun rise, force us to recite the Greek alphabet while they dumped ice water on us. I nearly dropped out when during one event one of the brothers announced loudly he was going to piss on us.  "Take your pick, pledges.  It only has ta' be one of you."  Our pledge class president- a position of unwanted responsibility, more than anything to be proud of- was a kid named Marty from Los Angeles, a lean dude with an unbreakable smile, and he quickly turned to scan over our ranks before pointing his finger at me.  "You never have to do any of the hard stuff Chuck."  Others started to agree, only for Tommy to jump in to my rescue right as I found myself preparing to walk.  "Chuck's got a girl waitin' on him later.  I'll do it, I don't care- it all washes off, right?"  I loved Tommy in that moment, but I didn't fully comprehend the sacrifice he'd made- he'd shown he was willing to put his neck on the line for us, and no one was going to forget that.  
+Most people would probably call it sick. And maybe it was. But for me, it was survival. Better to be the watcher than the man alone in the dark with nothing but his thoughts.
 
+When you stare into other people’s lives long enough, you realize how predictable we all are. Most windows replay the same story, night after night.  
+But every now and then, something new slips through the cracks.
 
-The next night for line-up, they lined us up in the basement and made us sing some of the old DKE drinking anthems while holding lit candles in a human pyramid while in our underwear. If you messed up a word, they'd take the candle from your hand press the hot wax onto your arm. At one point after fucking up twice in a row, one of the drunker brothers grabbed my arm with a grin and stared me in the eyes as he burnt into my skin.  "A tiger needs its color, right Stripes?!" I still have a scar on my wrist from that night. Tommy got it worse because he flinched when they pressed the wax, and they kept doubling the time as punishment. He didn't complain, though. He just winked at me afterward, like it was all part of the game.
+It was on the eighth night that I noticed him.
 
+A window on the eighth floor. At first glance, nothing unusual—just a dim, bare room with yellowing wallpaper and a single bed pushed into the corner. A naked bulb dangled from the ceiling. The rest was empty: a couple chairs stacked in the corner, a rug that had seen better decades. The kind of space you’d expect in a building like this—cheap, forgotten, temporary.
 
-By the time Hell Week rolled around, we were exhausted. The brothers had us running on no sleep, chugging liquor until we puked, and doing trust exercises that felt more like psychological torture. It started off with just loops of the same annoying song on over and over during lineups or events, which was annoying, but at least it was funny to riff about after.  But as time went on, shit got darker- one night they locked us in a room with no lights and played recordings of people screaming, while making us stand in a circle.  They told us to confess our worst fears while they mocked us, each pledge getting his own personal taste of torture. I admitted I was scared of ending up alone, a nobody. Tommy said he was afraid of drowning, which got a big laugh from the brothers. 'Good to know, pledge!" one of them shouted, bumping an elbow playfully into Kurt's side, and I saw a glint in their eyes that made my stomach twist.
+But the figure on the bed was what stopped me.
 
+He was sitting cross-legged, back straight, facing the wall. His head was completely bald, skin pale under the light. He was shirtless, skinny to the point of wrong—his spine curved under the skin like a row of knots pulled too tight. His arms dangled long at his sides, fingertips brushing his knees. He didn’t move. Not once.
 
-Hell Week was held at an old plantation house the fraternity owned, about an hour outside Tuscaloosa, not officially registered to the fraternity through any university channels. It was a crumbling relic, surrounded by overgrown fields and a murky creek that smelled like decay. The brothers called it "The Lodge" and it was where DKE's initiation rituals had been held for decades. We arrived in a convoy of non-descript cars and beat-up trucks, the twenty of us pledges crammed into the back of three of them like cattle. The brothers were different out there- less rowdy, more focused. I thought I saw an older guy who'd always been kind of nice get into an argument early on with our ex-pledge ed Kurt, and I could've sworn he was actually crying, but that seemed crazy- we were just pledges to them, what was he worried about?  Still, something had shifted in the process now- they didn't joke as much, and their eyes had this intensity that made me feel like I was being watched, judged.
+I held my breath, watching him. Maybe he was meditating. Maybe asleep sitting up. Maybe dead. Hell, maybe it wasn’t even a person—maybe a mannequin someone left behind. I tried to convince myself of all those things, but none of them stuck. Something about him made the hair rise on the back of my neck.
 
+I swept the scope across the wall he was staring at. Nothing there. No posters, no pictures, not even cracks that might hold his attention. Just peeling wallpaper, water stains, the color of old teeth. I shifted back to him. Still motionless. Still staring.
 
-The first night at The Lodge was brutal. They split us into groups and made us compete in these sadistic games carrying buckets of rocks across the field, blindfolded, while they tripped us or sprayed us with hoses. If your group lost, you'd get "penalties" which meant more drinking or running until you collapsed. When two teams were eliminated, they had to each pick a member to take a hit in the balls from Kurt- who for the course of hell week had retitled himself "Hazemaster General".  Tommy and I were in the same group, and we kept each other going. He'd whisper stupid jokes when the brothers weren't looking, and I'd help him up when he stumbled. We were a team, you know? I thought we'd make it through together.
+Most people move, even if just to scratch their nose.  
+But that night, he didn’t. And I knew I’d be back at the window tomorrow.
 
+The eighth-night discovery should have scared me off. Any reasonable man would have looked at that pale figure in the bare room, muttered something about “not my business,” and turned away.  
+But the truth? It made me hungrier.
 
-They had us staying in a large closet more or less, with a table set up in the center meant to take up as much space as possible, and eighteen chairs placed around it just tight enough to ensure no one could find the space to lay down.  We were allowed to do school work and study fraternity information but nothing else- no going back to our dorms, no going out for food, and even conversations were frowned upon, forcing us to resort to hushed whispers over the sound of a constantly blasting song - "The End" by the Doors - that we usually got away with.  I learned down the line that newly initiated brothers from the year before were supposed to be finding excuses to sneak in to bring us food through out the week, but the guys we had were either lazy or hated us; I think at one point we got a bag of chips.  For our real dinners, brothers visited local foreign food markets, combining the grossest range of things they could find ranging from clam juice to sheep stomach and even deep fried insects, though it was better than drinking on an empty stomach.  I tried to keep my spirits up by focusing on classwork; Tommy and I had our lab final the next week, and at least we could study together.  
+Soon, watching the building across the street wasn’t just a way to kill time—it was my ritual. Every evening after work, I’d heat up something cheap, crack open a beer, and settle into my spot at the window. Curtains drawn just enough, scope angled across the gap, my eye drinking in those glowing rectangles.
 
+I had plenty of windows to choose from, but a few became my favorites.
 
-The second night was a little scarier.  Brothers set up a lightbulb in one of the darker corners of the room and would call us in one by one in our underwear, forcing our heads up as our eyes strained against the light, and they'd force us to try to read off the small text on it's underside before running us through a bunch of random fraternity knowledge related questions.  When we were wrong, we took a large bite from an onion on our necks, reciting a dumb simple quote- "I'm always wrong, I'm never right, in fact I'll take another bite, sirs."  Marty was allergic to onions, so they had him do ghost peppers instead- I could see him growing more and more red, though his stomach was so empty and raw that he couldn't manage to puke up anything.  Just a lot of painful dry heaving and wretching.  Tommy managed to find the silver lining, though.  "They thought they were gonna starve us, huh?  I fuckin' love onions!"  
+There was the single mom with two kids. Her boys treated the living room like a trampoline park, bouncing off the couch while she dragged herself in after work. Sometimes she’d yell, sometimes she’d laugh, sometimes she just sank into the sofa with a bottle of cheap wine and stared through the TV like she was miles away. I didn’t pity her—I respected her. She kept going, even when it was obvious she had nothing left in the tank.
 
+Then there was the young couple. They were relentless, like they’d made a bet with themselves to see how many ways two people could wear each other out before sunrise. At first, it was entertaining—like stumbling across a pay-per-view show for free—but eventually it was just predictable. Still, I kept watching. Predictability can be comforting.
 
-The third night was the scariest night I'd experienced so far.  Kurt- or Hazemaster General, as he'd been insisting we call him- assigned each pledge someone to go under the light with, whom he referred to as our "thunder buddy", where both parties needed to know each question.  The quizzes got a lot more difficult, and so did the screaming, and they'd purposefully paired people who'd been good at retaining the information with people who weren't in order to ensure fuck ups all throughout the night.  Tommy was my thunder buddy luckily, and we did alright- others, not so much.  Marty and his thunder buddy, a kid from Florida named Sam, spent nearly two hours straight in there towards the tail end of the night, coming back to our room well past sun rise.  Sam was speechless, shaking as pale as a ghost in the corner, and Tommy skipped over a few seats to check in with him.  "You don't have ta finish this man.  None of us are gonna stop being your friends- these guys can't actually stop you from just walking out of here dude.  If it's botherin' you, jus' like..." A sense of recognition seemed to hit Sam's face, as if he realized for the first time all week this was still possible, "...leave."  
+And then the gymnast girl. Twelve, maybe thirteen. Every night she stretched, jumped rope, practiced handstands in her tiny living room. Always in that faded leotard, hair pulled tight. No distractions, no breaks, just pure repetition. Watching her was like seeing focus distilled into a kid’s body. She reminded me that discipline was possible—even in a place where everything else seemed to fall apart.
 
+I never told myself they were “neighbors.” Neighbors are people you wave to in the hallway. These weren’t people I knew; they were characters in a show only I could watch. And each of them pulled me deeper into the habit.
 
-Marty immediately tried to jump in for damage control, but once the idea was seeded in his head, Sam was already packing his bags.  The room was silent enough to hear a needle drop, other than Tommy who kept quietly encouraging Sam despite Marty's attempts to sway him.  We'd had a couple of kids drop out by this point, but walking out the door with less than a week left was practically unheard of- still, Sam had never been as into it as others, he was a legacy which meant he got an automatic bid because of someone in his family and frankly I was shocked he'd made it this far, he was way too soft for some of the shit these guys threw at us.  As he forced his way through the brother standing guard at the door, who seemed shocked but made no efforts to stop him, Marty stood from his seat by the door and brazenly tried to shove a finger into his face for one last plea. "Y-you can't just... you can't just abandon your thunder buddy!  Do you know what they're going to do to me?!"  
+But the bald man—he wasn’t just another character. He was a puzzle. And puzzles have a way of eating at you if you leave them unsolved.
 
+A week passed. Every night, the same scene: him sitting cross-legged on the bed, motionless, eyes fixed on the wall. Sometimes the sheets on the bed looked slightly different, as if someone had changed them while I wasn’t looking. But him? He never moved.
 
-The next morning, we found out.  By the time the fourth night rolled around, Marty was on the verge of collapse- pale as paper, shaking consistently, and covered in bruises far beyond child's play. He literally couldn't speak after, but we'd find out later via a handheld camcorder that he'd been singled out for the "gauntlet of truth," a ritual where he had to recite the fraternity's history flawlessly. Each misstep—be it a stammered date or a forgotten founder’s name—brought a swift, punishing blow, either with a paddle or a fist. One senior, his breath heavy with whiskey, landed a stinging backhand across Ethan’s cheek when he fumbled the founding year, splitting his lip and knocking out one of his canine's in the process. Another brother’s paddle thudded into Marty's shin when he missed a Greek letter in the chant, the bone visibly warped through the skin of his scrawny legs come line-up that night. A drunken senior describing his knees buckling, but that he was yanked upright by his hair, forced to continue as sweat and blood mingled together, dripping onto the floor whilst he crossed the finish line.  The brothers’ jeers grew louder, their eyes gleaming with a mix of sadistic glee and tradition-fueled fervor, as Marty's voice cracked but persisted, into a weak semblance of victory when he crossed the line.  Brotherhood.
+One night, after two beers, I decided to break the script. I wanted to see if I could force something to happen.
 
+I pulled up my phone and ordered a pizza. Large pepperoni, extra cheese. Delivery to apartment 8B—the bald man’s floor, his window. My hands were sweating as I typed in the address. I told myself it was harmless. If he was a normal guy, he’d answer the door, pay, and eat. And I’d finally know.
 
-The hazing that followed was by all intents and purposes kind of fun.  Questions shifted from fraternity knowledge to sillier things like "which brother gets the most girls?"  I found myself holding a beer while lined up in the hall way at one point, even cracking a smile as Marty managed to pull off a shotgun despite his hobbled circumstances.  Tommy at one point wrapped an arm around my shoulder and pulled me close, the optimism in his voice sending shivers up my spine.  "Tonight could be the night, man.   Tonight we might be done!"  
+Half an hour later, I spotted the delivery car pulling up to the curb. My heart thudded in my chest as the driver walked inside with the box balanced on his arm. I tightened the scope on 8B’s window, waiting for movement. Any movement.
 
+Five minutes passed. Ten. Then, out of the corner of the scope, I caught the driver coming back out the front doors of the building.
 
-We weren't.  On the fifth night, things changed for the worst. They gathered us in the basement of The Lodge, a damp, stone-walled room lit by a single bulb hanging from the ceiling. The air was thick with mildew, and there was this faint, metallic smell I couldn't quite place. The brothers were all there, wearing these creepy black robes with hoods, like something out of a bad horror movie. The chapter president, a senior named Garrett, stepped forward. He was a big guy, pre-law, with a smile that never reached his eyes. "Tonight," he said, "we separate the men from the boys. DKE isn't just a fraternity. It's a brotherhood forged in sacrifice. If you want to be one of us, you have to prove you're willing to pay the price."
+He wasn’t carrying the pizza anymore.
 
+Instead, he had the box open in one hand, munching on a slice, earbuds in, nodding his head to whatever he was listening to. By the time he reached his car, he was whistling, chewing happily, like nothing strange had happened at all.
 
-I thought he meant more hazing, maybe something worse than before. I was wrong.
+I sat back, cold all over. Where had the pizza gone? Why hadn’t he taken money? Why hadn’t anyone answered? Did he just… keep it for himself? Or had he gone up there, knocked, and walked away with the box untouched?
 
+I wanted to believe the driver was just lazy, that he figured no one was home and he might as well eat it himself. But that explanation didn’t stick. Something had happened in there—something I couldn’t see.
 
-They handed each of us a knife, small, sharp, with a bone handle carved with the DKE crest. Garrett explained the ritual. "The Lodge demands loyalty," he said. "It demands blood. Every pledge class gives something to keep the balance. Those who give the most are rewarded. Those who don't- well, they don't belong." He gestured to the floor, and I noticed for the first time that there were stains on the stone, dark, uneven patches that looked too much like dried blood.
+That night, I couldn’t sleep. I lay awake with the rifle beside me, scope pointed at the window, curtains cracked just enough for me to keep watch. He was still there, sitting in the same position, like nothing had changed.
 
+Most people, I reminded myself, live entire lives without ever being noticed. But once you notice someone like that, you can’t stop.
 
-My heart was pounding, but I told myself it was just theatrics. Frats did weird stuff, right? Secret handshakes, creepy rituals, it was all part of the mystique. But then Garrett called out five names, including Tommy's. They had each been selected by cabinet for some slight- a wrong answer, an unwarranted chuckle, or maybe even because they just looked at someone the wrong way.  The chosen pledges were led to the center of the room, and the rest of us were told to stand against the walls. The brothers started chanting in a language I didn't recognize, low and guttural, like a prayer to something ancient. Tommy looked at me, his eyes wide, and I saw real fear there for the first time.
+And the worst part?  
+I was starting to feel like he’d noticed me back.
 
+The pizza stunt should have been my wake-up call. A normal person would’ve felt embarrassed, maybe laughed it off as a dumb idea, and moved on. But I wasn’t normal anymore. By then, watching that window wasn’t just a habit—it was an obsession.
 
-They blindfolded the five pledges and tied their hands behind their backs. Garrett said, "The Lodge has chosen. To join us, you must offer a sacrifice. One of these five will pay the price tonight. The rest of you will decide who." My stomach dropped. This wasn't hazing. This was something else, something wrong. I wanted to run, to grab Tommy and get the hell out, but the brothers were watching us, their knives glinting in the dim light.
+Every night I found myself glued to the scope, waiting for the slightest twitch of movement. Nothing ever came. The mom yelled at her kids, the couple broke their own records, the gymnast girl trained until her arms shook. Life went on in all the other windows. But in 8B, nothing changed. A pale body sitting cross-legged, staring at the wall.
 
+And the more nothing happened, the more it burned me alive.
 
-They gave us a choice: pick one of the five to die, or the ritual would claim more. "The Lodge always gets its due," Garrett said. "If you don't choose, it chooses for you."  The other pledges were panicking, whispering, trying to figure out what to do. Some guy, a scrawny kid named Ryan, started crying and saying he didn't sign up for this. A brother slapped him hard and told him to shut up.
+I started timing how long I could keep my eye in the scope without blinking. Sometimes I sat so long I forgot to eat. Sometimes I went to bed dizzy, with black rings floating in my vision. But I kept watching.
 
+That’s when I noticed the woman.
 
-I looked at Tommy, blindfolded and kneeling in the center of the room. I wanted to save him, I swear I did. But I was scared- scared of dying, scared of losing everything I'd worked for. DKE wasn't just a frat; it was a ticket to a better life. Garrett had told us stories about alumni who were CEOs, senators, guys who ran the world because of the connections they'd made here. I wanted that. I needed it.
+It was a weekday afternoon—I’d left work early. Through the scope, I saw her slip into the room. Mid-thirties, maybe older, dark hair pulled back, moving carefully, like a nurse on rounds. She carried a tray: a small vial, a couple of boxes. She set it down on the bed beside him. Then she leaned close, pressed something against his arm. I couldn’t see clearly from my angle, but it looked like an injection. He never flinched.
 
+When she finished, she crossed the room to the window. Instead of turning her back on him, she shuffled sideways, her face always angled toward the figure on the bed. She cracked the window, lit a cigarette, and smoked it down to the filter. Then she stubbed it out, closed the window, gathered the tray, and backed out the door—never once turning away from him.
 
-The pledges started arguing, throwing out names. Some said Ryan, because he was weak, always whining. Others pointed at a guy named Chris, who'd mouthed off to the brothers one too many times. But a few kept looking at Tommy, saying he was too soft, too much of a joker. I tried to defend him, but my voice was shaking, and nobody listened. The brothers didn't care who we picked; they just wanted it done.
+I told myself she was a caretaker, maybe hired to look after a relative. But something about the way she moved chilled me. The way she never let him out of her sight, like she was afraid he’d pounce if she turned around.
 
+For the next few nights, I tracked her routine. Every other day, almost to the hour, she entered with her tray, gave him the injection, smoked her cigarette, and left. Always backing out. Always keeping her eyes locked on him.
 
-In the end, we voted. It was anonymous, scraps of paper dropped into a box. I wrote Ryan's name, I swear I did. But when Garrett counted the votes, Tommy's name came up the most. I don't know if it was rigged, or if the other pledges really turned on him. Maybe I should've fought harder, screamed, done something. But I didn't. I just stood there, frozen, as they untied Tommy and led him to a stone altar at the far end of the basement.
+It gnawed at me until I couldn’t stand it anymore. Watching wasn’t enough. I needed to know what was happening inside that room.
 
+So one Friday night, when I saw her leave the building with a shopping bag, I grabbed my jacket and headed across the street.
 
-The chanting got louder, and Garrett raised his knife. Tommy was sobbing now, begging, saying he didn't want to die. I couldn't look at him, couldn't face the betrayal in his eyes. The brothers told us this was the final test: if we wanted to be DKE, we had to participate. They handed me the knife and told me to make the first cut - "You're his thunder buddy!" - and I did.  My true fucking Stripes finally showed.  I fucking did it, okay?  It's hard to find the words to describe it, but I felt like I was outside my body, watching someone else move my hand. I told myself it was just a test, that they'd stop it at the last second. But they didn't.
+The building’s hallway smelled of dust and old cigarettes. Fluorescent lights flickered overhead, buzzing like dying insects. I climbed to the eighth floor, every step heavier than the last.
 
+The corridor stretched out in front of me, lined with dented doors. At the far end, junk was piled high: broken furniture, boxes, a bicycle frame, a rusted wheelchair tipped against the wall. And in that cluttered corner sat the door I’d been staring at for weeks—Apartment 8B.
 
-I won't describe what happened next. I can't. The sounds, the smells, the way the room seemed to pulse with something alive and hungry, it's all burned into my brain. When it was over, Tommy was gone, and the brothers were clapping, saying we'd finally proven ourselves. They told us the Lodge was pleased, that we'd secured our futures. Jobs, money, power- it was all ours now, sealed in blood.
+I stood there, heart pounding, palms sweating. What the hell was I doing? Breaking into a stranger’s apartment? Looking for what, exactly?
 
+I told myself I’d just listen at the door, maybe confirm he was even real. But then, beneath the thud of my heartbeat, I heard it.
 
-The end of Hell Week was a blur. They burned Tommy's clothes in a bonfire and swore us to secrecy. The Lodge protects its own, Garrett said. But it punishes traitors.  I didn't sleep for days, seeing Tommy's face every time I closed my eyes. I thought about running, going to the cops, but what could I say? Who'd believe me? DKE had alumni everywhere, cops, judges, politicians. I'd seen the photos on the walls of The Lodge, generations of brothers smiling like they knew they were untouchable.
+A sound.
 
+“Shhhwaaaark… shhhwaaaark…”
 
-I stayed. I became a brother. They gave me a pin, a handshake, a place at the table. The other pledges who made it through never talked about that night, but I saw it in their eyes, the same guilt, the same fear. We were bound by what we'd done, and there was no going back.
+Slow, dragging footsteps. Getting closer.
 
+I froze. The noise stopped right behind the door.
 
-Now, I'm 47, with a corner office at a law firm in Birmingham. I've got a wife, two kids, a house with a pool. I'm living the American Dream, just like Garrett promised. But every year, when the leaves turn and the air gets crisp, I think about Tommy. I think about the choice I made, the knife in my hand, the blood on the stone. I wonder if I could've saved him, if I could've run and never looked back.
+And then the handle began to rattle.
 
+Not just a twist—violent jerks, like someone was yanking it back and forth, trying to tear it off. The door groaned under sudden pressure, hinges squealing as if something heavy leaned against it from the other side.
 
-But I didn't. I chose this life, and I paid the price. So did Tommy. And the worst part? If I had to do it again, I'm not sure I'd choose any different.  Brotherhood, man.
+My blood turned to ice.
+
+Through the thin wood, I heard it: breathing. Wet, ragged, wheezing like air being forced through a crushed windpipe. Each inhale whistled, each exhale hissed, closer than I’d ever wanted it to be.
+
+The handle kept thrashing. The frame shook. For one terrible second, I was sure it would burst open.
+
+That broke me.
+
+I bolted. Down the hallway, down the stairs, feet barely touching the steps. I don’t even remember crossing the lobby. All I know is I hit the cold night air like a drowning man breaking the surface.
+
+By the time I circled the block and made it back to my own apartment, my lungs were on fire. I slammed the door, locked it, and stumbled to my window. My rifle was waiting, scope already aimed across the gap.
+
+I pressed my eye to the glass—
+
+And there he was.
+
+Not cross-legged anymore. Not facing the wall.
+
+He was standing at the window, hands spread against the glass, pale fingers scraping downward with a squeal I swore I could hear from across the street. His enormous head tilted forward, and in the glow of that naked bulb, I saw his face for the first time.
+
+No nose, no lips. Just two cavernous pits sinking too deep into his skull, eyes that weren’t eyes at all but endless dark holes, as if they could swallow the light from my scope. And yet—at the very bottom of that darkness, something moved. A shimmer, a twitch, like a pupil shifting in a place where no eye should be. His mouth gaped open and closed, smearing spit across the glass, fingers scraping with nails too long, too sharp.
+
+And the worst part?  
+I knew he was staring directly at me.
+
+I don’t remember pulling away from the scope. One second I was frozen there, staring into those bottomless eyes, and the next I was stumbling backward, knocking over the chair. My hands were moving on their own, reaching for the box of ammo I kept in the closet.
+
+The rifle had always been a comfort to me—steel and wood, simple and reliable. But loading it now felt different. My fingers fumbled as I shoved cartridges into the magazine, each metallic click ringing too loud in the silence of the room. I kept telling myself: if he moved, if he tried anything, I’d put a bullet straight through that window.
+
+By the time I racked the bolt and raised the rifle again, my heart was beating so hard I could feel it in my teeth. I pressed my eye to the glass.
+
+The window across the street was no longer empty. The curtains were drawn tight, swaying slightly as if someone had just pulled them shut. No pale face. No black holes for eyes. Just heavy fabric, rippling in the glow of the ceiling bulb.
+
+I held there, waiting, the crosshairs steady on the center of the window. Sweat slid down my cheek, caught in the corner of my mouth. My finger hovered on the trigger, but there was nothing to fire at.
+
+I stayed like that for what felt like hours. My shoulders ached, my eyes burned, but I couldn’t lower the rifle. Every second I expected those curtains to twitch, to slide open, to reveal that face pressed against the glass again.
+
+They never did.
+
+When I finally lowered the rifle, the apartment felt colder, emptier than before. Sometimes silence doesn’t mean safety. Sometimes it only means something dangerous learned how to wait. The moment something breaks its own pattern, you realize you were never the one in control. As if he hadn’t disappeared, just… stepped out of view. As if he was still there, inches from the fabric, waiting for me to let my guard down.
+
+And I realized something that made my stomach twist: he’d never once moved while I was watching. But tonight, he had chosen to.
+
+I moved out the very next morning. No questions, no excuses—just cash on the table for the landlord and a half-hearted promise to forward the mail I knew I’d never see. He didn’t ask why. Maybe he saw the look on my face and decided he didn’t want the answer.
+
+The weeks that followed blurred together. New job sites, new temporary housing, different walls to stare at when sleep refused to come. I told myself I’d left it behind on that street in Detroit, left him behind.
+
+But the truth? He followed me.
+
+Not in the daylight—no. In the daylight, I can almost convince myself it was nothing, that I imagined the whole thing. But at night, in dreams too sharp to be dreams, I hear it. The frantic rattle of a doorknob, the hinges straining as something leans its weight against my door. That wheezing, broken breath sliding through the cracks.
+
+And every time, I reach for my rifle. I load it, I raise it, I press the trigger—  
+and every time, it jams.
+
+So I clean it. Again and again. I polish the barrel, I oil the bolt, I run patches until the cloth comes out white. I tell myself it won’t fail me again.
+
+But what bothers me most isn’t the dreams.  
+It’s the memory of that night—when he saw me.
+
+You can leave a place behind, but not the things that noticed you there.  
+A weapon is supposed to give you certainty. But once doubt creeps in, even steel feels fragile.
+
+And since then, I’m not sure I trust my rifle anymore.
+
+ 
