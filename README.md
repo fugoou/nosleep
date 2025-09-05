@@ -1,27 +1,145 @@
-# It's heavy. Can't you feel it?
-Do you feel it? Or am I just crazy?
+# The Voice In The Memo Said To Run. It was Me
+The day started out like any other.
 
-Don't answer that. Not yet.
+I was up early, enjoying a fresh cup of coffee. My wife was asleep upstairs after working a long night shift. It was her day off, so I decided to work from home and let her rest. Not wanting to wake her, I brought my gear downstairs to the basement to set up for my podcast, The Afterthought Lounge.
 
-It's heavy, though, right? Not on *you*, if that were true, you'd have already been crushed. Flat. Into something inhuman, something *thinned.*
+While prepping, I skimmed through yesterday’s audio logs. That’s when I saw it—an unfamiliar voice memo.
 
-And it has no place, really, it spreads, like an awful blanket, anywhere you go, there it is, pressing down, pressing *in*—but really it has no direction. It's just heavy, it *impends.*
+Only two minutes long.
 
-I felt it for the first time at the corner store, looking up, but that's not where it was, it's not about directions, it's not a thing that's above. What I saw looking up was a building, but I live in the heart of this city, the pulsing, beating, flowing swish-and-swirl of concentrated humanity, so there's nearly always a building, when you look up.
+Timestamp? 2:30 AM.
+I didn’t remember recording anything at that time. My last saved file ended around 9:30 PM.
 
-Yeah. Felt it the first time at the corner store. I'd just walked out with a snack and a bottled soda, smelling the street, hearing it, all those familiar ups and downs, the small syncopated dances of human and machine and even street-bird. It was good, it was life grooving along, never a perfect song but almost always worth listening to, moving to, maybe sing along.
+Curious, I threw on my headphones and hit play.
 
-And then the heaviness hit me, and I had to look up. It wasn't there, because looking does you no good, it's something felt, in the bones, in the heart, in the *throat*, maybe in those cracks along the skull leftover from when you were still squishy and growing. And you're not any less delicate now, because the heavy, it's not gonna crush you any different as a whole-grown human, you think those ungrowing bones of yours will help you at all?
+Nothing.
 
-I looked up again, and again it wasn't there, wasn't where I was looking, and it wasn't on me, still isn't, because I'm still here. But I felt it all the same, and I dropped my drink, bouncing plastic bottle off the cement, making it churn inside, threatening sticky hands and wasted fizz if opened.
+Just a full minute of silence.
 
-I still feel it now. It's coming, but I don't know when. I think some people are sensitive to it. I think some people feel it too, I can see it in their faces and I know that they know, and that they're uncertain like me. Maybe it won't matter before I die. Maybe enough of us will feel it that someone smarter than me can figure out what it is, and something can be done. Or maybe not.
+I figured it was an accidental recording—maybe background noise or mic interference—but something about it itched at the back of my skull. A weird pressure. I hit play again.
 
-It's getting worse. Not by much. Just a little more, and a little more, and a little more, every day. I can still stand up, for now, so I go on. Sometimes I tell myself, it's in your head, and that's right, it is, it's everywhere, head not excluded. Nothing excluded. Not you either, whether you feel it yet or not.
+That’s when I heard the voice.
 
-So do you? Or am I just crazy? You can answer that now. Or maybe you'll be able to answer it a day, a week, a year from now, when you're moving along and it's there, has *been* there, only now you know, and now you gotta answer for yourself, not just me.
+My voice.
 
-And if you do feel it now—it's heavy right? Not on you, not on me, not yet. So if you do feel it, and I'm not crazy, tell me this—
+Faint, glitching under heavy static. I ran it through my editing software—noise reduction, volume boost—and replayed it.
 
-How long do you think it's gonna be?
+What I heard chilled me:
 
+⸻
+
+“Listen to me. The life you’re living isn’t real.
+You don’t have a wife. You never did.
+You need to wake up. Before it’s too late—”
+
+(bitter, shaky laugh)
+“She’s coming. I don’t even know why I still call it she.
+That thing wearing her skin? It’s watching. Learning.
+It doesn’t bleed. It doesn’t blink.
+But it knows your habits. Your tells. Your guilt.”
+
+(gunshots. a scream. something slams hard—like bone hitting concrete.)
+
+“It lets you feel safe long enough to forget.
+You’ve done this before. Don’t you feel it?
+The patterns? The same words. The same coffee. The same lie?”
+
+(panic rising)
+“You think this is the first time we’ve had this conversation?”
+“You don’t remember because it wants you to forget.
+It feeds off the forgetting.”
+
+(deeper static. heavy breathing.)
+
+“Whatever you do—don’t go upstairs when it calls your name.
+Don’t look at it. Don’t answer. Don’t believe its face.
+It’s not real.”
+
+(sobbing now—shaky, desperate)
+“Please… just get out. You can still escape.
+Don’t let it touch you. Don’t let it speak your name—
+It doesn’t kill you.
+It keeps you.”
+
+(wet gurgling. dragging sounds. one final voice—yours—screaming through tears:)
+“I think I loved it once. Or maybe… it loved wearing her.”
+
+(A sharp snap. Metal bending. Something wet drags away.)
+
+(Then: silence. Sticky. Heavy. As if blood soaked the tape itself.)
+
+⸻
+
+I ripped the headphones off. My heart was pounding. Was it a prank? Some messed-up audio experiment I forgot I ran?
+
+And then—
+I heard my name.
+From upstairs.
+
+Soft. Familiar. Too familiar.
+
+“Hey…? Where’d you go?”
+
+Then again—closer.
+
+“Babe?”
+
+I stood frozen. My blood felt wrong in my veins.
+If that wasn’t my wife… then what the hell was it?
+
+I turned toward the basement window. My hands fumbled with the lock. I had to get out. I was about to open it when—
+
+“There you are, silly. I was wondering where you were.”
+
+She stood at the top of the stairs, smiling sweetly. But her voice—it had no weight. Like it was mimicking something human.
+
+She walked down slowly.
+
+“What are you doing by the window?”
+
+I forced a calm smile.
+
+“Just… getting some air.”
+
+I turned back to the glass.
+
+And that’s when I saw it.
+
+Her reflection.
+
+It wasn’t human.
+
+Distorted. Twisted. A grotesque mockery of her face—like it was learning what people should look like and almost got it right.
+
+Then I felt it.
+
+A hand gripped mine. Cold. Wrong.
+
+“Let’s not do that, okay?”
+Her voice was right behind me.
+
+And then—
+
+Everything went dark.
+
+⸻
+
+I woke up this morning.
+
+Coffee. Birds. Quiet.
+
+She’s still asleep upstairs.
+
+And I’m just here, sipping coffee like nothing ever happened.
+
+But something did happen.
+
+I checked my laptop. The voice memo is gone.
+
+But I swear…
+
+I hear faint static in my headphones.
+
+And sometimes, just barely—
+
+I think I hear myself calling.
