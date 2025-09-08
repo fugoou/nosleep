@@ -1,68 +1,27 @@
-# Strange red plant growing from my flesh? Part 3
-This message is being distributed by the Floriturgic Agency of America.
+# Why’s grandma at the gate?
+I live in a fairly safe neighborhood in a not so safe country if you know what I mean. I reside in a street that’s lined with houses that are blocked around/ private and everyone more or less knows everyone in there but of course we’re always vigilant because you can never tell when you might be unlucky . 
 
-The user of this account has been found dead. The cause of death was by Floriturgic means, and was left to the care of the FAA. Relaying the cause of death to the individual's online profiles is legally required under section 6C of the FAA statutes and regulations.
+I live about a quarter mile in , my house right after a bridge next to a deep river (that you can’t really cross) and on the other side miles of tall grass. 
+I live with 7 other people in the household. 
+Every night we ensure we lock the main front gate & activate the security cameras. We also have staircases leading to the front and back entrances of the second floor that’s burglar proofed & secured by even more gates . The remaining perimeter of the property  is blocked off with high concrete walls adjoining the roof leaving no space for any sizable creature to crawl through.
 
-As of September 3rd, 2025, official FAA practices and interventions will follow these guidelines and make known any future Floriturgical incidents, as well as Floriturgical incidents previously kept confidential.
+This particular night the entire family was out. They had gone to a wake of a close family friend. I was home alone because I’m 26 and needed an early night’s rest for work the following day. It was just after 8pm I locked up & went to shower. I usually play music while doing so but a few minutes into my routine I could’ve sworn I heard a faint knock coming from my front door. 
+At this I quickly jumped out , turned off the music & stood in silence. Feelings of confusion and panic were creeping in because I was 100% sure everything was locked , the gates the doors plus I had the keys inside the house. A few drawn out moments passed when I heard it again but this time it came from my bedroom window that’s on the second floor with no ledge to stand on , on the opposite side of the house . I  checked the cameras and saw that there was no one at any of the windows or entrances and it showed no one entered any time into the property. 
 
-September 2nd, 2025. A call from the owner of this profile, who will be referred to as ‘T’, contacted emergency services, a copy of the transcript will be provided below.
+My logical mind brushed it off as maybe a huge bug or something but I wasn’t convinced. I got dressed and as soon as I walked back into the living room, I heard the padlock on the main front gate being tampered with. 
+This padlock is inside and you basically have to shove your hand in an awkward position through narrow metal bars to even reach it. I hurriedly checked through a window that gave direct sight to the main gate & what I saw made my knees buckle. 
 
-Operator: “911 what's your emergency?”
+Standing outside my gate, in the darkness of the night faintly aglow by the dimming street light was my grandmother. She was in one of her homemade dresses she had sewn and her head was covered with a white translucent shawl that obscured part of her face. 
 
-Loud banging is heard from the line, as well as T breathing heavily and wincing in pain.
+Now you’re probably thinking - dude go open the gate for your grandma. Well only one problem with that - she’s been dead for 14 years AND was CREMATED. 
 
-T: “HELLO? GOD IT FUCKING HURTS PLEASE HELP ME!!”
+I blinked a million times trying to blame exhaustion from work for what I was seeing but somehow whatever that stood there taking the form of my poor grandmother had caught sight of me looking through the window . It slowly raised its hand and waved awkwardly and beckoned me to come open the gate without saying a word. 
 
-Operator: “Alright mam I need you to calm down, tell me what's going on.”
+Immediately I called my mom and explained what was going on. Thankfully she didn’t doubt me because she had also experienced strange things along with my other relatives in this street. 
+I looked out after making the call and saw that the figure was gone. 
+Within 20 minutes my mom and other relatives arrived home. 
 
-T: “Someone's trying to break into my- AH GOD FUCK!”
+They did a thorough search and found no one on the property. What’s even weirder was that the security camera footage showed no one was standing at the gate during the time I was experiencing this. 
+My older cousin decided to do one last check around the house outside this time and in some tall overgrown bushes a few feet from the property he found a white shawl - except this one had many holes and was tinged with dirt as if it had been buried under the earth for years. 
 
-A shrill, high pitched whining was heard alongside the rhythmic banging, and cursing of T.
-
-Operator: “Mam are you hurt? Please try to tell me what's happening.”
-
-T: “God fuck, the plant, it won't stop screaming!! It hurts so fucking bad!! Fuck, I should've just gone to the doctor!”
-
-Operator: “I'm sorry, a plant? What are you talking about? Could you please-”
-
-T: “THE PLANT IN MY ARM!! It's screaming- it must've called it here. And now it's breaking down the fucking door!”
-
-Operator: “Someone's trying to break down your door? Mam please try to relax and stay quiet-”
-
-T: “Stay quiet?! It's fucking impossible!! The plant won't stop screaming!!”
-
-T suddenly gasps, then falls silent for a moment. A loud crash is heard, and the constant shrill wailing continues.
-
-T: “I-it got in! Jesus fuck it got in!! PLEASE HELP ME!”
-
-T was now yelling through sobs, barely coherent. Loud bangs were heard, then the sounds of T’s screams. Among the cries of agony from T, and the unidentifiable high pitched squealing, was the clear grunts of an older man.
-
-Operator: “Mam?! Mam are you okay?! Hello?!
-
-Eventually, T’s screams were silenced. The screeching from an unknown source slowly faded away, leaving the operator in silence for a few moments. Then, heavy breathing.
-
-Operator: …mam?
-
-The operator sounded shaken from what they had heard. The heavy breathing was followed by a few short thumps, then a loud crack. The call ended shortly after.
-
-The police showed up to the residence of T and immediately contacted the FAA upon discovery of the seedbed. The victim's body had been mangled and used as soil for the ‘Red Radix’, an infectious and highly lethal pathogen long researched by the FAA.
-
-Red branches and roots sprouted from the victims flesh on every inch of their body. They had become a seedbed for the pathogen and would spread to the neighboring houses if not purged. The victim's house was destroyed with a controlled fire to ensure the extinction of the Red Radix seedbed. 
-
-Red Radix is a long confidential Floraturgical pathogen, it grows in the flesh and attaches its roots to the host's nervous system and blood vessels. 
-
-It takes mere days to grow to full size, branching out from the host's flesh and siphoning their blood. Once it has matured it will radiate a high pitched frequency, signalling the nearest Red Father.
-
-A Red Father is a powerful and incredibly fast organism that was once an organism hosting the Red Radix. Organisms chosen by the pathogen to become Red Fathers are often larger or more dexterous animals like bears or adult human males. 
-
-Upon hearing the frequency from the budding Red Radix sprout, The Red Father will immediately locate the source for the signal and destroy the host, inseminating them with a Red Radix seedbed.
-
-At this point the Radix seedbed will choose to become a Red Father or Red Mother, the decision is informed by the host's physical capabilities. In the case of T, the seedbed was growing into a Red Mother, and had to be purged immediately.
-
-A Red Mother is a mess of splintering red branches, twitching crimson veins sprouting out of the host in all directions. It is unknown exactly what the function of a Red Mother is, given that Red Fathers singlehandedly spread the pathogen.
-
-What is known is that wherever a Red Mother is rooted, all organic life in the surrounding area seems to be inexplicably attracted to it. Dozens of animals and even a few human neighbors were found kneeling near T’s inseminated corpse and had to be dragged away.
-
-If you or someone you know has come into contact with the Red Radix, inform the FAA immediately and quarantine the subject in question.
-
-If you or someone you know feel that you have come into contact with any Floraturgy related Flora or have concerns regarding strange plants you may have seen, inform the FAA immediately and stay as far away from the Flora as possible.
+This happened a month ago & since then I’ve never stayed home at night alone. 
