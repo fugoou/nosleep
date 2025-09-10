@@ -1,34 +1,129 @@
-# What stalks the apartment roofs at night
-I live in an apartment building of 7 floors, on the the 6^(th) floor and in our vicinity are other apartment buildings ranging from 5 to 9 stories. All the buildings are made of reinforced concrete and are thusly very sturdy and MOSTLY noise proof. My apartment is spacious but not huge, it like all the floors above and below has a pretty large balcony – over three meters in length. But instead of a solid wall separating it’s instead a glass wall with a door that has handles on both sides. These descriptions will be relevant later on.
+# There's something weird happening in my town (update)
+Last Friday, my mom walked into my room. She wanted to talk about my friendship with Abby.
+She asked me if I knew what had happened to her. I said no.
+Then she changed the question: she asked if I knew why it happened.
+I froze, because my mom isn’t like that. She’s usually straightforward.
 
-This whole thing started about a few weeks ago, I hadn’t really pieced that together until later when I was thinking more about it and trying to remember. It started simple, I think I woke up because I really needed to go to the bathroom but maybe it was because of the noise, and my bladder was just accidentally full. Strangely it sounded like tapping or knocking against my blinders behind the glass wall, I liked to keep them down for some privacy as the wall revealed the whole of the living room. A raven probably trying to catch a spider on the blinders or something I figured and sure enough when I clicked the lights on it stopped even though there is no direct sight into the bedroom from the balcony or the living room. And so, I went about my night.
+But she’s been weird lately.
+My mom’s never been someone who cares much about looks. She’s not sloppy, she just doesn’t spend hours obsessing in front of the mirror. But last week? She’s been fixing herself up like something big was about to happen. Something important.
+One day, I passed by the bathroom and saw her dyeing her blonde hair dark brown. I stared at her, her eyes looking as dark as the dye in her hands.
 
-My upstairs neighbours were the worst, easily the worst thing about the apartment. They were a couple who instead of going out to party would host the party even if they invited no one else… And you’d think it’d be just the weekends but no – Tuesday nights as well going well into Wednesday dusk. Worst of all they kept their music low enough to evade anyone else being annoyed by it- just me. And of course, the dancing would just be “jumping” on my head. Bah! I tried talking to them, but it seemed to have no real impact, they would really sweetly say they really like dancing and having fun and promise to keep it down only to go back to it the next week. Despite this really nice and sweet outwards appearance I knew they had some troubles, sometimes instead of the music and the dancing they would argue and yell and scream at each other a few times I think things were thrown.
+— “Mom?”
+— “Yes, dear?” she said.
+— “Why are you dyeing your hair? Is there something special at mass today?” I asked.
+— “No, just… changing things up. Sometimes it’s good to refresh, you know?” she answered.
 
-Then about two weeks ago they put on Lady Gaga- Just Dance, and I listened to it while it played, I really love that song. Afterwards I put on my headphones for the YouTube video I was watching, it seems it was going to be one of those Fridays. Some half an hour later, through my headphones I hear loud glass shattering. For a few brief moments I pull them off and hear the woman’s muffled voice yelling something and the man scream back. I rolled my eyes and just put my headphones back on, it was a double whammy of a day both partying and fighting.
+I let it go and went back to my room with the apple I grabbed from the kitchen. I thought everything was normal. Until last night.
+I really thought things would be fine, that Abby would just come back. That maybe her parents had sent her away for a while so people would forget the gossip about her being with a guy. But that she’d return soon.
 
-Over the next week I had noticed that I didn’t meet either of them in the lift or coming or going out of the building. And I frequently left to go to the office for work and for my evening walks around the neighbourhood. I felt a pang of guilt, maybe I should have reported their fights, but even if someone was seriously injured, I thought there was no way both of them were.
+It was 11:26 when I checked the clock. Sunday.
+I was thinking about Abby.
+We used to skip mass together. On a normal Sunday, she’d be here, and we’d be laughing about something dumb, nothing worth remembering.
 
-Finally, I decided to check up on them, I had knocked on their door and rang the doorbell. I could barely make out scurrying, almost like running mainly because it seemed like it was through clutter. I didn’t recall ever hearing any clutter downstairs but maybe because of the thick concrete the sound was just too muted to reach me. As I turned to walk down the stairs back, the lift pinged and out came someone from the same floor. We greeted and they briefly mentioned not seeing them the last few days.
+I got up and sat at my dresser. Stared at some pictures of us, then opened the drawer and grabbed one of the cigarettes she left hidden at my place.
+Abby was always terrified of her parents — especially her mom. Cold, strict, never cruel exactly, but heartless. She wouldn’t think twice about making her daughter pray until her knees bled. And I know that because I was the one cleaning the blood when Abby hid at my house, where no one could see.
 
-After a few days I was getting into bed and I looked out my window, at first my blood ran cold. It had to have been the first instinct of seeing things move in the dark – I though to myself then. I saw someone run across the roof of one of the taller buildings. Probably some teenagers or something who got a hold of the roof keys I told myself and calmed down. Then the next day I caught the figure on another one of the taller buildings, they were quickly turning their head looking around, for a brief moment I think they looked over to me and I could see a flash in their eyes. My heart once again jumped. It raced. But clearly it was a guy on the roof looking around, I had to calm down. I lowered my bedroom blinders and went to sleep. Sleep hardly came but eventually it did.
+My mom was a housewife, but she was never home. Always out drinking tea with neighbors or babysitting their kids.
+My dad spent his life at the church, preaching somewhere, anywhere.
 
-Finally, a few days ago, I’m scrolling my phone, unable to fall asleep. And yes, it’s a bad habit I should get out of bed until I feel sleepy, but I just didn’t have the energy. As I was just scrolling social media with no sound, I hear something that resembled wing flaps. Once again, my heart started racing but I took a few deep breaths, obviously it was some bird or bat flying nearby – calm down.
+So I sat on the window ledge, autumn breeze on my face, smoke burning down my throat.
+I heard something outside. At first I thought it was just people coming back from mass. But the sounds got louder. Not one person, not a family — a crowd.
 
-A few more minutes pass, and I get distracted by my social media again. Until I hear the latch on the glass door move open – which pulls the door up on its hinges creating a very distinct and otherwise cool sound. But there is no cool sound when it’s the latch that opens the door from the outside on the 6^(th) floor.
+And then I saw it: a procession of people, walking with candles.
+Familiar faces, but they scared the hell out of me.
+And everything fell apart when I saw who was leading them: Abby, next to a man with dark hair.
+She was wearing a long veil, walking beside him in a white dress.
 
-I take a deep breath, my eyes wide, if anything walks in from the balcony and I was unlucky it could spot me in 15 seconds. If it runs – I’m a dead man. The feeling of fear was paralyzing, and it felt like a lifetime, yet I heard the latch finally be fully pressed so only a few seconds at most have passed. I swallowed a big gulp, and taken another deep breath, I quickly stretched out my leg onto the floor followed by the other. I thought maybe if I get under the bed, I’d be safe. In hindsight a dumb thing but it was my gut instinct at the time – like what unhinged serial killer wouldn’t look under the bed.
+That’s when I realized: it was a wedding.
 
-When the glass doors were opened and had hit the wall gently, I remember the walking “footsteps” so clearly as if I was hearing them now. The most accurate description is of a dog with long claws walking on the floors and you could hear those clinks – or a cat running with it’s claws out just much less hectic. My bed was in the corner of the room, so I pulled completely back to the wall and curled up. I don’t think the thing was searching for long, before it finally came into view – or at least it’s feet, but it felt like literal days had passed.
+I couldn’t process it. Couldn’t understand why this was happening. My cheeks were wet, burning hot. I collapsed to the floor, numb, like I wasn’t in my own body anymore. And yet I could feel everything.
+My hair stuck to the sweat on my neck.
+My breathing.
+The hot air coming out of my nose.
+I felt my body heavy against the old carpet, but my thoughts… broken shards.
 
-The legs were frightening they weren’t human; they seemed like large crow’s feet. The talons clicking against the floor with each step. And to both the left and right of the feet seemed to be the “tail” ends of wings with night black feathers. Apart from the talons clicking on the floor with each step the room sounded dead silent. It lingered in the room, I assume looking around as it would move then pause and move again.
+I don’t know how long I stayed there. Long enough to feel like the floor and my body had merged into one.
+When I got up, I tried to understand how, or at least why, any of this was happening.
 
-Finally, it moved back out of the living room, it checked the kitchen and bathroom before it finally did another full sweep of the apartment. As its final search seemed to yield no results it gave a slight warble and a few clicks, if I didn’t know any better, I’d say it sounded sad.
+So I decided I’d go to her house in the morning.
 
-I stayed under the bed the next morning until 13 the next day. Quiet as a mouse and looking around, listening. Finally, I figured that I should do something, I crawled out, slowly I made my way around, making sure to check every corner. I was faced with the open balcony doors, and I was ready to close them and lower the blinders over them but then I hear tapping, it reminded me of the night a few weeks ago although this time it was against concrete – upstairs. I took another big gulp and decided against doing anything that would make noise.
 
-I got dressed in whatever I could find and left the building; I got into my car and called my friend to stay over. My trusty car got me over to my friend, and I was finally feeling relaxed and safe, they had to go run out to the market to get something. I crashed on the couch, watching some series when I looked out, I saw it again: the eyes. The glowing eyes. Googling it apparently glowing eyes are a feature of predators who hunt in the night and thus need superior night vision – which isn’t humans.
+---
 
-I am now hiding in the closet, I can hear tapping on the windows from time to time and it’s just the same as that first night. My friend should be back from the store soon, and I’ve been texting them not to come back but they think I’m playing an elaborate prank. I fear we both might not make the night.
+When the sun came up, my mom stormed into my room.
+“What are you doing here? You’re supposed to be at school! I told you to go to class,” she snapped, throwing a shirt in my face.
 
- 
+I got up, even though I hadn’t slept a second. And then it hit me — the angry face staring back at me was the same one I had seen in that creepy procession last night.
+
+I didn’t say anything. I just put the shirt on, grabbed an apple, and headed to Abby’s. I knew she wouldn’t be at school. And I knew her parents wouldn’t be home either.
+
+The whole way there I kept wondering if maybe I was just hallucinating. Maybe my brain was playing tricks on me because of Abby’s disappearance. Maybe it was just fear poisoning my thoughts.
+
+But when I knocked on her door, the neighborhood was dead silent. Dry bushes, cold air. I knocked again. Nothing.
+So I went to the window. Looked empty. I’d only been to her house a few times — we never liked being there. But I knew the second window on the right was her room.
+
+So I climbed in. The house was freezing. The moldy smell was disgusting, clinging to my throat. The house was clean, but the air was heavy, hard to breathe. I pushed forward anyway. Her room was empty. Then I walked down the hallway. And that’s when I saw her.
+
+Abby, standing at the end, holding a bowl of grapes.
+For a second, I felt this insane joy, like all my paranoia had been fake. But then my eyes fell to her stomach.
+
+Something was there. A mark. A shape I couldn’t quite make out. But whatever it was, it was revolting. My body gave out, and I slid against the wall.
+
+When she realized I was real, her eyes widened, the grapes hit the floor, and she rushed to me. She held me up, even though I tried desperately to avoid her touch — it made my skin crawl.
+
+We sat there in silence. The longer I stayed, the heavier the air got. I was terrified it would get so heavy I’d suffocate right there beside her. Maybe that would’ve counted as self-asphyxiation. But I stayed anyway.
+
+Finally, she spoke:
+“I’m someone’s wife now.”
+
+I threw up. Right there. She just stared at me. Her eyes weren’t hers anymore. I knew it wasn’t her choice.
+
+Then she kept going:
+“It sounds weird, but he’s a good man. He can teach me my worth. And yesterday was just a celebration, like I said.”
+
+I staggered to my feet, nauseous, dizzy.
+“I saw you! Who were those people? Who was that man?” I demanded, swallowing down another wave of vomit.
+
+“What? What people?” she asked, confused. But then her confusion shifted into some excuse.
+“You mean the outdoor mass yesterday?”
+
+“You never go to fucking mass! And I’m not talking about some church service — I’m talking about that cult you were walking with!” I yelled.
+
+“I don’t know about any cult,” she said calmly. “But if you mean the outdoor mass, that was just… a celebration. My engagement.”
+
+Before she could finish, I had already jumped out the window. I biked as fast as I could, my brain racing. Why had they done this? Was it all in her head?
+
+I pushed harder. When I stopped on an empty road, I finally looked down. My arm was shredded open, blood blazing against the white of my dress. So bright it could’ve been seen for miles. The glass shards in my skin sparkled like glitter.
+
+That’s when I realized: I’d smashed through a window with my own arm trying to escape.
+When I made it home, I dug my hand into the wound. The sticky wet feeling was disgusting, but I pulled the shards out myself anyway.
+
+Something inside me knew I couldn’t tell my parents what happened. I felt something about them. I knew something was wrong. Abby would never do this. She wasn’t the only teenage girl sneaking around with a guy. The most I thought would happen was her being sent away for a while, not locked up and vanished at seventeen.
+That’s insane. Even for my town.
+
+That night, when I finally fell asleep, something happened. I woke up lying on something soft. I stood and realized I was in a field of daisies. In the distance, a church. Familiar.
+I walked toward it. The closer I got, the more the familiarity rotted into disgust. The smell of smoke filled my lungs. When I stepped inside the old church, nausea hit me hard.
+
+At the altar, I turned and saw thousands of people. The church warped into the local one. My dad was there, staring me down. Everyone was singing, chanting. And Abby was beside me, in a wet dress, hugging herself, shaking violently. Nobody said a word — just prayed, louder and louder.
+
+The sound got unbearable. She collapsed at my side, pitiful, innocent, like a deer burning alive. I tried to comfort her, but it only made things worse.
+
+Then I was thrown back. My parents walking toward me. A massive black veil slammed me against the ground. My head cracked.
+
+I woke up, sweating, paralyzed. My head pounded. But when I looked — nothing. Just my room.
+
+And then I saw her. Abby. Standing at my window, like it was any other night. But it was almost 4 a.m.
+When I opened it, she came in. Walked straight past me, silent. Stood there staring. Then dropped to the floor, convulsing. Her eyes were black. Blood pouring from her nose.
+
+I froze. Couldn’t move. Sweat dripped down my freezing body. When I finally managed to reach her, I touched her shoulder. That’s when I felt it. A mark. Raised against her skin, like the one on her stomach. A cross. Burned into her.
+
+When I traced it, a shock ripped through me. My head throbbed, splitting pain, and then… nothing. Black.
+
+When I woke up, it felt like a nightmare. But I knew it wasn’t. The stench of rot still filled my room, burning what little life and hope I had left. Bloodstains still on the carpet — small, but real.
+
+I’m writing this now at the library computer.
+I don’t know what’s happening.
+But it’s getting worse.
+And I’m scared.
+
+PS:Thank you for your concern and advice. This has made me think that there is still sanity in the world outside of this shithole of a city. 
