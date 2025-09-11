@@ -1,129 +1,149 @@
-# There's something weird happening in my town (update)
-Last Friday, my mom walked into my room. She wanted to talk about my friendship with Abby.
-She asked me if I knew what had happened to her. I said no.
-Then she changed the question: she asked if I knew why it happened.
-I froze, because my mom isn’t like that. She’s usually straightforward.
+# I’m no longer possessed by my dead wife.
+Truthfully, I don't know why I'm even doing this. I feel like a part of me that once was is no longer there. This is my desperate attempt at finding any sort of normalcy through internet interaction.
 
-But she’s been weird lately.
-My mom’s never been someone who cares much about looks. She’s not sloppy, she just doesn’t spend hours obsessing in front of the mirror. But last week? She’s been fixing herself up like something big was about to happen. Something important.
-One day, I passed by the bathroom and saw her dyeing her blonde hair dark brown. I stared at her, her eyes looking as dark as the dye in her hands.
+I’ve never been one to seek solace, let alone from internet strangers. Originally, I thought this community was a big inside joke. Now I am much wiser. The stories I used to browse occasionally now have a darker undertone that doesn’t alleviate any of the stress that is burying me alive. I pound and pound, but it won’t let me out. I’m drowning in an ocean of grief and other poetic nonsense. I’m sad. I’m terribly, horribly miserable. I don’t want to be a downer.  
 
-— “Mom?”
-— “Yes, dear?” she said.
-— “Why are you dyeing your hair? Is there something special at mass today?” I asked.
-— “No, just… changing things up. Sometimes it’s good to refresh, you know?” she answered.
+I want to be free from this.
 
-I let it go and went back to my room with the apple I grabbed from the kitchen. I thought everything was normal. Until last night.
-I really thought things would be fine, that Abby would just come back. That maybe her parents had sent her away for a while so people would forget the gossip about her being with a guy. But that she’d return soon.
+I miss my wife. She was a comforting presence at all points of my day. Now she is absent. I fear something much more sinister has replaced her.
 
-It was 11:26 when I checked the clock. Sunday.
-I was thinking about Abby.
-We used to skip mass together. On a normal Sunday, she’d be here, and we’d be laughing about something dumb, nothing worth remembering.
+I used to not be the superstitious type. I was certain as the sun would rise that paranormal entities didn’t exist. Now I am not so sure.
 
-I got up and sat at my dresser. Stared at some pictures of us, then opened the drawer and grabbed one of the cigarettes she left hidden at my place.
-Abby was always terrified of her parents — especially her mom. Cold, strict, never cruel exactly, but heartless. She wouldn’t think twice about making her daughter pray until her knees bled. And I know that because I was the one cleaning the blood when Abby hid at my house, where no one could see.
+Please, oh please, I will take literally ANY and all suggestions you have to offer. I am at my wits' end here. Whenever the wailing stops and I am dried again, I am one step closer to calling a priest.  
 
-My mom was a housewife, but she was never home. Always out drinking tea with neighbors or babysitting their kids.
-My dad spent his life at the church, preaching somewhere, anywhere.
+To catch you up to speed. Yes, I have a therapist. Yes, he is fucking worthless. 
 
-So I sat on the window ledge, autumn breeze on my face, smoke burning down my throat.
-I heard something outside. At first I thought it was just people coming back from mass. But the sounds got louder. Not one person, not a family — a crowd.
+For my entire life, I have struggled with loss. As in, I’ve struggled with *feeling* the emotion of loss. While others were crying at a funeral, I knew from movies and books and all the signs around me that I should’ve been sad. Yet, every single time, grief had escaped me. 
 
-And then I saw it: a procession of people, walking with candles.
-Familiar faces, but they scared the hell out of me.
-And everything fell apart when I saw who was leading them: Abby, next to a man with dark hair.
-She was wearing a long veil, walking beside him in a white dress.
+When my wife died, I finally felt what I thought was impossible to feel. Grief, terror, abandonment. Whatever you want to call it, I felt it, and it was a hurricane.
 
-That’s when I realized: it was a wedding.
+That’s when I started seeing a therapist. The recurring conversations with them are repetitive, nonsensical, and honestly, I don’t know if I can trust a word he says. They tell me to let myself grieve and try again. 
 
-I couldn’t process it. Couldn’t understand why this was happening. My cheeks were wet, burning hot. I collapsed to the floor, numb, like I wasn’t in my own body anymore. And yet I could feel everything.
-My hair stuck to the sweat on my neck.
-My breathing.
-The hot air coming out of my nose.
-I felt my body heavy against the old carpet, but my thoughts… broken shards.
+I have.
 
-I don’t know how long I stayed there. Long enough to feel like the floor and my body had merged into one.
-When I got up, I tried to understand how, or at least why, any of this was happening.
+How much water can you pour into a bucket until it is full? Until it is spilling over the edge and onto the floor? That is what it feels like. It feels like I’m doing the same thing over and over again. I am a failure. I am incapable of doing anything right. It’s like I’m bashing my fucking skull into a wall, just to feel anything.
 
-So I decided I’d go to her house in the morning.
+Now I feel as though if I grieve any longer, I will go mad, and I fear I have. My therapist thinks I’m having dissociative episodes. Which just means I am getting so stressed out from… what happened, that I am blacking out due to said stress. I’ve lived twenty-seven years without feeling much of anything, and now I’m making up for lost time, it seems. 
 
+It's been half a year since she’s been gone, much longer since I felt her touch. 
 
----
+The first month continued on as normal. There was a hollow emptiness inside of me, but I persevered. 
 
-When the sun came up, my mom stormed into my room.
-“What are you doing here? You’re supposed to be at school! I told you to go to class,” she snapped, throwing a shirt in my face.
+Then I saw a therapist at my coworker's suggestion, but now I fear that even my therapist is tired of hearing about my problems because they’ve told me to find community and bond with others over similar situations, like the loss of a loved one.
 
-I got up, even though I hadn’t slept a second. And then it hit me — the angry face staring back at me was the same one I had seen in that creepy procession last night.
+I tried other online websites first. I’ve been on video calls with strangers, all talking about their problems. This only exacerbated my loneliness. I’ve even gone so far as to meet one of these people in real life, but that’s a story for another time.
 
-I didn’t say anything. I just put the shirt on, grabbed an apple, and headed to Abby’s. I knew she wouldn’t be at school. And I knew her parents wouldn’t be home either.
+So, if you lovely people don't mind, I would also like to hear the stories you have of your loved ones, if you can spare the time.
 
-The whole way there I kept wondering if maybe I was just hallucinating. Maybe my brain was playing tricks on me because of Abby’s disappearance. Maybe it was just fear poisoning my thoughts.
+Give me Hope that I can make things right, that I’m not the only man out here struggling with a loss such as this.
 
-But when I knocked on her door, the neighborhood was dead silent. Dry bushes, cold air. I knocked again. Nothing.
-So I went to the window. Looked empty. I’d only been to her house a few times — we never liked being there. But I knew the second window on the right was her room.
+To begin this all, let me tell you a story of my beautiful wife.
 
-So I climbed in. The house was freezing. The moldy smell was disgusting, clinging to my throat. The house was clean, but the air was heavy, hard to breathe. I pushed forward anyway. Her room was empty. Then I walked down the hallway. And that’s when I saw her.
+I think fondly of a lot of our dates. One of our most memorable dates was our first date to a particularly beautiful garden in Florida. 
 
-Abby, standing at the end, holding a bowl of grapes.
-For a second, I felt this insane joy, like all my paranoia had been fake. But then my eyes fell to her stomach.
+She wore a spotted sundress that she probably bought for fifteen dollars, but it looked like Gucci on her (does Gucci make dresses?). Her auburn hair curled over her face, and I just wanted to brush it aside and kiss her all day. If you can’t tell, I was smitten. Trust me, I’ve been smitten before, but I was smitten-est. I've never been so in love.
 
-Something was there. A mark. A shape I couldn’t quite make out. But whatever it was, it was revolting. My body gave out, and I slid against the wall.
+There was one problem, however. I'm not very well known for my social media prowess, and she was a bit of an influencer. She wanted me (terrible idea, I know) to take photos of her, as part of our date agreement (terrible, *I know*). She joked that this was a "trial run" to see if I could “make the cut.”
 
-When she realized I was real, her eyes widened, the grapes hit the floor, and she rushed to me. She held me up, even though I tried desperately to avoid her touch — it made my skin crawl.
+After this comment, I thought she was absolutely insufferable and nearly any positive feelings I had for her had been thrown out a window. 
 
-We sat there in silence. The longer I stayed, the heavier the air got. I was terrified it would get so heavy I’d suffocate right there beside her. Maybe that would’ve counted as self-asphyxiation. But I stayed anyway.
+Throughout the date, however, we held hands and looked at the flowers that were blooming in early March. How she looked when she smelled those flowers… her auburn hair catching on the petals. I loved how her freckles would shift as she crinkled her button nose.
 
-Finally, she spoke:
-“I’m someone’s wife now.”
+It was beautiful. It made me understand artists. The reason they would stand in front of a piece of marble or a painting for hours, working their hands to the bone. All in an effort to capture their beloved. To have something of them and cherish it, so that the world could behold a fragment of what you see in them.
 
-I threw up. Right there. She just stared at me. Her eyes weren’t hers anymore. I knew it wasn’t her choice.
+So yeah… I humored her social media degeneracy and awkwardly held the phone. I kept taking landscape photos, but she insisted, while pointing a finger at me. “They had to be portrait.” I can still see her narrow her eyes at me, yet a faint crease was at the edge of her lips.
 
-Then she kept going:
-“It sounds weird, but he’s a good man. He can teach me my worth. And yesterday was just a celebration, like I said.”
+To this day, I honestly don’t know what the difference is. A picture is a picture after all.
 
-I staggered to my feet, nauseous, dizzy.
-“I saw you! Who were those people? Who was that man?” I demanded, swallowing down another wave of vomit.
+Despite this, the date was magical in its own awkward way. Without my knowing, I think about this day constantly. 
 
-“What? What people?” she asked, confused. But then her confusion shifted into some excuse.
-“You mean the outdoor mass yesterday?”
+It is one of my only remaining comforts.
 
-“You never go to fucking mass! And I’m not talking about some church service — I’m talking about that cult you were walking with!” I yelled.
+I don't know if it was the smell of the roses or something else, but I was obsessed. She was obsessed with me as well, I think, because I took probably over a hundred photos of her. None of which made it to her Instagram, but she still asked me on a second date.
 
-“I don’t know about any cult,” she said calmly. “But if you mean the outdoor mass, that was just… a celebration. My engagement.”
+The rest is history, basically. We’d been together ever since. 
 
-Before she could finish, I had already jumped out the window. I biked as fast as I could, my brain racing. Why had they done this? Was it all in her head?
+Now for the… less fun part. I hesitate even typing this. I’ve convinced myself that if I stare at the screen long enough, then what I’m about to type won't be real and I can delay the inevitable. 
 
-I pushed harder. When I stopped on an empty road, I finally looked down. My arm was shredded open, blood blazing against the white of my dress. So bright it could’ve been seen for miles. The glass shards in my skin sparkled like glitter.
+I hate thinking about it.  It was a slippery slope once it all started, and it started when she had a miscarriage. It was traumatic, to say the least. She couldn’t get over it. No matter how many roses there were, no matter how many late-night conversations we had in the dark. Nothing was helping. I insisted we could try again, that this didn’t have to be the end of everything we worked for, but that only made things worse.
 
-That’s when I realized: I’d smashed through a window with my own arm trying to escape.
-When I made it home, I dug my hand into the wound. The sticky wet feeling was disgusting, but I pulled the shards out myself anyway.
+It is only now that I wonder if that was the right thing to say. When you put so much of yourself into a relationship, into a bond, when it is slipping away from you, you become desperate, especially when you’ve tasted the sting of bitter failure of past relationships. 
 
-Something inside me knew I couldn’t tell my parents what happened. I felt something about them. I knew something was wrong. Abby would never do this. She wasn’t the only teenage girl sneaking around with a guy. The most I thought would happen was her being sent away for a while, not locked up and vanished at seventeen.
-That’s insane. Even for my town.
+“You can’t change the past, but there is always hope for the future.” My therapist's words ring in my mind.
 
-That night, when I finally fell asleep, something happened. I woke up lying on something soft. I stood and realized I was in a field of daisies. In the distance, a church. Familiar.
-I walked toward it. The closer I got, the more the familiarity rotted into disgust. The smell of smoke filled my lungs. When I stepped inside the old church, nausea hit me hard.
+When I worked as a firefighter, I was no stranger to witnessing terrible things. That also means I am not at home for days at a time when it’s my turn to be on call at the station. For those who don’t know, when you work as a firefighter, there are things called 24’s and 48’s. Meaning, if you are at the station for 24 hours straight, then you are off for 48 hours after. My station is a little different; we, after much debate, prefer 48’s and 96’s. Which means we work for two days straight, then are off for four days. 
 
-At the altar, I turned and saw thousands of people. The church warped into the local one. My dad was there, staring me down. Everyone was singing, chanting. And Abby was beside me, in a wet dress, hugging herself, shaking violently. Nobody said a word — just prayed, louder and louder.
+This means I got to spend more time at home with my wife once my 48 was over. We tried to communicate only when needed. After you’ve been with someone for a while, you sort of run out of things to talk about before your messages become meaningless phrases of “What do you want to eat tonight?” and things like that. So for a majority of the time, we weren’t connecting with one another. She was also hung up on a few things we hadn’t quite settled. I would be lying if I said this was the perfect relationship after we lost our daughter. 
 
-The sound got unbearable. She collapsed at my side, pitiful, innocent, like a deer burning alive. I tried to comfort her, but it only made things worse.
+In the early stages though… She usually greeted me by the door, wrapped her arms around me, and kissed my neck. She’d whisper, “I love you.” I would twirl her around like a ballroom dancer. In those moments, nothing else mattered in the world. I really miss those times. I can’t help but wonder if I could have been better for her. Could have been more present with her and been the person she needed me to be.
 
-Then I was thrown back. My parents walking toward me. A massive black veil slammed me against the ground. My head cracked.
+Man. I am glad you guys don’t have webcams, because you would see me bawling like a baby right now.
 
-I woke up, sweating, paralyzed. My head pounded. But when I looked — nothing. Just my room.
+Anyway.
 
-And then I saw her. Abby. Standing at my window, like it was any other night. But it was almost 4 a.m.
-When I opened it, she came in. Walked straight past me, silent. Stood there staring. Then dropped to the floor, convulsing. Her eyes were black. Blood pouring from her nose.
+I was uneasy when I wasn’t greeted at the door. I told myself it was fine, we hadn’t done that in awhile.
 
-I froze. Couldn’t move. Sweat dripped down my freezing body. When I finally managed to reach her, I touched her shoulder. That’s when I felt it. A mark. Raised against her skin, like the one on her stomach. A cross. Burned into her.
+I was nervous whenever I called for her and got no response. I told myself that was okay, she could be sleeping after all.
 
-When I traced it, a shock ripped through me. My head throbbed, splitting pain, and then… nothing. Black.
+I was terrified when I opened the door to the basement. I figured she’d been there, as it had become routine ever since we lost Hera.
 
-When I woke up, it felt like a nightmare. But I knew it wasn’t. The stench of rot still filled my room, burning what little life and hope I had left. Bloodstains still on the carpet — small, but real.
+When the door creaked open, I saw her. She was at the bottom of the steps. Her vertebrae jutted from her neck like they were desperate for air. Her body was bare, with deep gashes in her shoulder blades. Insects made her their home.
 
-I’m writing this now at the library computer.
-I don’t know what’s happening.
-But it’s getting worse.
-And I’m scared.
+I can’t get that vision out of my head. How the light of the kitchen barely illuminated the bottom of those steps. It almost appeared a monster was there, mangled and broken. But it wasn’t a monster, it was my wife.
 
-PS:Thank you for your concern and advice. This has made me think that there is still sanity in the world outside of this shithole of a city. 
+This has been my first experience with depression, grief, and ruin. Let me tell you, I don’t recommend it.
+
+Although it is cliché, I am disgusted with myself for letting her do that. Whether it was an accident or not, I blame myself for all the things I could’ve done. If I had only worked a 24, would she still have been alive? I was the one who pushed for the 48-hour shifts in the first place. Is she dead because of it? I’ve been told not to blame myself, but I can’t help but do so.
+
+Then, I had been forgiven. I felt her presence. A soft humming. Her delicate fingers caressing my face. A soft press on my lips. I knew it was her. 
+
+I pushed away all thoughts that this shouldn’t be happening, that this was all a façade, a hoax, some attempt by my body to deal with the stress. I just accepted it. If you haven’t been in my position, just be grateful your brain didn’t go to the lengths mine did to preserve itself. 
+
+These moments brought me comfort beyond the therapy, beyond the consoling of my friends, and beyond anything I’ve ever known.
+
+But then it started on Wednesday.
+
+It is ALWAYS Wednesday. 
+
+I woke up at the bottom of the stairs, right where I found her. It’s like a switch has been flicked. I black out for however long, and when I come to, I am at the bottom of those steps. Something replaced my loving wife's presence.
+
+If it were just that, I wouldn’t be here, though. There is also this wailing sound. It is eerily similar to the noises my wife made when we lost our child. It is taunting me with her grief. Burying her deep inside me.
+
+Then it started to escalate. I started blacking out on Tuesdays. I woke up in the shed out back, being assaulted by the most *awful* screaming. 
+
+I’ve heard what it sounds like when someone burns alive. Being a firefighter, it is a known thing that can happen. We train for it, and we do our best to prevent it. But it is still haunting. 
+
+Did you know that when you are burning alive, it isn’t the fire that kills you? It’s normally the smoke inhalation or your organs' fluids drowning you from the inside. 
+
+Hey, sorry. If I can’t sleep at night, neither can you. But that is what I hear on Tuesdays. That screaming and the smell of burning flesh lingers in the air as I sit, curled up in the corner.
+
+Then I began to black out on Monday. When I awake, the soft grass is beneath me. I’m always deep in the surrounding forest. Drums pounding in the distance and almost tribal in nature. 
+
+Then it started on Fridays. Friday is always strange. I wake up in my driveway, dirt underneath my fingernails. When I come back into the house, it’s spotless. Counters are wiped down, dishes are cleaned, and the fridge is organized.
+
+I would wake up at the bottom of the stairs on Wednesday, then I would just pretend nothing happened. When the next Wednesday rolled around, there I was, at the bottom of the stairs. The wailing pierces my eardrums. Again, I thought nothing of it. 
+
+“The stress is just getting to me.” I convinced myself.
+
+The third time it happened, I tried to set a timer of some sort. It’s very hard to do so when you suddenly black out with no warning whatsoever. I wear one of those watches that literally monitors every detail about your health. During that time, it registers my body as being in REM sleep. I think it has something to do with my heart rate and my breathing, yet when I check the app on my phone, my steps are always higher than what they were before I blacked out. 
+
+The blackout only lasted about an hour at first, then it was an hour and fifteen minutes, then an hour and thirty minutes. The time I’ve been ‘asleep’ has been steadily increasing.
+
+When I could no longer feel my wife’s presence, that’s when the concern grew.
+
+Wednesday. Tuesday. Monday. Friday. I know that’s not sequential, but that’s the order I started blacking out. Let me tell you, it feels like I’m losing my fucking mind. 
+
+I’ve scheduled an appointment with a neurologist out of town in hopes that they find a tumor or something, because at least that would be a satisfying explanation for what the fuck is happening to me and to tell me where my wife has gone.
+
+Last week I blacked out on my 48 and walked home, not drove. Walked. My coworkers couldn’t stop me, no matter how hard they tried. They’ve said they’ve never seen anything like it. As a result, I am on an extended leave from work. My supervisor has told me to “Let myself grieve” and that “I’m freaking everyone out.”  
+
+I’m freaking you out? How do you think I feel? I wish it were just grief. The guilt from my decisions, coupled with the fact that I inadvertently got my best shot at a happy life killed, being at the station is… something I’m stepping away from for a while. It feels like I'm falling, and no matter how hard I try to stop myself, I reach out, but nothing stops my descent. It’s a nightmare. A living, breathing nightmare. These five months since my wife has died have taken their toll.
+
+My greatest fear is that whatever is happening causes me to lose control. That I black out for all seven days of the week, twenty-four hours a day. My fear may soon be realized, because two weeks ago, I blacked out on Sunday. I don’t know if it can get much worse than Sunday.
+
+I woke up in the shower. I am soaking wet, and my skin is pruny from being in there for so long. My god damned electric bill has been so expensive because of it. I’ve gone so far as to put protective locks on the damn faucet and turn off the main water to my home, but it doesn’t matter. I always wake up butt naked in my bathtub, soaking wet.
+
+And if it were just this, I think a part of me could rationalize everything. See, I’ve never been religious. I’ve never believed in god or spirits or demons. I’ve believed in real, tangible things you can feel. Yet, whenever I wake up in the shower, in my shaking hands, I’m clutching a rosary.
+
+I don’t own a rosary.
+
