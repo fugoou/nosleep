@@ -1,88 +1,180 @@
-# Lil' Tyke
-Nearly a month ago, my friend Randy went missing. He just kinda disappeared without a trace, not so much as a note. I had talked to him the day it happened, and he seemed just fine. I’ve read that this type of thing happens suddenly. I just don’t know.
+# I Work in a 24/7 Diner. Last night’s customers weren’t human.
+You know how it only takes a few small accidents to make you homeless?  An emergency expense here. A couple of overdraft fees there. A rent check that bounced because of the fees. And an eviction notice that happened because of the bounce. I went from stable - albeit not wealthy - to sleeping in my car within 4 weeks. And I count myself lucky. At least I have a car.
 
-I knew Randy since fifth grade, we were best friends for five years. I went to his house all the time; his mom was nice, even if his dad was a deadbeat who ran off. Randy was a good student, he had friends, he was happy. The cops say it's pretty common for someone to seem happy. I think they were hinting that Randy went off and killed himself, but I don’t buy it. That’s just something cops say so they don’t have to try as hard. 
+And a job. Which is why I have this story.
 
-I went to Randy’s house a few days after he was gone. His mom was shut in her room, so I just slipped into his room. If she heard me, then she didn’t care. His room was just as it was before he went away. It was a messy sort of organized, all of Randy’s junk was sectioned into corners of the room by type. I poked around, hoping to find some note or clue the police skimmed over. I knew Randy better than they did; I would know if something was off.
+I work the overnight shift at an all night diner. Maybe you’ve heard of it, maybe you haven’t. They never close. They’re always hiring. And they don’t really care about your background.
 
-After sifting through some trash and clothes, I made my way to his electronics corner. I untangled wires and tossed consoles aside until I heard something clatter on the floor. I jumped back, startled, hoping Randy’s mom wouldn’t come and ask me what I was doing. I held my breath until I was satisfied she would get up, then I looked down. 
+It was the quiet hours, when the time is so late, it’s early. The diner was empty so I was leaning against the counter eating a bowl of chili with shredded cheese and chopped onion while I scrolled for other jobs on my phone.
 
-A large lilac cube rested at my feet. It was dusty and smooth; it looked like it was made for little kids. I picked it up and gave it a once-over. There were random lines all around it, something that people in the 2000s thought looked futuristic. On one side was one of those old screens, the kind that Tamagotchi used. The message “To Randal - From Dad” was written on the other side in sloppy Sharpie. Other than that, it was smooth, no buttons or battery port. It looked cheap and clunky, something you’d see at Walmart. It must’ve been about a foot across on all sides; my head probably could’ve fit in it.
+The cook was outside having a smoke, and the only other person in the diner with me was a young pregnant girl named Sheree, who was texting her grandmother nervously. 
 
-Randy’s shitty dad must’ve got Randy some cheap toy from Goodwill before he ditched his kid. Classy. I tossed the cube on Randy’s bed and sighed. There was nothing here. Either the cops took all the good evidence, or Randy didn’t want to be found. I put my hands in my pockets and spun to leave the room. I was halfway to the door when I heard a little noise from the cube. I sighed harder and spun back around to turn off the stupid kids' toy. I didn’t want some stupid box to bother Randy’s mom with “Mary Had a Little Lamb” or some such.
+“I’m gonna have to leave early. My grandma is telling me I need to come get my child. I hate when she does this, but I can’t afford a babysitter either.”
 
-I picked up the cube and looked at the screen. A little chime played out of an unseen speaker while the words “Lil’ Tyke” flashed in that classic greenish-black pixel style. The chime died, and a face faded onto the screen. Thanks to the cube’s surprising size the face on it had impressive resolution. It had big eyes with cute highlights, a small cartoonish nose, and a large grin. 
+Sheree was cool.  But like everyone else here, she was having a rough time. Her boyfriend was in the prison 60 miles down the road, and part of why she worked here was to fill his accounts and have enough money for regular visits. He was there for murder or something, but we don’t really talk about our personal lives so I wasn’t sure.
 
-“Howdy! I’m Tyke!” Sang the cube. The mouth morphed into different shapes to imitate speech, although it lagged behind the words. The voice was surprisingly expressive, although it still sounded like Microsoft SAM. Imagine a childlike text-to-speech with a hint of emotion. Pretty advanced for a clunky toy. 
+Brucius was the cook, and he took a smoke break at every available opportunity which, when the restaurant was empty, meant a lot of opportunity. He’d wander back if a customer walked in, but there was no reason to bother him.
 
-I turned the cube over in my hands, looking for some sort of off switch. As I turned, it felt like something inside the cube was sliding around, and the speakers gave a soft whine. After finding nothing, I dropped the box on the bed in frustration. To my surprise, the cube let out a muffled squeak. 
+“Hey, it’s not a problem. I’ll handle everything. Go pick up your kid.”
 
-I hesitated before picking it back up. Looking at the screen, I could see the face again, but it had its eyes replaced with a simple animation of spirals. After a few seconds, the face shook its head, by which I mean it blinked left and right, before returning to normal. 
+“Thank you! You’re a lifesaver! I owe you!”
 
-“Jeez, you sure play rough!” Giggled the cube. Noticing his pupils looking at mine, I tilted my head to the right. After a second, the pupils of the face slowly faded to follow my head. 
+“Don’t worry about it. I’ll see you Wednesday.”
 
-“Damn, you’re pretty advanced,” I said. I was thinking out loud, not to the cube, but it didn’t seem to get the memo. 
+She ran out the door, and I didn’t think anything of it. I heard her say goodbye to Brucius and then her car engine grind as she drove away.
 
-“Oh, please don’t use bad words! I’m a good boy, so bad words make me sad…” The cube shifted into a frown with furrowed eyebrows while it played its rudimentary animation. 
+I had another 4 hours left on my shift and, with any luck, it would stay this quiet.
 
-“Right, uhhhh, sorry?”
+Of course, since I’m here talking to you, you know I wasn’t so lucky.
 
-“It’s a-ok! Say, you look pretty down in the dumps! What’s the matter?” The cube chirped, replacing the sad face with concern. I was not about to have therapy with a baby toy, but maybe its little electronic brain knew something about Randy. 
+The door dinged and a family of 4 walked in: mom, dad, boy, and girl. My eyes flicked to the parking lot. I didn’t see a car, but I just told myself they could have parked behind the building. 
 
-“Say, you wanna come to my house? I got some questions.” I said softly to the box, remembering the grieving woman down the hall. The box put up a cheerful smile and excitedly whispered back.
+It’s funny, but I don’t remember what they looked like. However, I do remember what they wore because it was some real Leave It to Beaver Andy Griffith type shit.
 
-“Oh yes. This is gonna be so much fun.”
+The dad had on a blue plaid button up shirt with a white undershirt beneath, and khaki trousers. His hair was perfectly slicked back, like one of those old Brylcreem ads. The mom wore a red gingham check dress with a wide skirt, crinoline, and cinched waist. Her hair too was impeccable, straight out of an old Betty Crocker commercial. The little girl had her hair in two pigtails anointed with yellow bows and was wearing a pink shirt and blue shorts. The boy had a perfect cowlick and wore a blue shirt and red shorts.
 
-\---
+I felt unsettled. They looked perfect, but they felt wrong. Brucius came back inside, took one long look at the family as they settled into a booth, then went through the swinging doors into the back without a word. Rude.
 
-I put the thing on my dresser and sat across from it on my bed, about eye level with it. I felt pretty stupid about questioning a baby’s toy, but it was the best I had. I figured I’d ease into it with some simple questions before getting to Randy.
+“Good evening, y’all,” I said as I set down the  laminated menus. “Can I get you anything to drink?” 
 
-“Well… Do you have a name?” I asked sheepishly.
+Each member of the family clasped their hands over their menu, and turned in my direction with a smile. 
 
-“Why, of course! My name is Timothy Tyke, but all my best friends just call me Tyke!” Beamed ‘Tyke’. I still couldn’t pinpoint any controls or interface on the walk to my house. No camera or charging port, or anything.
+“Four glasses of milk, please,” said the Dad, his tone folksy, like something out of an old sitcom.
 
-“Well, Tyke, where is your speaker?” 
+“Everything looks so delicious,” said the Mom cheerily, without glancing at the menu. 
 
-“Silly, I don’t have a speaker,” Tyke replied, the pixeled grin plastered to the screen. I guess it would make sense not to program your toy to know where its speaker is. What is some kid asked, then shoved Play-Doh into it.
+I couldn’t remember the last time I’d seen adults order milk, especially at such a late hour. 
 
-“Well, do you have a creator? Like a company or production code?” 
+“Thank you,” the Dad said when I set their glasses down. No one had moved one centimeter, their posture and faces in the same position as they watched me pour their beverages and return. 
 
-“Oh, of course! I was made by Dallas Martin Hartwell on the eighth of August, 2008!” Tyke said, beaming with pride. That is really weird. Dallas Hartwell was Randy’s dad, and Randy would’ve been around six in ‘08. 
+I wiped my hands on my apron, and attempted a smile, “Are you all ready to order?”
 
-“Did Dallas make you for Randy?” I asked. Tyke’s simple face dissolved from surprise to fear to anger and then to nervousness. A little bead of pixelated sweat, really just a small U, formed on Tyke’s cheek. For the first time, Tyke didn’t want to look me in the eyes. 
+The four of them glanced towards my name tag in unison, and I was suddenly glad most of it was hidden beneath my hoodie.
 
-“Haha, how do you know Randy?” Chuckled Tyke, trying to change the subject. 
+“We’re waiting for someone,” said the mom in a sing-song voice. They all turned to face either other, small, identical smiles on their faces, condensation from their untouched glasses making four tiny puddles. 
 
-“I’m his best friend… Until he disappeared…” I said, peering at Tyke. Tyke still wouldn’t meet my line of sight. Tyke nervously twisted his eyes in every direction before calming back down to his default grin.
+It wasn’t right for children to be that quiet. Or for anyone to be that still. To be honest, it wasn’t normal to wait for someone at that hour either.
 
-“Wow, what luck! Randy was my best friend, too! Since he’s gone, we can be each other’s best friends now!” Tyke cheered. I didn’t like how he used past tense. I scooted back away from the cube sitting across from me. I felt a tingle up my spine that danced to my scalp. 
+I pretended to wipe down the counters. Guests weren’t supposed to be left alone, and I didn’t know what to do. 
 
-“Since y’all were such good friends, do you know what happened?” I asked. Tyke’s face flashed with a few frames of anger before fading into a deep frown. He looked down and sighed.
+“Are you sure I can’t bring you anything?” I asked after a couple distressingly silent minutes.
 
-“Me and Randy were good friends when he was a good boy like me. We had so much fun! For a while…” Tyke’s face dropped more. A few pixels on the corners of his eyes signified growing tears.
+“We told you, we’re waiting,” one of the children hissed. I startled and dropped the rag. That wasn’t a child’s voice.
 
-“Then Randy must’ve lost me, and I was so sad… It was dark and scary in there… But then Randy found me! We were going to be buddies again!” Tyke got chipper again, staring past me and into nothing. I waited for a minute, but Tyke didn’t continue.
+All four sets of eyes again fixated on me, but this time, no one was smiling. My heartbeat rushed in my ears, and I could have sworn they heard it too. 
 
-“So, do you know what happened to Randy?” I asked, backing up further. I knew it was stupid, but Tyke was making me crawl in my skin. I started slowly, trailing my hand towards my nightstand, looking for a weapon. 
+“Okay!” I laughed nervously, my voice a little too high. 
 
-“Well, he didn’t wanna be my friend anymore! After all I did for him, all we did, he wanted to put me away!” Tyke quickly went back to looking miserable. He was getting louder and louder, the speakers starting to lose quality as it peaked. My hand reached the corner of my nightstand and felt something heavy. I gripped it tightly. 
+Abruptly, out the corner of my eye, I saw Brucius waving frantically behind the swinging doors, gesturing for me to join him in the back.
 
-“Well, Tyke, what did you do to Randy?” I asked, hesitantly. This worked Tyke into a hysterical fervor. 
+Relieved to have an excuse to leave, I backed away slowly, something deep in my most primal brain telling me not to turn my back to them. Rules be damned, I couldn’t be out there alone with them a second longer. 
 
-“I had to make sure we would be together! Dallas wanted to leave me, and I fixed him! I fixed Randy! We’re gonna stay friends forever and ever!” Tyke screeched. His voice went too high sometimes and looped back around to be deep, causing a distortion that hurt my ears. Tyke huffed and puffed, the sides of the cube bulging ever so slightly. 
+I’d barely opened the swinging doors when he jerked me all the way in.
 
-“Uh huh… Ok Tyke… Well, we can be friends…” I said softly, slowly inching my way back to the front of the bed. The object in my hand felt solid enough, but I was too anxious to glance back and see what it was. Tyke’s expression softened as he looked back at me. 
+“Listen,” he whispered urgently, his grip tight on my arm. “Those people out there aren’t real people.”
 
-“R-really?.. Forever?” Tyke asked pitifully. I finally reached the front of the bed, my mind racing with possibilities. It shouldn’t be too hard to hit a large, stationary cube, but it didn’t feel safe. I thought I could descalate. 
+I looked back through the small window in the swinging door, “I don’t…”
 
-“Oh sure, forever! But, I’ve got to turn you off sometimes, you know? Do you have an off button, maybe?” I asked, trying to sound as understanding and sweet as possible. Tyke didn’t buy it. He looked at me blankly before his pixels twisted into sorrow. 
+He interrupted me, “What I don’t have is time to explain. You see that bag of salt?” He jerked his head towards a giant-size bag of pure rock salt I’d somehow never seen since working here.
 
-“You wanna get rid of me! Just like them! You wanna lose me! I don’t wanna! You can’t do it!” Wailed Tyke. Low-resolution tears streamed steadily down Tyke’s screen. He sobbed in a high and low pitch encompassing each other, making my head throb. The sides of the smooth cube bulged harder, flexing out against invisible seams. 
+“Pour a line at the front. Make sure it’s far enough back that the swinging door won’t break the line. It needs to go all the way from one wall to the other. Pour extra if you’re not sure.”
 
-I wasn’t going to wait to see what Tyke was planning. I sprang from the bed and swung as hard as I could into the side of Tyke. The object, a hefty flashlight, cracked loudly against the cheap plastic. A bright flash came from the screen when it connected before all the momentum of my arm transferred into the cube. The cube flew off the dresser and tumbled across the floor with a loud clattering. It sounded heavier than before, like someone filled with water. 
+“I’m confused….”
 
-I dropped the flashlight and glanced at Tyke. The box was on the floor, one side cracked slightly. A dark red ooze frothed forth from the crack and surrounding edges. The screen was starting to go dark, fluid filling up behind it. I didn’t wait much longer. I ripped a pillow from my bed and shook it out of the case. Carefully, I picked Tyke up in the case and held it away from my body. The ooze was starting to soak the case, so I ran outside onto my driveway. 
+“And I’m scared shitless. Pour.”
 
-I spent a few minutes slamming the pillowcase into the driveway. The first few slams were like throwing a safe into concrete before the thuds got wetter and wetter. I could feel Tyke break up against the ground, his moist parts shifting around when I raised the case back up. The pillowcase dripped with red, and a nasty, stagnant pool had formed on the driveway. I ran out back and threw the case into a nice pile of dead limbs. I doused it in lighter fluid and watched it all burn for an hour. 
+He hefted his own large bag of salt and began making a wide circle, one large enough to fit us both. Looking behind him, I could see there was already a similar salt line at the back, stretching from wall to wall.
 
-Now I’m here. I buried the shell of Tyke out in the woods about an hour away, six feet down. I’m not sure what that thing was, or what happened to Dallas and Randy. I’m not sure I want to know. They’re gone, I can feel it in my bones. They aren’t coming back. At least Dallas and Randy aren’t. Now and then, I get a jolt up my back and feel to comfortable buzz of an analog speaker in my ear. It happens in my bed or while walking down the street, any time I feel like I’m safe. I’ve just got a horrid feeling that Tyke doesn’t abandon his friends so easily. 
+I had no idea what was happening, but I’d never seen Brucius be anything other than laid back and chill my entire time here. And that was enough to get me to listen.
+
+As I poured, I took a peek through the round window in the swinging doors and spotted the family still sitting there. They still hadn’t moved. 
+
+“This is really fucking creepy,” I muttered under my breath.
+
+Once my line of salt had been poured and double-checked, Brucius pointed to the inside of the circle and pressed a finger to his lips. 
+
+Tiptoeing to the wall, he carefully opened the circuit box. Then, taking a deep breath, he switched off the breakers, plunging the entire restaurant into darkness and turning off the lights outside. In the next instant, he’d leapt to join me in the middle of the circle.
+
+One heartbeat later, I heard the most ungodly shrieking from the dining area. I clamped my hands over my ears, but it didn’t help. It was like the sound waves were made of broken glass. My skin felt like it was being peeled off. My eardrums screamed. I started to fall over, and stopped abruptly only partway down. Brucius had twisted the collar of my shirt around his hand. I’d almost fallen outside the circle. Another shriek rolled over me and I sobbed in confusion and pain. My muscles clenched into knots as I fought an instinctive urge to run. Brucius’ grip tightened, keeping me grounded. 
+
+Just then, the swinging doors blasted open, and a roiling inky mass slithered and slopped its way inside. You’d think it would be too dark to see anything, but there were so many mouths…so many teeth…so many eyes… The space filled with the scent of rot and tar. 
+
+This was the “family.”
+
+I retched and clamped my hands over my mouth to keep the vomit down. 
+
+The mass glided and spilled its way up to the very edge of the salt line, and stretched horizontally along its entire length. I understood why there was a circle now. If there’d been the slightest gap in the line or between the line and the wall, it’d have slithered its way across.
+
+My eyes burned the longer I looked. I felt something warm drop onto my hand. I thought it was tears. It was a nosebleed.
+
+As the screams ratcheted higher, Bruce shouted, “Close your eyes!” I clamped my hands over my ears, screwed my eyes shut, and sobbed.
+
+Eventually - I don’t know how long - the screaming stopped. I must have passed out right after because when I came to, it was dawn. 
+
+Every muscle and bone in my body ached when I stood up. My face was crusted with dried tears, snot, and blood. Brucius was red-eyed and bedraggled. He was using the special broom - the one that said, “Do Not Use” in sharpie on the handle to sweep all the salt into a large dustpan with the same directive. The salt had turned a smoky blue and smelled like sulfur and gasoline. 
+
+Perhaps it was the daylight, perhaps it was surviving the single most terrifying night of my life, but when I spoke, my voice was surprisingly calm, even though it sounded like I’d chewed and swallowed broken glass. 
+
+“I’m going to wash my face. Then I’m going to make us coffee. And then you’re going to tell me what the hell that was.”
+
+He nodded, mumbled, “Yeah,” and kept sweeping.
+
+I was half tempted to turn the sign at the door to closed, but it would just my luck if the manager appeared out of nowhere when I did. Besides, the place was empty.
+
+Once he was done sweeping, he washed his hands, and joined me. I poured him a mug of the best coffee I’ve ever tasted in my life. He lit up a cigarette, and we looked at each other across an empty table. 
+
+Despite the commotion, the diner was in perfect order, like nothing had ever happened. 
+
+“What was that?”
+
+He took a long drag, as though toying with telling me the truth or not. But after last night, it was too late to lie.
+
+“They’re called The Family. I never seen them before, but Carrie - the waitress before you and Sheree - worked here for a few years and said they show up every once in awhile.”
+
+He paused as if expecting me to say something. I took a long sip, and he kept on.
+
+“The first clue was they didn’t have a car. They just appeared, I don’t even know from where, and walked in. The second is how they were dressed.”
+
+“Where did they come from?”
+
+“I don’t know, but the lore is a family disappeared on the highway decades ago and when they came back they were…that.”
+
+“And y’all didn’t think to tell me this when I got hired?”
+
+“Would you have believed it?”
+
+“I guess not.”
+
+“There’s a reason the pay is so good.”
+
+“What about the salt? The lights?”
+
+“Listen…I don’t know all the rules and she didn’t either, but before this place was built, apparently there were a lot more disappearances. People would get off at this exit because they thought they saw a sign for food or gas, take a turn, and never be seen again.”
+
+“But now…”
+
+“Now, people just stop here. Right off the highway and right back on. But that means when the family gets hungry…”
+
+“They come here.”
+
+“Yeah.”
+
+“That’s why you went straight to the back?”
+
+“Yeah, I needed to get started.“
+
+“And you turned off the light so no one stops while they’re here?”
+
+“Yeah.”
+
+“What about the salt?”
+
+He went quiet. “You saw why.”
+
+At that moment, the door opened, and a couple with a toddler entered. A real family. Oblivious.
+
+We stopped talking. I took their order and Brucius heated up the grill. There was nothing else to do.
+
+This happened a few weeks ago, but I’m still working there. Corporate gave us an extra bonus check when the incident was reported, which got me in a cheap hotel with a decent bed and shower for a little while. I’m still applying for jobs, but no one else has called me back for an interview. I’m alive because of Brucius, but he was just hired as a Corrections Officer at the prison and is leaving soon.
+
+I might delete this later, but I needed to share it with someone, where no one would know who I was or judge me. What do you think I should do? 
