@@ -1,88 +1,29 @@
-# Rules for the Nothing Zone
-This happened when I was very young. I have since confirmed the details with two relatives who were present that day, though I am the only one who experienced the event firsthand.
+# My experience in a Mid-western church, and why I'll never move back.
+It's best not to give too many details. Most of the people in this story are still in my (F23) life. My family was always heavily embedded in the church. My great grandfather was the pastor, his wife the pianist. Together they lead a group of over 20 families from the area. The rest of my family found active roles within the community. I don't remember when the building was finished but I know they helped lay the boards themselves. The church was way out in the middle of nowhere, on the county line, but they had a neighbor who prevented them from expanding their property. I'm not sure if he always lived there, but by the time they realized they wanted to expand, he was in their way. No one was happy about it. 
 
-For my cousins' eleventh birthday, we all went to SkyLeap Trampoline Park. Have you ever been to one of those places? It's usually a massive high-ceilinged warehouse filled with rows and rows of trampolines stretching across the entire length of the building. In more reputable ones there's a safety net around the edges so kids don't fly off and crack their heads.
+He was nasty from what I heard, and rarely left his little shack. He would leave trash and other gross items on his property, and occasionally barge in on a service. The cops couldn't do anything and he refused to move. I remember my grandmother and my father arguing one night around Easter about what to do with the situation. I couldn't make much of it out clearly, but I heard my father shout  "That's not how God works, mom!" I didn't realize until much later what had happened. The neighbor had taken his life and left a vague message for the congregation on the front door, like a true Protestant.  
 
-SkyLeap had safety nets. They had other things too. An arcade, a cafeteria, laser tag, Dance Dance Revolution pads, the works.
+I didn't know what he wrote, and I guess it didn't matter too much, as it didn't have anything to do with the church from what I could gather. It was clear that most of the members of the church felt this was Gods way of working for them, but it doesn't sit right with me. It's like praying for the accuracy of bombs in foriegn countries. It's easy to convince yourself that everything is Gods will when it works out in your favor.
 
-The whole place had an outer space theme, I remember. Ever since I'd seen a NASA documentary on the discovery channel, I had become obsessed with the idea of space travel.
+The building never expanded. My great grandfather, great grandmother, and grandfather all died within a few years. They found a new pastor, but he died during knee surgery, so they found a different pastor. Then he started making the homeless convert before they could receive snack-packs, and things really started going downhill. 
 
-Safe to say, I was in heaven. Mannequins in astronaut suits hung from the ceiling on cables. Airbrushed blacklight murals of planets and little green aliens in flying saucers decorated every wall. A massive neon sign over the entryway would periodically flicker to life reading: "One small step for man, one giant leap for mankind" while a heroic-sounding voice delivered the quote from a nearby speaker.
+Anyways. A few years back, I was about 20, I had started leading the youth groups and helped out more with the banquets. We'd just resumed normal services after Covid, and I think they all hated me a little more. It took a long time for me to reconnect with the church after my transition, especially without the support of my great grandmother. I was happy to finally be included in my family again, even if it meant being at the perifery of the congregation, but I could feel their eyes on me. All. The. Time. 
 
-This park also had a foam pit. It was off in a secluded corner of the trampoline area. There was a lime green launch pad area so you could really get a head start before bouncing in and landing in a giant pile of squishy foam bricks.
+My grandmother took a long time to understand, but I think I finally reached her by quoting some Matthew.
+The Easter egg-hunt was coming up and a few of us were in the kitchen prepping for the weekend. I was a little nervous to be around so many of the "elders" at once. They can be underhanded and mean without even realizing it. It's baked in to them at this point, they'll always look at me like I'm Cain and the old me was Abel. It was a good evening though. No micro-aggressions, no "girlfriend" talk. None of that stuff that makes you feel like your existence is wrong. I think someone had a talk with them behind my back, which isn't the worst feeling in the world, but it still makes me anxious. 
 
-I was not the most adventurous kid. Jane and Eliza, my twin cousins, were two years older than me. I was always trying to prove I could be as brave as they were.
+The building was old old, and each room smelled a different, unique kind of musty. The baptismal tub no longer functioned, and the roof had started to develop what would eventually be it's fatal wet-spot. I stepped away from the kitchen crew for just a few minutes to go grab something, maybe egg dye, from the back rooms. They each connected laterally behind the main hall, but the doors were all locked so it was effectively one long storage closet with multiple layers. I had worked my way nearly to the back, where the holiday items are kept, when I felt a gust of wind whirl past me. I was stunned. There's no cross breeze back there, and without any of the doors open it shouldn't be anything but the stuffy smell of decades old plastic. I gazed down the doorways and saw the door furthest from me, the exit, closing. Not a slam like you would expect from the movies, the quietest click you've ever heard. Like a diver leaving only a ripple in their wake. And then the next door started to close.
 
-When we approached the foam pit, the two of them leaped in right away, giggling amongst themselves. I hung back, unsure. As I stood at the start of the launch pad, considering my options, I noticed tiny words scrawled onto the wall beside me in white paint pen. They read:
+Before I could even free my legs from the mounds of cardboard, I was sealed in. I clambored over to the door, intent on ripping the plyboard off it's hinges. That's when it... they grabbed me. At first I thought I'd snagged my top on the unhoused lightswitch, but then I noticed the walls themselves. The woodgrain began to separate itself from the boards beneath, reaching for me. Before I could react I felt the clasp of several hands all over my limbs, the sound of creaking filled the room. They didn't feel clammy, or warm for that matter, no temperature, no moisture, just pressure, like being restrained by an iron maiden. The hands kept multiplying, encasing me, covering my eyes and mouth. And then it spoke in rattled clauses: 
 
-*RULES FOR THE NOTHING ZONE:*
+"Young one, why have you shorn your antlers?" 
 
-*ONE: Do not close your eyes.*
+They lifted my arms and I felt it smell me, inspect me like a specimen. I couldn't speak. I tried. I've never had anything so blatantly stomp my faith so quickly. It muttered something in a language that I won't even try to relay, but I could almost swear it was speaking in tongues, just like my great grandfather would. A lot of "shush" and "hala" sounds, almost like it was comforting me. I couldn't tell if it was one being, or multiple, but they functioned in perfect unison. 
 
-*TWO: Do not scream.*
+"The trees do not hear your prayers."
 
-*THREE: If it finds you, let it in.*
+I've tried so hard to figure out what that means these past few years. It never stops echoing in my brain, and maybe that's the point. All at once, I was released, and the doors were open. I fell, hard, dropped from a few feet. The room had returned to normal. The whole encounter lasted only about thirty seconds. I didn't go back to the kitchen, I walked right past them, got in my car, and went home. I never told my family what happened. I think they just assumed I was uncomfortable with the church environment, which is an easy out for me. About a year after I moved away the church was condemned. Nothing stands on that property now but the little shack that never got torn down.
 
-I squinted for a moment, trying to comprehend it. What was the Nothing Zone?
+ I recently visited for Christmas and a conversation came up about the old neighbor and his antics. I guess he had a few *realistic* mannequins in his yard and would leave used condoms in the lot. Details I didn't retain from my childhood. I'd never been told the message he left, understandably, but suffice to say the darker side of me was disappointed. It wasn't some morbid indictment, it was just some broken, senseless statement:
 
-"What's taking you so long, Jules?" Eliza yelled from the pit.
-
-"Are you scared?" teased Jane. I frowned and shook my head, readying myself to jump in.
-
-I sprinted forward, blood rushing in my ears. When I reached the bouncy edge of the launchpad I tried to spring as hard as I could, so as to make the most impressive arc. I scrunched my eyes closed.
-
-Then I was airborne. My stomach flopped and a scream escaped as I flailed mid-air, suddenly giddy and terrified and out of control.
-
-I did not come down.
-
-My limbs were weightless, stretched out, sort of like when I let myself float in the pool. Head back, muscles relaxed. My whole body felt buoyant. I imagined this was what it was like to be a balloon, thinking of the rainbow cluster tied to the party table in the cafeteria.
-
-Once, I'd gotten a helium balloon for my own birthday. It was one of those fancy metallic ones you get pre-inflated from the supermarket, predictably shaped like a little astronaut. In my eagerness to bring it home, I'd tripped and fallen in the parking lot, scraping my knees. By the time I noticed the string had left my hand, my astronaut was thirty feet in the air and ascending up and up... until it was a tiny speck against the cloudless blue sky.
-
-When I opened my eyes, I didn't see Jane or Eliza or the foam pit.
-
-I saw nothing.
-
-A blank white expanse stretched out as far as I could see.
-
-I tried to turn my body, but found that I could only twist my head and shoulders a few degrees in either direction. I kicked my feet and arms but with nothing to hang on to, I only succeeded in wiggling in place. Frustrated, I tried again. By trial and error, I found that swinging my arms from side to side allowed me to spin ever so slowly. Behind me, my surroundings were more of the same. White. Empty, blinding white. No floor, no ceiling, no sky.
-
-No horizon line. My breath began to quicken.
-
-I rubbed my eyes and opened them again, willing reality to make itself right again. I did this several times over, but each time I opened my eyes to an endless void.
-
-I was stuck.
-
-Next, I screamed for help. I called out for Jane, for Eliza, for my parents. I screamed until my lungs were tired and it felt like I was choking on razors.
-
-The sound barely traveled at all. The nothing just swallowed it up.
-
-When I could no longer scream, I began to cry quietly. I have no frame of reference for how long it had been at this point. It felt like hours, or maybe days.
-
-Gradually I became aware of another sound: a distant melodic whine. Each time it started up again, my eardrums pulsed uncomfortably. The closest way I can describe such a sonic experience is if you were to funnel a hundred overlapping whale songs through a long, narrow tube pointed directly into the cavity of your ear. It was strangely beautiful, and too much all at once.
-
-The void was singing to me.
-
-It got closer. I spun around in space, looking for the source. I could see only pure white.
-
-The call was almost percussive now, so powerfully rhythmic that I felt each wave ripple through my ribcage.
-
-Louder, louder, louder. Something was racing towards me at incredible speed, like a massive freighter tearing through ocean waters. I was nothing but a tiny swimmer in the path of its hull. Soon, it would crush me.
-
-The song swelled to a deafening roar. I tried to plug my ears but the vibration was everywhere. It had found the resonant frequency of my bones. My brain jostled around in my skull. Every inch of my body felt like it was running through a tumbler while being pulled apart like taffy. I couldn't think, couldn't breathe. I just wanted it to be over.
-
-So I let it in. I prayed for the nothing to take me away.
-
-\_\_
-
-A SkyLeap employee found me at the bottom of the foam pit several hours later. The park was closing by then. All the other guests had gone home. The arcade was dark and quiet.
-
-My parents were waiting at the edge as I was dragged out of my claustrophobic prison, gasping for air. That was the first time I'd seen my mother cry. My cousins were there too, staying behind to help with the search. They claimed that I'd wandered off while no one was looking.
-
-Years later, Jane admitted to me what she and Eliza had actually seen on that fateful birthday.
-
-"It just didn't make sense," she told me. "Our parents refused to believe the truth, but I know what I saw. You jumped, and then you didn't come down. We thought you were gone forever."
-
-One more detail about this recollection strikes me as bizarre. I had always been small for my age. My cousins stood about a head above me.
-
-After that day—and I swear this is true—I was the same height as them. For the first time in my childhood, we were eye to [eye](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).
+"But I will be in the leaves."
