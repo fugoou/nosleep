@@ -1,29 +1,107 @@
-# My experience in a Mid-western church, and why I'll never move back.
-It's best not to give too many details. Most of the people in this story are still in my (F23) life. My family was always heavily embedded in the church. My great grandfather was the pastor, his wife the pianist. Together they lead a group of over 20 families from the area. The rest of my family found active roles within the community. I don't remember when the building was finished but I know they helped lay the boards themselves. The church was way out in the middle of nowhere, on the county line, but they had a neighbor who prevented them from expanding their property. I'm not sure if he always lived there, but by the time they realized they wanted to expand, he was in their way. No one was happy about it. 
+# My mom vanished in the woods 8 years ago. I just got a letter from her.
 
-He was nasty from what I heard, and rarely left his little shack. He would leave trash and other gross items on his property, and occasionally barge in on a service. The cops couldn't do anything and he refused to move. I remember my grandmother and my father arguing one night around Easter about what to do with the situation. I couldn't make much of it out clearly, but I heard my father shout  "That's not how God works, mom!" I didn't realize until much later what had happened. The neighbor had taken his life and left a vague message for the congregation on the front door, like a true Protestant.  
 
-I didn't know what he wrote, and I guess it didn't matter too much, as it didn't have anything to do with the church from what I could gather. It was clear that most of the members of the church felt this was Gods way of working for them, but it doesn't sit right with me. It's like praying for the accuracy of bombs in foriegn countries. It's easy to convince yourself that everything is Gods will when it works out in your favor.
+I woke up hungover that day in my college dorm. I had drunk way too much at a bar the night before, celebrating until sunrise what would be my twentieth birthday.
 
-The building never expanded. My great grandfather, great grandmother, and grandfather all died within a few years. They found a new pastor, but he died during knee surgery, so they found a different pastor. Then he started making the homeless convert before they could receive snack-packs, and things really started going downhill. 
+When I checked my mailbox around noon, there was a white envelope with handwriting on it and no sender.
 
-Anyways. A few years back, I was about 20, I had started leading the youth groups and helped out more with the banquets. We'd just resumed normal services after Covid, and I think they all hated me a little more. It took a long time for me to reconnect with the church after my transition, especially without the support of my great grandmother. I was happy to finally be included in my family again, even if it meant being at the perifery of the congregation, but I could feel their eyes on me. All. The. Time. 
+"*Happy birthday, carrot. I’m still waiting for you at the same place. Come here tomorrow at dawn, and look for my blue coat. Signed, Mom.*"
 
-My grandmother took a long time to understand, but I think I finally reached her by quoting some Matthew.
-The Easter egg-hunt was coming up and a few of us were in the kitchen prepping for the weekend. I was a little nervous to be around so many of the "elders" at once. They can be underhanded and mean without even realizing it. It's baked in to them at this point, they'll always look at me like I'm Cain and the old me was Abel. It was a good evening though. No micro-aggressions, no "girlfriend" talk. None of that stuff that makes you feel like your existence is wrong. I think someone had a talk with them behind my back, which isn't the worst feeling in the world, but it still makes me anxious. 
+Reading those words sent chills all over my body.
 
-The building was old old, and each room smelled a different, unique kind of musty. The baptismal tub no longer functioned, and the roof had started to develop what would eventually be it's fatal wet-spot. I stepped away from the kitchen crew for just a few minutes to go grab something, maybe egg dye, from the back rooms. They each connected laterally behind the main hall, but the doors were all locked so it was effectively one long storage closet with multiple layers. I had worked my way nearly to the back, where the holiday items are kept, when I felt a gust of wind whirl past me. I was stunned. There's no cross breeze back there, and without any of the doors open it shouldn't be anything but the stuffy smell of decades old plastic. I gazed down the doorways and saw the door furthest from me, the exit, closing. Not a slam like you would expect from the movies, the quietest click you've ever heard. Like a diver leaving only a ripple in their wake. And then the next door started to close.
+Since my mom vanished eight years earlier, my family had gotten dozens of fake letters and false leads. But that word, carrot, told me this one was different.
 
-Before I could even free my legs from the mounds of cardboard, I was sealed in. I clambored over to the door, intent on ripping the plyboard off it's hinges. That's when it... they grabbed me. At first I thought I'd snagged my top on the unhoused lightswitch, but then I noticed the walls themselves. The woodgrain began to separate itself from the boards beneath, reaching for me. Before I could react I felt the clasp of several hands all over my limbs, the sound of creaking filled the room. They didn't feel clammy, or warm for that matter, no temperature, no moisture, just pressure, like being restrained by an iron maiden. The hands kept multiplying, encasing me, covering my eyes and mouth. And then it spoke in rattled clauses: 
+It was our inside joke. She started calling me that after I once scarfed down a whole plate of carrots just so she’d let me go play at the arcade. Nobody else could have known.
 
-"Young one, why have you shorn your antlers?" 
+***
 
-They lifted my arms and I felt it smell me, inspect me like a specimen. I couldn't speak. I tried. I've never had anything so blatantly stomp my faith so quickly. It muttered something in a language that I won't even try to relay, but I could almost swear it was speaking in tongues, just like my great grandfather would. A lot of "shush" and "hala" sounds, almost like it was comforting me. I couldn't tell if it was one being, or multiple, but they functioned in perfect unison. 
+My mom disappeared on a trail near town. We used to hike it almost every Sunday as a family. It was about two miles, ending at a pond where locals liked to fish.
 
-"The trees do not hear your prayers."
+That day, my dad was sick, so it was just me and her. We laughed and walked until I had to pee. She told me to go ahead, and stayed behind, maybe twenty feet away.
 
-I've tried so hard to figure out what that means these past few years. It never stops echoing in my brain, and maybe that's the point. All at once, I was released, and the doors were open. I fell, hard, dropped from a few feet. The room had returned to normal. The whole encounter lasted only about thirty seconds. I didn't go back to the kitchen, I walked right past them, got in my car, and went home. I never told my family what happened. I think they just assumed I was uncomfortable with the church environment, which is an easy out for me. About a year after I moved away the church was condemned. Nothing stands on that property now but the little shack that never got torn down.
+Nothing seemed unusual while I was peeing in that tree, except for the sound of a branch snapping, which I brushed off as nothing. I finished, turned around to call her, and she was gone.
 
- I recently visited for Christmas and a conversation came up about the old neighbor and his antics. I guess he had a few *realistic* mannequins in his yard and would leave used condoms in the lot. Details I didn't retain from my childhood. I'd never been told the message he left, understandably, but suffice to say the darker side of me was disappointed. It wasn't some morbid indictment, it was just some broken, senseless statement:
+I waited half an hour, thinking maybe she’d stepped off the trail too. Then I ran to the pond. Then I sprinted back to the parking lot, and the car was still there. Locked.
 
-"But I will be in the leaves."
+She had vanished into thin air.
+
+One of the local fishermen called my dad and the cops, and soon they combed every inch of that forest. Everyone was looking for her blue jacket, something that would stand out against the trees, but they never found a trace.
+
+Pretty soon the whole state knew about it: The kid that lost his mom. It usually went the other way around.
+
+Then came the TV reports, the YouTube channels, the podcasts. Theories stacked up.
+
+First, people said she left due to an affair with a coworker, a known womanizer, that had suspiciously moved out of state. Second, that she was killed by the so-called Pickaxe Maniac, a serial killer who’d murdered three women in the region a few years earlier and usually leaves the murder weapon at the spot. Third, the cops considered my dad might’ve done it for the life insurance money.
+
+No proof ever surfaced, and her case faded into silence.
+
+Right after I got the letter, I called my dad telling him about the carrot thing. His reaction was hard to read.
+
+We hadn’t spoken in months after some stupid fights, but he insisted the letter was a prank. He practically begged me not to go, said I should call the police immediately. His desperation ticked me off, so I hung up on him, same as last time we argued.
+
+I decided I’d go back to that trail. Even if it was a joke, I needed to know if there was any hope left of seeing my mother.
+
+***
+
+I drove all night and got there at dawn, parking near a pickup with some fishing equipment in it, the only other vehicle there.
+
+The trail was burned into my memory from all those childhood walks, even if I hadn’t set foot on it since the day she disappeared. 
+
+I walked for a few minutes and stopped at the same spot where I’d stepped off years ago to pee. Standing there again felt unreal, and not in a good way.
+
+I reached the same tree I had peed on, and froze, staring at the trunk like it owned me something. 
+
+Then I heard a crack behind me, like a branch snapping. Just like I remembered from that day. I spun around, and saw nothing unusual. Just the wind pushing leaves. 
+
+Then I noticed it. A flash of blue in the distance.
+I followed it excitedly, to find a tree with a tight blue coat wrapped around the trunk. I touched it and knew it was the same one she wore that day. Tears fell off my eyes almost automatically.
+
+Tucked under it was another envelope. I pulled it out, and it had the same handwriting.
+
+"*Glad you came, carrot. I’m right beneath you.*"
+
+I looked down, and the ground nearby looked freshly disturbed, like it had been dug up not long ago. 
+
+My hands shook as I started digging, fast, frantic. Whatever truth was buried there, I needed it. Or I thought I needed it.
+
+Soon I hit something solid. I clawed the dirt until I lifted out a small wooden box, maybe ten inches wide.
+
+It was sealed, before I tore it open.
+
+Inside were only two objects. 
+
+One of them was a human skull with a massive fracture on top. 
+
+The other one was an old pickaxe where a dark red stain had long dried.
+
+Terror ran through every vein in my body when I saw it,  and then I heard it again. The branch snapping behind me.
+
+I whipped around, panic in my throat. Now I could hear the steps coming my way. Whoever had killed her was here to finish the job with me.
+
+More snapping, closer this time. My eyes darted between trees, desperate to catch movement.
+
+Then I saw it. A figure in black, wearing a hat.
+
+And behind him, three more shapes. Police officers.
+
+***
+
+Turned out my dad had called half the town's police department, begging them to stop me. That’s what saved my life.
+
+They told me the pickup I’d seen earlier probably belonged to the Pickaxe Maniac. When they searched it, they found hair, scraps of skin, even a severed finger.
+
+Inside were dozens of letters, all written the same way as the ones I’d gotten.
+
+For some twisted reason, he seemed obsessed with me. Like he wanted to finish what he’d started with my mom years later.
+
+He wasn’t caught that day. He must’ve bolted into the woods on foot the second he spotted the cops.
+
+The only good thing that came of it was this: just a few yards away, they found another box with my mom’s remains. We could finally give her a real burial.
+
+But I can’t shake the feeling that nothing’s really over.
+
+I still don’t know what that monster wanted with me.
+
+I still don’t know how he knew about the nickname carrot.
+
+And most important of all, I still don’t know where he is. [He still out there.](https://www.reddit.com/u/Accomplished_Low7889/s/cGzGF91mgc)
