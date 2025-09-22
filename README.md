@@ -1,107 +1,143 @@
-# My mom vanished in the woods 8 years ago. I just got a letter from her.
+# My friend may not be human, I'm afraid
+The truth is, I don't fully know what kind of relationship I have with Him. The concept of friendship does not exist in this place. Cain said that most concepts have long since lost their meaning. So, for example, the concept of family simply does not exist here, but its absence does not surprise me at all. I do not remember my family. I do not even remember the fact of their existence, which can only indicate that I never had them in the first place. Perhaps my need for them simply disappeared at some point and they were lost among many other useless concepts. Cain always told me that it's better to forget unnecessary things because they only contaminate your thoughts. So I tried to forget. Indeed, why would I fill my head with concepts that had long been buried deep underground? Words the meaning of which has been erased.
+
+Nevertheless, the word human exists here. I know that I am a human being, and that Cain also calls himself one. For a long time I could not grasp the essence of this concept. What does it mean to be human, and why, as I looked into Cain's red eyes, did the thought creep into my mind that his self-proclaimed humanity could be a lie?
+
+Perhaps my suspicions are completely unjustified. Cain is the only person I know besides myself – not that I have anyone to compare him to. I remember the existence of other people, but I no longer recall how many there were, what happened to them, or where they went. I cannot even remember their faces, their voices, or the way they behaved.
+
+There are no mirrors in this place, though I know that they must have been here at some point in time. I could swear I glimpsed one, just for a moment, in Cain’s office, but I doubt I will ever have the chance to check. Every time I grab the handle of that door, the metal scorches my palms like tongues of flame. I cannot bear the thought of wandering the endless corridors again for weeks, hiding my burned hands from Cain. He said nothing last time, but I know he was aware of my trespass.
+
+I know exactly what my hands look like. When they are unburned, their skin is pale, with long fingers and short, neat nails. Cain’s hands are nothing like mine. I have studied them many times from a distance, or while feeling them pressed against my own fevered skin. His hands are larger, more graceful, yet stronger, with nails more like claws, capable of slicing through warm flesh. When they close around my neck, I cannot take another step.
+
+Fear strikes with the realization that any wrong movement could be fatal and that this man, who is towering over me with his looming figure, has complete control, but the feeling of danger passes when Cain hums and turns away, loosening his grip. His fingers slip from my throat one by one, leaving behind a chill of alienation. And I breathe, hard and deep, grabbing at my throat with my own hands this time.
+
+Something wet trickles down my neck. I stare at the thick, bright red on my fingertips and think, almost calmly: *I wonder what color Cain’s blood might be.*"
+
+  
 
 
-I woke up hungover that day in my college dorm. I had drunk way too much at a bar the night before, celebrating until sunrise what would be my twentieth birthday.
+Sometimes I wonder if Cain might be God.
 
-When I checked my mailbox around noon, there was a white envelope with handwriting on it and no sender.
+There is a library here, perhaps even several. It is hard to tell, because every time I find it among the endless rooms, the bookshelves have shifted to new positions. The library has always seemed enormous to me. A single lifetime would never be enough to read everything collected here. 
 
-"*Happy birthday, carrot. I’m still waiting for you at the same place. Come here tomorrow at dawn, and look for my blue coat. Signed, Mom.*"
+I also do not know whose books these are. If they all belong to Cain, I wonder whether he has read them. And if he has, how many years it must have taken him?
 
-Reading those words sent chills all over my body.
+*How old is Cain, anyway?*
 
-Since my mom vanished eight years earlier, my family had gotten dozens of fake letters and false leads. But that word, carrot, told me this one was different.
+I have not read many of the books collected in the library. But I have a few favorites. I return to them from time to time and am never disappointed. One of these books is a collection of poetry. Bound in red with silver embellishments, this copy has always been a pleasure to hold while tracing the silver patterns that twist across the red leather like vines, forming the words: 'On Great Happiness.' For some reason, I always cry when I read this book. The author’s name is unknown.
 
-It was our inside joke. She started calling me that after I once scarfed down a whole plate of carrots just so she’d let me go play at the arcade. Nobody else could have known.
+Another book is a collection of short stories, each revolving around a strikingly beautiful and joyous woman named ███████. The tales portray seemingly ordinary moments from her life – a visit from guests, an outing to the city, a social gathering, or an encounter with her first lover. The tales have the qualities of novellas, and each ends with an unexpected twist. At the conclusion of every story, the heroine suddenly dies. The author’s name has been lost, vanished along with the book’s title page.
 
-***
+One day, I happened to stumble upon the library. In my mind, I was reciting lines from a book titled *A Cage for a Dead Bird*. It was a poem that adorned one of its pages, written in a language different from the one I spoke, yet somehow familiar to me. I loved how melodious it sounded in my head, and I remembered its opening clearly:
 
-My mom disappeared on a trail near town. We used to hike it almost every Sunday as a family. It was about two miles, ending at a pond where locals liked to fish.
+“Спочивай з миром, мертвий птах,  
+Клітка твоя – твоя могила.  
+Відомим був тобі і страх, і гнів,  
+І доброта душі людської, що давно прогнила,  
+Залишив по собі діру…”
 
-That day, my dad was sick, so it was just me and her. We laughed and walked until I had to pee. She told me to go ahead, and stayed behind, maybe twenty feet away.
+One can translate the poem as follows:
 
-Nothing seemed unusual while I was peeing in that tree, except for the sound of a branch snapping, which I brushed off as nothing. I finished, turned around to call her, and she was gone.
+“Rest in peace, dead bird,  
+Your cage is your tomb.  
+Fear and wrath were known to you,  
+And the kindness of the human soul, long decayed,  
+Left a hollow in its wake…”
 
-I waited half an hour, thinking maybe she’d stepped off the trail too. Then I ran to the pond. Then I sprinted back to the parking lot, and the car was still there. Locked.
+I could not remember how it ended. The forgotten lines surfaced in waves, only to be lost again in the chaos that reigned in my memory. At that moment, I felt an urgent need to find the poem, to read it again, and to make sure it was not merely a product of my own imagination.
 
-She had vanished into thin air.
+As I have mentioned before, the library was vast, its endless halls and towering shelves shifting their arrangement with every visit. Until now, I had always been able to find the books I was looking for with ease, whether my favorite novel or a cherished collection of stories but not this time. For hours I wandered through the towering stacks, each shelf brimming with countless volumes, reading titles on their spines, yet the book I was searching for remained elusive, hidden somewhere in the endless maze.
 
-One of the local fishermen called my dad and the cops, and soon they combed every inch of that forest. Everyone was looking for her blue jacket, something that would stand out against the trees, but they never found a trace.
+What exactly was I looking for?  Lost in this seemingly endless labyrinth, I had already forgotten the purpose of my visit, yet I continued to scan book after book, never lifting them from their places. The volumes here never gathered dust; their covers shone bright and unspoiled, and they stretched endlessly in long, sprawling rows. Wherever I turned, shelves loomed, and upon them – books. It was as if their numbers multiplied before my eyes. The stacks leaned and swayed under the relentless weight of all the accumulated volumes, threatening to collapse at any moment."
 
-Pretty soon the whole state knew about it: The kid that lost his mom. It usually went the other way around.
+I quickened my pace, perhaps even breaking into a run, though running in the library was reckless, especially along these corridors that twisted and coiled like spirals. I felt as if I were in the belly of a serpent, its esophagus narrowing along with the shelves around me. Dizziness overwhelmed me, leaving me unable to walk or run; all I could do was struggle to remain upright. I clutched the nearest shelf, desperate for balance. My hand slid across the books, and with a single misstep, they cascaded to the floor, a small avalanche in the oppressive silence of the labyrinth.
 
-Then came the TV reports, the YouTube channels, the podcasts. Theories stacked up.
+They all fell at once with a dull thud, a sound swallowed by the thick walls of the book-filled stacks. I lunged to gather them, my eyes darting frantically around. No one was there. I was utterly alone in the library, and yet a gaze bore into me, invisible yet heavy, pressing against my skin like a cold, unrelenting hand.
 
-First, people said she left due to an affair with a coworker, a known womanizer, that had suspiciously moved out of state. Second, that she was killed by the so-called Pickaxe Maniac, a serial killer who’d murdered three women in the region a few years earlier and usually leaves the murder weapon at the spot. Third, the cops considered my dad might’ve done it for the life insurance money.
+After hastily returning most of the books to what I believed were their rightful places, I reached for the last one, still lying on the floor. Something made me pause just as my fingers hovered inches above its hard, unyielding cover. It almost completely blended into the black carpet, and on the dark background, only the letters in stark white stood out.
 
-No proof ever surfaced, and her case faded into silence.
+‘The Ever-Present One,’ I read.
 
-Right after I got the letter, I called my dad telling him about the carrot thing. His reaction was hard to read.
+I took the book into my hands and began to study its contents. As expected, no information about the author was given, yet on the title page, a message from the nameless creator awaited me – a direct address to the reader, or rather, to me.
 
-We hadn’t spoken in months after some stupid fights, but he insisted the letter was a prank. He practically begged me not to go, said I should call the police immediately. His desperation ticked me off, so I hung up on him, same as last time we argued.
+“This book is neither a manual nor a doctrine, but a quiet whisper for those who yearn to see beyond. To those who feel that words often fail to hold the truth, and that silence can speak louder than any voice. For those who wander in the unknown, who question, who seek to grasp what is invisible.”
 
-I decided I’d go back to that trail. Even if it was a joke, I needed to know if there was any hope left of seeing my mother.
+This could not help but ignite a fierce curiosity within me. I thought about how perfectly the description fit. In my mind, a desperate, ringing voice echoed: ‘It is me. I seek to understand the invisible.’ I long to know the truth.
 
-***
+*It was dangerous to know the truth.* 
 
-I drove all night and got there at dawn, parking near a pickup with some fishing equipment in it, the only other vehicle there.
+I remembered coming to the library for something, yet the memory of what exactly had already slipped away. Perhaps this book was what I had been seeking all along. It felt inevitable. What else could one come to a library for, if not in pursuit of knowledge? And if the words within could be trusted, they promised to answer every question I had ever dared to ask.
 
-The trail was burned into my memory from all those childhood walks, even if I hadn’t set foot on it since the day she disappeared. 
+I sank into a chair I had stumbled upon while wandering aimlessly among the shelves, finally allowing myself a moment of respite as I began to leaf through the creamy pages, searching for something to captivate me. Yet even as I became absorbed in the book, my hand kept rising to my neck, rubbing it nervously, driven by the icy sensation of an unseen gaze pressing down upon my back.
 
-I walked for a few minutes and stopped at the same spot where I’d stepped off years ago to pee. Standing there again felt unreal, and not in a good way.
+At first the book seemed confusing to me. I read about people, their souls, their sins and their downfall. It was unlike anything I had known. I wondered what it means to be human. The book claimed that a person is the essence of their own soul. If that is so, where does it come from and what is it made of? Can it be touched, held, or shattered? If sin destroys the soul, does the one who carries it within remain human? How many times must one fall before ceasing to be oneself and becoming something else? People have always been a mystery to me, yet even more questions were stirred by beings higher than humans. Something unseen whose presence we each somehow sense, pressing at the edges of perception, haunting the spaces between thought and reality.
 
-I reached the same tree I had peed on, and froze, staring at the trunk like it owned me something. 
+I was certain that the word 'God' had long been forgotten. Not a single fragment of memory remained in my mind that could shed light on the matter, yet with each page I read, memories began to surge through my head. Briefly, in fragments, like flashes from an old film camera. The memories themselves resembled photographs, long forgotten, perhaps even buried, as deep as it is possible to be. Memories that had never ceased to bring pain. They never stopped.
 
-Then I heard a crack behind me, like a branch snapping. Just like I remembered from that day. I spun around, and saw nothing unusual. Just the wind pushing leaves. 
+In them I see a bright room with high ceilings and colorful stained glass. I am in a church. I remember, this is exactly how they looked. A place of peace and elevation. A place of communion with God. It would almost be pleasant to be here, if not for that dreadful howling.
 
-Then I noticed it. A flash of blue in the distance.
-I followed it excitedly, to find a tree with a tight blue coat wrapped around the trunk. I touched it and knew it was the same one she wore that day. Tears fell off my eyes almost automatically.
+By the altar, kneeling, sits an older woman. Her figure is bent in agony and with the delicate strength of her trembling fingers she grips the edges of an open coffin. Something prevents me from looking inside the coffin. Fear.
 
-Tucked under it was another envelope. I pulled it out, and it had the same handwriting.
+I continue to watch her. Her shoulders shake and her entire body convulses with sobs. It is her crying that disturbs the peace within the church walls, growing louder and louder until her screams drown out my own thoughts.
 
-"*Glad you came, carrot. I’m right beneath you.*"
+Amid these cries I manage to make out words. The woman is praying. She pleads for the salvation of her deceased son's soul. This is her son in the coffin, I realize. I still cannot bring myself to look inside. Invisible chains hold me fast, the heaviest constricting my neck. A scream full of anguish rises to my throat, searing through me. My heart fills with iron. I do not own this pain, any more than I own these relentless memories.
 
-I looked down, and the ground nearby looked freshly disturbed, like it had been dug up not long ago. 
+That same evening Cain and I lay together in his bed. My body was still warm and languid, and Cain was unusually tender. Cain loved sex, loved to be desired, and I could give him that. I, too, hungered for attention, for everything he could grant me. I wanted to be of use to him, wanted him to return to me and not abandon me to the cold, inhospitable silence of this bedroom. He usually recoiled from closeness after sex, yet that night he allowed me to rest my head on his broad chest. I could hear his heart beating out of rhythm with my own, alive and pulsing, a heart I wanted to believe was truly human.
 
-My hands shook as I started digging, fast, frantic. Whatever truth was buried there, I needed it. Or I thought I needed it.
+“Do you think God is watching us right now?” I could not see Cain’s face, yet I felt his hand, which had been idly running through my hair, pause and hover in the air.
 
-Soon I hit something solid. I clawed the dirt until I lifted out a small wooden box, maybe ten inches wide.
+It was clear that he had not expected such a question, especially at a moment like this, yet I could not hold myself back from asking. Cain seemed to be in an unusually elevated mood. I clung to the hope that this would shield me from his anger, if the question struck him as improper.
 
-It was sealed, before I tore it open.
+*It was dangerous to know the truth.*
 
-Inside were only two objects. 
+“What do you mean by that?” Cain lowered his hand onto my head and I felt his claws press against my scalp.
 
-One of them was a human skull with a massive fracture on top. 
+“I'm asking,” I said, less confidently now, “because I really wonder if God is watching us. If he is why can’t we see him?”
 
-The other one was an old pickaxe where a dark red stain had long dried.
+Cain hummed in response, as if my question had struck him as amusing. 
 
-Terror ran through every vein in my body when I saw it,  and then I heard it again. The branch snapping behind me.
+“No one has ever seen God, Caleb,” he replied.
 
-I whipped around, panic in my throat. Now I could hear the steps coming my way. Whoever had killed her was here to finish the job with me.
+“No one?” I asked again, but Cain remained silent. “If no one has seen him, how did people know he was real?”
 
-More snapping, closer this time. My eyes darted between trees, desperate to catch movement.
+My question made him chuckle.
 
-Then I saw it. A figure in black, wearing a hat.
+“People did not know this. Many refused to believe in him, while others trembled not at God, but at the void of the unknown and the certainty of death. People needed someone stronger to hold sway over them and their brief, fragile lives. With this plea, they turned to God.”
 
-And behind him, three more shapes. Police officers.
+“And do you believe in God?”
 
-***
+Cain chose to remain silent. In turn, I dwelled on his words. Does God exist only for those who seek him? What becomes of those who do not believe, or have never even pondered his existence? Perhaps that is why I have met no one but Cain. People turned away from God. But can God turn away from his own creations? I now know that he bears both punishment and mercy, destruction as well as life. He is the one who is always near. Perhaps the very gaze you feel upon your back, as you sit alone with an open book in your hands, in the hollow silence of an empty library.
 
-Turned out my dad had called half the town's police department, begging them to stop me. That’s what saved my life.
+I always suspected that my friend might not be human.
 
-They told me the pickup I’d seen earlier probably belonged to the Pickaxe Maniac. When they searched it, they found hair, scraps of skin, even a severed finger.
+“Cain,” I whispered. He said nothing in response, yet I knew I had drawn his attention.
 
-Inside were dozens of letters, all written the same way as the ones I’d gotten.
+“This question may sound foolish, but… could you be God?”
 
-For some twisted reason, he seemed obsessed with me. Like he wanted to finish what he’d started with my mom years later.
+I expected no answer, yet after a brief pause, Cain spoke to me at last, his voice thoughtful, dark, and almost sacred:
 
-He wasn’t caught that day. He must’ve bolted into the woods on foot the second he spotted the cops.
+“No, not yet.”
 
-The only good thing that came of it was this: just a few yards away, they found another box with my mom’s remains. We could finally give her a real burial.
+His hand returned to playing with my hair. The gesture could have been almost pleasant, if not for the force with which Cain tugged at my strands.
 
-But I can’t shake the feeling that nothing’s really over.
+“One day the world will see God, but certainly not you, Caleb,” he said, his tone almost affectionate. “You were never meant to stand before God. He will not care for you, so for now, savor what little you have.”
 
-I still don’t know what that monster wanted with me.
+Cain’s words were like venom, sinking slowly deeper and deeper into my mind with each passing second. I wanted to run, yet I continued to lie obediently at Cain’s side, while he seemed to mutter aimlessly under his breath. A poem, whose lines I thought I had lost.
 
-I still don’t know how he knew about the nickname carrot.
+«Сліпий і необачний хід,  
+Пісня, що не була почута,  
+І голова розчавлена як стиглий плід,  
+Ціна її спокути  
+За зневіру».
 
-And most important of all, I still don’t know where he is. [He still out there.](https://www.reddit.com/u/Accomplished_Low7889/s/cGzGF91mgc)
+“Blind and reckless move,  
+A song that went unheard,  
+And a head crushed like ripe fruit,  
+The price of its atonement  
+For its lack of faith.”
+
+The next day, I rushed back to the library. I needed to know more. I needed answers. I needed to understand what Cain truly was.
+
+I scurried through the library, opening every book that came to hand. I no longer read their titles, nor did I pay attention to what I held, for within seconds another book would crash to the floor.
+
+It took me hours, hours to face the unbearable truth: the pages of every book in the library were utterly blank.
