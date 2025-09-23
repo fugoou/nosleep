@@ -1,143 +1,192 @@
-# My friend may not be human, I'm afraid
-The truth is, I don't fully know what kind of relationship I have with Him. The concept of friendship does not exist in this place. Cain said that most concepts have long since lost their meaning. So, for example, the concept of family simply does not exist here, but its absence does not surprise me at all. I do not remember my family. I do not even remember the fact of their existence, which can only indicate that I never had them in the first place. Perhaps my need for them simply disappeared at some point and they were lost among many other useless concepts. Cain always told me that it's better to forget unnecessary things because they only contaminate your thoughts. So I tried to forget. Indeed, why would I fill my head with concepts that had long been buried deep underground? Words the meaning of which has been erased.
+# The creepiest night in my life in Detroit
+Hey, I decided to post my new story here before posting on my YouTube channel.
 
-Nevertheless, the word human exists here. I know that I am a human being, and that Cain also calls himself one. For a long time I could not grasp the essence of this concept. What does it mean to be human, and why, as I looked into Cain's red eyes, did the thought creep into my mind that his self-proclaimed humanity could be a lie?
+I never thought I’d be the kind of man who aims his rifle scope at another living person.  
+But boredom has a way of twisting your routines into something you’d rather not admit out loud.
 
-Perhaps my suspicions are completely unjustified. Cain is the only person I know besides myself – not that I have anyone to compare him to. I remember the existence of other people, but I no longer recall how many there were, what happened to them, or where they went. I cannot even remember their faces, their voices, or the way they behaved.
+I’d rented this apartment in Detroit, East Side. Cheap place, temporary deal—three months tops, just to be close to a contracting job. It was one of those tall, worn-down complexes: brown brick, peeling paint, neighbors arguing in the hallways. The rent was low because the landlord knew no one sane wanted to stay here longer than necessary. And me? I didn’t care. I wasn’t planning on putting down roots.
 
-There are no mirrors in this place, though I know that they must have been here at some point in time. I could swear I glimpsed one, just for a moment, in Cain’s office, but I doubt I will ever have the chance to check. Every time I grab the handle of that door, the metal scorches my palms like tongues of flame. I cannot bear the thought of wandering the endless corridors again for weeks, hiding my burned hands from Cain. He said nothing last time, but I know he was aware of my trespass.
+Evenings were the problem. Work was boring, sure, but at least it kept my hands busy. Back home, I had nothing. No cable—I wasn’t about to waste money on that. Mobile data was enough, and signing a long-term internet contract didn’t make sense when I knew I’d be gone before the ink dried. I had a couple books, but I burned through those in the first week. That left me with long nights, a thin mattress, and silence thick enough to choke on.
 
-I know exactly what my hands look like. When they are unburned, their skin is pale, with long fingers and short, neat nails. Cain’s hands are nothing like mine. I have studied them many times from a distance, or while feeling them pressed against my own fevered skin. His hands are larger, more graceful, yet stronger, with nails more like claws, capable of slicing through warm flesh. When they close around my neck, I cannot take another step.
+So I turned to the only hobby I’d brought with me: my Remington 700. Bought it second-hand at a gun show a few years back. Cleaned it up myself, fitted it with a decent scope. Nothing fancy, just a reliable bolt-action rifle. I’d never fired it at anything living, and I didn’t plan to. But I liked the weight of it, the precision. Looking through the glass made me feel steady, like the world narrowed into a clean circle where everything was sharp and in focus.
 
-Fear strikes with the realization that any wrong movement could be fatal and that this man, who is towering over me with his looming figure, has complete control, but the feeling of danger passes when Cain hums and turns away, loosening his grip. His fingers slip from my throat one by one, leaving behind a chill of alienation. And I breathe, hard and deep, grabbing at my throat with my own hands this time.
+At first, it was innocent. I’d set it on the table by the window, draw the curtains just enough to leave a slit, and line up the scope with rooftops and street signs. Ranging distances, testing how steady my hand was after coffee, after a long day, after two beers. Just practice.
 
-Something wet trickles down my neck. I stare at the thick, bright red on my fingertips and think, almost calmly: *I wonder what color Cain’s blood might be.*"
+Then, one night, I slid the crosshairs across the building opposite mine. Another twelve-story complex, maybe two hundred yards away. A whole wall of glowing rectangles, each window a little TV screen playing a different channel. And once I started, I couldn’t stop.
 
-  
+The first night hooked me right away. Dozens of glowing windows across the street, each one a private stage I wasn’t supposed to see. People arguing, eating, laughing, living. I told myself it was just curiosity, just something to pass the time. But the truth is, it felt wrong—and that was part of the pull. The fact that they couldn’t see me, while I could see everything, gave me a rush that was half excitement, half guilt. Like I’d crossed into a place I wasn’t supposed to be, and found it too fascinating to leave.
 
+It’s funny how boredom makes you cross lines you swore you’d never cross.  
+Loneliness teaches you habits you’d never admit in daylight.
 
-Sometimes I wonder if Cain might be God.
+Over the next few nights, the habit stuck. I’d come home, heat up some leftovers, maybe drink a beer, then pull the curtains just enough and lean into the scope. The apartment complex across the street turned into my private theater. Dozens of shows, none of them knowing they had an audience.
 
-There is a library here, perhaps even several. It is hard to tell, because every time I find it among the endless rooms, the bookshelves have shifted to new positions. The library has always seemed enormous to me. A single lifetime would never be enough to read everything collected here. 
+Most people would probably call it sick. And maybe it was. But for me, it was survival. Better to be the watcher than the man alone in the dark with nothing but his thoughts.
 
-I also do not know whose books these are. If they all belong to Cain, I wonder whether he has read them. And if he has, how many years it must have taken him?
+When you stare into other people’s lives long enough, you realize how predictable we all are. Most windows replay the same story, night after night.  
+But every now and then, something new slips through the cracks.
 
-*How old is Cain, anyway?*
+It was on the eighth night that I noticed him.
 
-I have not read many of the books collected in the library. But I have a few favorites. I return to them from time to time and am never disappointed. One of these books is a collection of poetry. Bound in red with silver embellishments, this copy has always been a pleasure to hold while tracing the silver patterns that twist across the red leather like vines, forming the words: 'On Great Happiness.' For some reason, I always cry when I read this book. The author’s name is unknown.
+A window on the eighth floor. At first glance, nothing unusual—just a dim, bare room with yellowing wallpaper and a single bed pushed into the corner. A naked bulb dangled from the ceiling. The rest was empty: a couple chairs stacked in the corner, a rug that had seen better decades. The kind of space you’d expect in a building like this—cheap, forgotten, temporary.
 
-Another book is a collection of short stories, each revolving around a strikingly beautiful and joyous woman named ███████. The tales portray seemingly ordinary moments from her life – a visit from guests, an outing to the city, a social gathering, or an encounter with her first lover. The tales have the qualities of novellas, and each ends with an unexpected twist. At the conclusion of every story, the heroine suddenly dies. The author’s name has been lost, vanished along with the book’s title page.
+But the figure on the bed was what stopped me.
 
-One day, I happened to stumble upon the library. In my mind, I was reciting lines from a book titled *A Cage for a Dead Bird*. It was a poem that adorned one of its pages, written in a language different from the one I spoke, yet somehow familiar to me. I loved how melodious it sounded in my head, and I remembered its opening clearly:
+He was sitting cross-legged, back straight, facing the wall. His head was completely bald, skin pale under the light. He was shirtless, skinny to the point of wrong—his spine curved under the skin like a row of knots pulled too tight. His arms dangled long at his sides, fingertips brushing his knees. He didn’t move. Not once.
 
-“Спочивай з миром, мертвий птах,  
-Клітка твоя – твоя могила.  
-Відомим був тобі і страх, і гнів,  
-І доброта душі людської, що давно прогнила,  
-Залишив по собі діру…”
+I held my breath, watching him. Maybe he was meditating. Maybe asleep sitting up. Maybe dead. Hell, maybe it wasn’t even a person—maybe a mannequin someone left behind. I tried to convince myself of all those things, but none of them stuck. Something about him made the hair rise on the back of my neck.
 
-One can translate the poem as follows:
+I swept the scope across the wall he was staring at. Nothing there. No posters, no pictures, not even cracks that might hold his attention. Just peeling wallpaper, water stains, the color of old teeth. I shifted back to him. Still motionless. Still staring.
 
-“Rest in peace, dead bird,  
-Your cage is your tomb.  
-Fear and wrath were known to you,  
-And the kindness of the human soul, long decayed,  
-Left a hollow in its wake…”
+Most people move, even if just to scratch their nose.  
+But that night, he didn’t. And I knew I’d be back at the window tomorrow.
 
-I could not remember how it ended. The forgotten lines surfaced in waves, only to be lost again in the chaos that reigned in my memory. At that moment, I felt an urgent need to find the poem, to read it again, and to make sure it was not merely a product of my own imagination.
+The eighth-night discovery should have scared me off. Any reasonable man would have looked at that pale figure in the bare room, muttered something about “not my business,” and turned away.  
+But the truth? It made me hungrier.
 
-As I have mentioned before, the library was vast, its endless halls and towering shelves shifting their arrangement with every visit. Until now, I had always been able to find the books I was looking for with ease, whether my favorite novel or a cherished collection of stories but not this time. For hours I wandered through the towering stacks, each shelf brimming with countless volumes, reading titles on their spines, yet the book I was searching for remained elusive, hidden somewhere in the endless maze.
+Soon, watching the building across the street wasn’t just a way to kill time—it was my ritual. Every evening after work, I’d heat up something cheap, crack open a beer, and settle into my spot at the window. Curtains drawn just enough, scope angled across the gap, my eye drinking in those glowing rectangles.
 
-What exactly was I looking for?  Lost in this seemingly endless labyrinth, I had already forgotten the purpose of my visit, yet I continued to scan book after book, never lifting them from their places. The volumes here never gathered dust; their covers shone bright and unspoiled, and they stretched endlessly in long, sprawling rows. Wherever I turned, shelves loomed, and upon them – books. It was as if their numbers multiplied before my eyes. The stacks leaned and swayed under the relentless weight of all the accumulated volumes, threatening to collapse at any moment."
+I had plenty of windows to choose from, but a few became my favorites.
 
-I quickened my pace, perhaps even breaking into a run, though running in the library was reckless, especially along these corridors that twisted and coiled like spirals. I felt as if I were in the belly of a serpent, its esophagus narrowing along with the shelves around me. Dizziness overwhelmed me, leaving me unable to walk or run; all I could do was struggle to remain upright. I clutched the nearest shelf, desperate for balance. My hand slid across the books, and with a single misstep, they cascaded to the floor, a small avalanche in the oppressive silence of the labyrinth.
+There was the single mom with two kids. Her boys treated the living room like a trampoline park, bouncing off the couch while she dragged herself in after work. Sometimes she’d yell, sometimes she’d laugh, sometimes she just sank into the sofa with a bottle of cheap wine and stared through the TV like she was miles away. I didn’t pity her—I respected her. She kept going, even when it was obvious she had nothing left in the tank.
 
-They all fell at once with a dull thud, a sound swallowed by the thick walls of the book-filled stacks. I lunged to gather them, my eyes darting frantically around. No one was there. I was utterly alone in the library, and yet a gaze bore into me, invisible yet heavy, pressing against my skin like a cold, unrelenting hand.
+Then there was the young couple. They were relentless, like they’d made a bet with themselves to see how many ways two people could wear each other out before sunrise. At first, it was entertaining—like stumbling across a pay-per-view show for free—but eventually it was just predictable. Still, I kept watching. Predictability can be comforting.
 
-After hastily returning most of the books to what I believed were their rightful places, I reached for the last one, still lying on the floor. Something made me pause just as my fingers hovered inches above its hard, unyielding cover. It almost completely blended into the black carpet, and on the dark background, only the letters in stark white stood out.
+And then the gymnast girl. Twelve, maybe thirteen. Every night she stretched, jumped rope, practiced handstands in her tiny living room. Always in that faded leotard, hair pulled tight. No distractions, no breaks, just pure repetition. Watching her was like seeing focus distilled into a kid’s body. She reminded me that discipline was possible—even in a place where everything else seemed to fall apart.
 
-‘The Ever-Present One,’ I read.
+I never told myself they were “neighbors.” Neighbors are people you wave to in the hallway. These weren’t people I knew; they were characters in a show only I could watch. And each of them pulled me deeper into the habit.
 
-I took the book into my hands and began to study its contents. As expected, no information about the author was given, yet on the title page, a message from the nameless creator awaited me – a direct address to the reader, or rather, to me.
+But the bald man—he wasn’t just another character. He was a puzzle. And puzzles have a way of eating at you if you leave them unsolved.
 
-“This book is neither a manual nor a doctrine, but a quiet whisper for those who yearn to see beyond. To those who feel that words often fail to hold the truth, and that silence can speak louder than any voice. For those who wander in the unknown, who question, who seek to grasp what is invisible.”
+A week passed. Every night, the same scene: him sitting cross-legged on the bed, motionless, eyes fixed on the wall. Sometimes the sheets on the bed looked slightly different, as if someone had changed them while I wasn’t looking. But him? He never moved.
 
-This could not help but ignite a fierce curiosity within me. I thought about how perfectly the description fit. In my mind, a desperate, ringing voice echoed: ‘It is me. I seek to understand the invisible.’ I long to know the truth.
+One night, after two beers, I decided to break the script. I wanted to see if I could force something to happen.
 
-*It was dangerous to know the truth.* 
+I pulled up my phone and ordered a pizza. Large pepperoni, extra cheese. Delivery to apartment 8B—the bald man’s floor, his window. My hands were sweating as I typed in the address. I told myself it was harmless. If he was a normal guy, he’d answer the door, pay, and eat. And I’d finally know.
 
-I remembered coming to the library for something, yet the memory of what exactly had already slipped away. Perhaps this book was what I had been seeking all along. It felt inevitable. What else could one come to a library for, if not in pursuit of knowledge? And if the words within could be trusted, they promised to answer every question I had ever dared to ask.
+Half an hour later, I spotted the delivery car pulling up to the curb. My heart thudded in my chest as the driver walked inside with the box balanced on his arm. I tightened the scope on 8B’s window, waiting for movement. Any movement.
 
-I sank into a chair I had stumbled upon while wandering aimlessly among the shelves, finally allowing myself a moment of respite as I began to leaf through the creamy pages, searching for something to captivate me. Yet even as I became absorbed in the book, my hand kept rising to my neck, rubbing it nervously, driven by the icy sensation of an unseen gaze pressing down upon my back.
+Five minutes passed. Ten. Then, out of the corner of the scope, I caught the driver coming back out the front doors of the building.
 
-At first the book seemed confusing to me. I read about people, their souls, their sins and their downfall. It was unlike anything I had known. I wondered what it means to be human. The book claimed that a person is the essence of their own soul. If that is so, where does it come from and what is it made of? Can it be touched, held, or shattered? If sin destroys the soul, does the one who carries it within remain human? How many times must one fall before ceasing to be oneself and becoming something else? People have always been a mystery to me, yet even more questions were stirred by beings higher than humans. Something unseen whose presence we each somehow sense, pressing at the edges of perception, haunting the spaces between thought and reality.
+He wasn’t carrying the pizza anymore.
 
-I was certain that the word 'God' had long been forgotten. Not a single fragment of memory remained in my mind that could shed light on the matter, yet with each page I read, memories began to surge through my head. Briefly, in fragments, like flashes from an old film camera. The memories themselves resembled photographs, long forgotten, perhaps even buried, as deep as it is possible to be. Memories that had never ceased to bring pain. They never stopped.
+Instead, he had the box open in one hand, munching on a slice, earbuds in, nodding his head to whatever he was listening to. By the time he reached his car, he was whistling, chewing happily, like nothing strange had happened at all.
 
-In them I see a bright room with high ceilings and colorful stained glass. I am in a church. I remember, this is exactly how they looked. A place of peace and elevation. A place of communion with God. It would almost be pleasant to be here, if not for that dreadful howling.
+I sat back, cold all over. Where had the pizza gone? Why hadn’t he taken money? Why hadn’t anyone answered? Did he just… keep it for himself? Or had he gone up there, knocked, and walked away with the box untouched?
 
-By the altar, kneeling, sits an older woman. Her figure is bent in agony and with the delicate strength of her trembling fingers she grips the edges of an open coffin. Something prevents me from looking inside the coffin. Fear.
+I wanted to believe the driver was just lazy, that he figured no one was home and he might as well eat it himself. But that explanation didn’t stick. Something had happened in there—something I couldn’t see.
 
-I continue to watch her. Her shoulders shake and her entire body convulses with sobs. It is her crying that disturbs the peace within the church walls, growing louder and louder until her screams drown out my own thoughts.
+That night, I couldn’t sleep. I lay awake with the rifle beside me, scope pointed at the window, curtains cracked just enough for me to keep watch. He was still there, sitting in the same position, like nothing had changed.
 
-Amid these cries I manage to make out words. The woman is praying. She pleads for the salvation of her deceased son's soul. This is her son in the coffin, I realize. I still cannot bring myself to look inside. Invisible chains hold me fast, the heaviest constricting my neck. A scream full of anguish rises to my throat, searing through me. My heart fills with iron. I do not own this pain, any more than I own these relentless memories.
+Most people, I reminded myself, live entire lives without ever being noticed. But once you notice someone like that, you can’t stop.
 
-That same evening Cain and I lay together in his bed. My body was still warm and languid, and Cain was unusually tender. Cain loved sex, loved to be desired, and I could give him that. I, too, hungered for attention, for everything he could grant me. I wanted to be of use to him, wanted him to return to me and not abandon me to the cold, inhospitable silence of this bedroom. He usually recoiled from closeness after sex, yet that night he allowed me to rest my head on his broad chest. I could hear his heart beating out of rhythm with my own, alive and pulsing, a heart I wanted to believe was truly human.
+And the worst part?  
+I was starting to feel like he’d noticed me back.
 
-“Do you think God is watching us right now?” I could not see Cain’s face, yet I felt his hand, which had been idly running through my hair, pause and hover in the air.
+The pizza stunt should have been my wake-up call. A normal person would’ve felt embarrassed, maybe laughed it off as a dumb idea, and moved on. But I wasn’t normal anymore. By then, watching that window wasn’t just a habit—it was an obsession.
 
-It was clear that he had not expected such a question, especially at a moment like this, yet I could not hold myself back from asking. Cain seemed to be in an unusually elevated mood. I clung to the hope that this would shield me from his anger, if the question struck him as improper.
+Every night I found myself glued to the scope, waiting for the slightest twitch of movement. Nothing ever came. The mom yelled at her kids, the couple broke their own records, the gymnast girl trained until her arms shook. Life went on in all the other windows. But in 8B, nothing changed. A pale body sitting cross-legged, staring at the wall.
 
-*It was dangerous to know the truth.*
+And the more nothing happened, the more it burned me alive.
 
-“What do you mean by that?” Cain lowered his hand onto my head and I felt his claws press against my scalp.
+I started timing how long I could keep my eye in the scope without blinking. Sometimes I sat so long I forgot to eat. Sometimes I went to bed dizzy, with black rings floating in my vision. But I kept watching.
 
-“I'm asking,” I said, less confidently now, “because I really wonder if God is watching us. If he is why can’t we see him?”
+That’s when I noticed the woman.
 
-Cain hummed in response, as if my question had struck him as amusing. 
+It was a weekday afternoon—I’d left work early. Through the scope, I saw her slip into the room. Mid-thirties, maybe older, dark hair pulled back, moving carefully, like a nurse on rounds. She carried a tray: a small vial, a couple of boxes. She set it down on the bed beside him. Then she leaned close, pressed something against his arm. I couldn’t see clearly from my angle, but it looked like an injection. He never flinched.
 
-“No one has ever seen God, Caleb,” he replied.
+When she finished, she crossed the room to the window. Instead of turning her back on him, she shuffled sideways, her face always angled toward the figure on the bed. She cracked the window, lit a cigarette, and smoked it down to the filter. Then she stubbed it out, closed the window, gathered the tray, and backed out the door—never once turning away from him.
 
-“No one?” I asked again, but Cain remained silent. “If no one has seen him, how did people know he was real?”
+I told myself she was a caretaker, maybe hired to look after a relative. But something about the way she moved chilled me. The way she never let him out of her sight, like she was afraid he’d pounce if she turned around.
 
-My question made him chuckle.
+For the next few nights, I tracked her routine. Every other day, almost to the hour, she entered with her tray, gave him the injection, smoked her cigarette, and left. Always backing out. Always keeping her eyes locked on him.
 
-“People did not know this. Many refused to believe in him, while others trembled not at God, but at the void of the unknown and the certainty of death. People needed someone stronger to hold sway over them and their brief, fragile lives. With this plea, they turned to God.”
+It gnawed at me until I couldn’t stand it anymore. Watching wasn’t enough. I needed to know what was happening inside that room.
 
-“And do you believe in God?”
+So one Friday night, when I saw her leave the building with a shopping bag, I grabbed my jacket and headed across the street.
 
-Cain chose to remain silent. In turn, I dwelled on his words. Does God exist only for those who seek him? What becomes of those who do not believe, or have never even pondered his existence? Perhaps that is why I have met no one but Cain. People turned away from God. But can God turn away from his own creations? I now know that he bears both punishment and mercy, destruction as well as life. He is the one who is always near. Perhaps the very gaze you feel upon your back, as you sit alone with an open book in your hands, in the hollow silence of an empty library.
+The building’s hallway smelled of dust and old cigarettes. Fluorescent lights flickered overhead, buzzing like dying insects. I climbed to the eighth floor, every step heavier than the last.
 
-I always suspected that my friend might not be human.
+The corridor stretched out in front of me, lined with dented doors. At the far end, junk was piled high: broken furniture, boxes, a bicycle frame, a rusted wheelchair tipped against the wall. And in that cluttered corner sat the door I’d been staring at for weeks—Apartment 8B.
 
-“Cain,” I whispered. He said nothing in response, yet I knew I had drawn his attention.
+I stood there, heart pounding, palms sweating. What the hell was I doing? Breaking into a stranger’s apartment? Looking for what, exactly?
 
-“This question may sound foolish, but… could you be God?”
+I told myself I’d just listen at the door, maybe confirm he was even real. But then, beneath the thud of my heartbeat, I heard it.
 
-I expected no answer, yet after a brief pause, Cain spoke to me at last, his voice thoughtful, dark, and almost sacred:
+A sound.
 
-“No, not yet.”
+“Shhhwaaaark… shhhwaaaark…”
 
-His hand returned to playing with my hair. The gesture could have been almost pleasant, if not for the force with which Cain tugged at my strands.
+Slow, dragging footsteps. Getting closer.
 
-“One day the world will see God, but certainly not you, Caleb,” he said, his tone almost affectionate. “You were never meant to stand before God. He will not care for you, so for now, savor what little you have.”
+I froze. The noise stopped right behind the door.
 
-Cain’s words were like venom, sinking slowly deeper and deeper into my mind with each passing second. I wanted to run, yet I continued to lie obediently at Cain’s side, while he seemed to mutter aimlessly under his breath. A poem, whose lines I thought I had lost.
+And then the handle began to rattle.
 
-«Сліпий і необачний хід,  
-Пісня, що не була почута,  
-І голова розчавлена як стиглий плід,  
-Ціна її спокути  
-За зневіру».
+Not just a twist—violent jerks, like someone was yanking it back and forth, trying to tear it off. The door groaned under sudden pressure, hinges squealing as if something heavy leaned against it from the other side.
 
-“Blind and reckless move,  
-A song that went unheard,  
-And a head crushed like ripe fruit,  
-The price of its atonement  
-For its lack of faith.”
+My blood turned to ice.
 
-The next day, I rushed back to the library. I needed to know more. I needed answers. I needed to understand what Cain truly was.
+Through the thin wood, I heard it: breathing. Wet, ragged, wheezing like air being forced through a crushed windpipe. Each inhale whistled, each exhale hissed, closer than I’d ever wanted it to be.
 
-I scurried through the library, opening every book that came to hand. I no longer read their titles, nor did I pay attention to what I held, for within seconds another book would crash to the floor.
+The handle kept thrashing. The frame shook. For one terrible second, I was sure it would burst open.
 
-It took me hours, hours to face the unbearable truth: the pages of every book in the library were utterly blank.
+That broke me.
+
+I bolted. Down the hallway, down the stairs, feet barely touching the steps. I don’t even remember crossing the lobby. All I know is I hit the cold night air like a drowning man breaking the surface.
+
+By the time I circled the block and made it back to my own apartment, my lungs were on fire. I slammed the door, locked it, and stumbled to my window. My rifle was waiting, scope already aimed across the gap.
+
+I pressed my eye to the glass—
+
+And there he was.
+
+Not cross-legged anymore. Not facing the wall.
+
+He was standing at the window, hands spread against the glass, pale fingers scraping downward with a squeal I swore I could hear from across the street. His enormous head tilted forward, and in the glow of that naked bulb, I saw his face for the first time.
+
+No nose, no lips. Just two cavernous pits sinking too deep into his skull, eyes that weren’t eyes at all but endless dark holes, as if they could swallow the light from my scope. And yet—at the very bottom of that darkness, something moved. A shimmer, a twitch, like a pupil shifting in a place where no eye should be. His mouth gaped open and closed, smearing spit across the glass, fingers scraping with nails too long, too sharp.
+
+And the worst part?  
+I knew he was staring directly at me.
+
+I don’t remember pulling away from the scope. One second I was frozen there, staring into those bottomless eyes, and the next I was stumbling backward, knocking over the chair. My hands were moving on their own, reaching for the box of ammo I kept in the closet.
+
+The rifle had always been a comfort to me—steel and wood, simple and reliable. But loading it now felt different. My fingers fumbled as I shoved cartridges into the magazine, each metallic click ringing too loud in the silence of the room. I kept telling myself: if he moved, if he tried anything, I’d put a bullet straight through that window.
+
+By the time I racked the bolt and raised the rifle again, my heart was beating so hard I could feel it in my teeth. I pressed my eye to the glass.
+
+The window across the street was no longer empty. The curtains were drawn tight, swaying slightly as if someone had just pulled them shut. No pale face. No black holes for eyes. Just heavy fabric, rippling in the glow of the ceiling bulb.
+
+I held there, waiting, the crosshairs steady on the center of the window. Sweat slid down my cheek, caught in the corner of my mouth. My finger hovered on the trigger, but there was nothing to fire at.
+
+I stayed like that for what felt like hours. My shoulders ached, my eyes burned, but I couldn’t lower the rifle. Every second I expected those curtains to twitch, to slide open, to reveal that face pressed against the glass again.
+
+They never did.
+
+When I finally lowered the rifle, the apartment felt colder, emptier than before. Sometimes silence doesn’t mean safety. Sometimes it only means something dangerous learned how to wait. The moment something breaks its own pattern, you realize you were never the one in control. As if he hadn’t disappeared, just… stepped out of view. As if he was still there, inches from the fabric, waiting for me to let my guard down.
+
+And I realized something that made my stomach twist: he’d never once moved while I was watching. But tonight, he had chosen to.
+
+I moved out the very next morning. No questions, no excuses—just cash on the table for the landlord and a half-hearted promise to forward the mail I knew I’d never see. He didn’t ask why. Maybe he saw the look on my face and decided he didn’t want the answer.
+
+The weeks that followed blurred together. New job sites, new temporary housing, different walls to stare at when sleep refused to come. I told myself I’d left it behind on that street in Detroit, left him behind.
+
+But the truth? He followed me.
+
+Not in the daylight—no. In the daylight, I can almost convince myself it was nothing, that I imagined the whole thing. But at night, in dreams too sharp to be dreams, I hear it. The frantic rattle of a doorknob, the hinges straining as something leans its weight against my door. That wheezing, broken breath sliding through the cracks.
+
+And every time, I reach for my rifle. I load it, I raise it, I press the trigger—  
+and every time, it jams.
+
+So I clean it. Again and again. I polish the barrel, I oil the bolt, I run patches until the cloth comes out white. I tell myself it won’t fail me again.
+
+But what bothers me most isn’t the dreams.  
+It’s the memory of that night—when he saw me.
+
+You can leave a place behind, but not the things that noticed you there.  
+A weapon is supposed to give you certainty. But once doubt creeps in, even steel feels fragile.
+
+And since then, I’m not sure I trust my rifle anymore.
+
+ 
