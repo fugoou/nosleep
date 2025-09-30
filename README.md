@@ -1,65 +1,82 @@
-# The Woman with Numbered Teeth
-My step-mother hated me, despised me. She never said it, but hate exuded from her every expression. The scowl was immediate, a juxtaposition between disgust and hate. Strangers, even those most suspect of character, evoked nothing but kindness from her, but for me there was nothing but disdain.
+# The Last House on Timber Creek Road
+I need to tell someone about what happened at the Hendricks place. The cops won't listen—said there's no evidence of foul play, just another family that packed up and left in the night. But I know better. I was their mailman for three years, and families don't just vanish like that. Not families like the Hendricks.
 
-She hated me, and I hated her.
+Timber Creek Road stretches twelve miles through pine forest before it dead-ends at their property. I'd driven that route every Tuesday and Friday, my mail truck bouncing over the potholes that never got fixed because the county forgot about roads that far out. Most days, I'd see maybe two other vehicles the entire trip. It was the kind of isolation that city folk romanticize until they actually experience it.
 
-My father had died a few years back. A sudden heart-attack, a man seemingly healthy, but always a minute from death. My father drank and smoke, but was active and full of vigor. His death was both expected and unexpected. I knew his lifestyle was unhealthy and dangerous, but naïvely, I also believed he was genetically superior to the rest of the human race. He was destined to live well into his 90’s with a shriveled liver and a stubborn determination to persist beyond the expectations of human physiology. To me, he was a superhero, flawed, but celestial, a man who embodied greatness. He spoke his mind, he feared no one. He was the quintessential Alpha-male. Then he died, while shitting on the toilet, his pants down around his ankles, and his head buried in his own exposed crotch. When God humbles, he doesn’t half-ass it. He doles out the humiliation in full measure.
+The Hendricks had moved out there two summers ago—Mike, Sarah, and their twin boys, probably eight or nine years old. Nice enough family. Mike worked remotely for some tech company, and Sarah homeschooled the kids. They'd wave from their porch when I pulled up, always polite when they signed for packages. The boys would sometimes run to the truck, curious about mail delivery in a way that reminded me why I liked this job.
 
-My dad loved Blue Hole Lake. He talked of it constantly. His family went there every year. His father and his father before him, every August, and every summer from the first time the lake was formed until my father ended the tradition. He never took me to the lake or the cabin he so fondly remembered. After he died, I vowed to return to the lake and reinstitute the long-neglected family tradition.
+Their house sat at the end of a gravel driveway, surrounded by about forty acres of pine and oak. Beautiful property, really. The kind of place where you could hear your own thoughts. But there was something about that last quarter-mile of road that always made me uncomfortable. The trees grew thick on both sides, their branches forming a tunnel that blocked out most of the sky. Even on sunny days, that stretch felt dim and close.
 
-Why didn’t he take me? Why didn’t he want to do with me what his father had done with him? Honestly, it hurt me.
+The first sign something was wrong came in early October. I pulled up to find their mailbox knocked clean off its post, lying in the tall grass beside the road. The metal was dented like something heavy had hit it. I walked over to examine it closer and noticed claw marks scraped deep into the aluminum. Long gouges, too big for a dog or even a bear. I'd lived in these woods my whole life, and I'd never seen marks like that.
 
-I put together the trip, the vacation request approved, a rare concession from my boss. I planned it for August, well in keeping with family tradition. I honored every detail, every little nuanced description my dad willingly conveyed. I say willingly, because there was a glaring omission in his fond recollections. He always stated that they stayed in the same cabin but he never said what cabin it was, the number, nor any description. He would stop and stare into his own mind, steadfastly removed from the present, cast into a painful memory, his strength visibly drained.
+I carried their mail up to the house and knocked. Sarah answered, but she looked different. Thinner. Dark circles under her eyes like she hadn't slept in weeks. When I mentioned the mailbox, she just stared at me for a long moment.
 
-August was hot and unforgiving. The dark water splashed and rolled towards the beach. It was inviting and intimidating. I had rented a one-room musty cabin. I got there late on Monday evening. I was going to unpack and read myself to sleep. It was too late to have much time for swimming, but a force pushed me to do otherwise. There was a need, a compulsion to swim, an invitation to dive into the ambiance of nature.
+"We'll get it fixed," she said finally, but her voice sounded hollow.
 
-I changed into my swim trunks and headed down to the lake. There was about an hour or so until the beach was closed. It closed at sunset, whenever or whatever that meant. I suspected sundown was less about the sun and more about the whims of an impatient park ranger ready to end the day.
+"You folks doing alright out here?" I asked.
 
-I walked slowly into the water; the warmth was uncomfortable. I expected a chill, but it felt more like dirty-ass bath water, shocking and disappointing. The heat of the water was suffocating. There was an unremitting discomfort. The beach was empty and bare.
+She glanced over her shoulder into the house, then stepped outside and pulled the door shut behind her. "Have you noticed anything strange on the road lately? When you're driving out here?"
 
-I swam to the orange barrier, the line between safety and danger. Beyond the other side was an unimaginable depth, or maybe just the recognition that this was the distance of no return, no coming back from the edge of eternity. I put my arms up and rested my back against the float, looking up towards the beach. The last of the patrons was leaving, drying off and packing up his belongings. I was the only one left.
+"Strange how?"
 
-At the top of the beach, I could see the parking lot, and beyond that a patch of forest. A slender brunette in a two-piece yellow bathing suit strolled out of the forest. She carried nothing, no bag, no towel, nothing but a pompous swagger. The closer she got, the more her beauty came into focus. Everything about her was steeped in a previous era. Her bathing suit reminded me of the women I saw in black and white movies. Her hair was of an elegant movie star, short and curled in the back.
+"Sounds. Movement in the trees. Things that shouldn't be there."
 
-She entered the water with no reservations, boldly plunging up to her chest. She slowly turned her head to acknowledge my presence and held me in her gaze. I felt exposed and pinned down, unable to cast my eyes elsewhere. She seemed significantly closer to where I was than where she had originally entered the lake. It was a transition, as if in a dream, a relocation from one point in space to another point in space with absolutely no movement. Then she submerged under the surface and disappeared.
+I told her I hadn't, which was mostly true. There had been odd moments—shadows that seemed to shift wrong, sounds that didn't match any animal I knew—but nothing I could put my finger on.
 
-She was under longer than any human possibly could be without suffocating. Minutes passed. Time dragged. I surveyed the lake, looking in a panoramic frenzy, feeling uncomfortably close to death. She was nowhere to be seen. I feared she had drowned, gotten wrapped up in a litter of sunken debris, or her foot caught in some unintentional trap. And then, right in front of me, she emerged from the water, her eyes pale blue, without iris or pupil, marbled with streaks of red. She smiled and etched in black on three of her top incisors were the numbers 3 1 4. She held her smile in a long bizarre pose. The water was too deep to stand and yet she didn’t attempt to tread water. She didn’t thrash about. She simply floated, perfectly still, not even affected by the wake of a passing speedboat. She wasn’t subject to the laws of nature. The water obeyed her.
+"The boys keep saying they see something watching the house at night," she whispered. "Mike thinks it's just their imagination, but..." She trailed off, wrapping her arms around herself despite the warm day.
 
-The warm water cooled rapidly. My teeth chattered uncontrollably, my trembling breath visible in the gray air. The sun was diving fast into the deep horizon. She slowly vanished, still flashing that hideous smile with that cryptic message scrawled across her teeth. Her icy hand grabbed my ankle and pulled me under. The plunge was unexpected. I was unprepared. Water rushed through my nostrils and mouth as I breathed in, foolishly trying to scream for help.
+I wanted to ask more, but Mike appeared in the doorway behind her.
 
-I kicked and thrashed my arms upward, trying desperately to break free. I felt her release my ankle. I shot up through the depths, further down than I had anticipated. Dim light, beautiful twinkling points of grace beckoned through the water. Freedom was close at hand, but as my hand broke the surface, she grabbed my ankle and yanked me even deeper. I heard her cruel, muffled laughter.
+"Everything okay out here?" His voice carried an edge I hadn't heard before.
 
-My lungs were on fire. It was as if I had swallowed hot, thick oil. Pressure coursed through my veins. I felt the pounding of my rapidly beating heart in the temples of my head. A dizzying array of stars swam before my eyes. I then she her floating before me. Her skin blue and tattered, eaten and rotted by the forces of nature. Death was consuming her, and yet, though barely visible, I saw her smiling. 3 1 4 flashed across my mind.
+"Just talking about the mailbox," Sarah said quickly.
 
-I realized I was free from her grasp. I shot up to the surface. Oxygen extinguished the fire in my lungs. I coughed and heaved up filthy, bloody water. The coughing was uncontrollably but so was the instinct for survival. I thrashed and coughed, and coughed and thrashed. My arms were rubber, hands and feet number. I barely felt the water, but as soon as my foot touched the bottom, the sensation of sand stung my feet into action. I made my way to the shore in a clumsy combination of swimming and running, a dance of hysterics, the play between weakness and a determination to survive. I was a wounded gazelle with one last chance, a dash through the thorny shrub, but to no avail. I felt the familiar grip on my ankle.
+Mike nodded, but his eyes stayed fixed on the tree line. "We'll take care of it."
 
-She dragged me back into the water. I turned to kick, the water shallow enough to allow free movement of my limbs. The heel of my foot glimpsed the side of her bicep. The skin was loose and sloughed off her arm. Her body had deteriorated to an even worse degree; she was a walking, water-logged corpse. One of her eyes was missing and the other was decayed and collapsed. Chunks of flesh were gone, chewed, or decayed. Her hair was no longer elegant. What was left of it was thin and stringy. Through all of it though, she never ceased to smile.
+I left them a new mailbox the following Tuesday. When I pulled up, I could see someone had already dug a fresh hole and set a new post. But as I mounted the box, I noticed something that made my skin crawl. The trees around their property had been marked. Not by any tool—these were the same claw marks I'd seen on the old mailbox, scraped into bark about seven feet off the ground. They formed a rough circle around the clearing where the house sat.
 
-3 1 4
+The Hendricks weren't outside that day. Their car was in the driveway, but the house felt empty somehow. All the curtains were drawn. I knocked, but nobody answered. I could hear sounds from inside—muffled voices, maybe the television—but no one came to the door.
 
-I was now fully on my back. I tried to kick again, but at the moment I went to thrust my foot forward, my whole body went limp. I was paralyzed. I lay in the shallow water, looking into the darkening sky. The water was lapping against my ears and splashing into my eyes. I felt her climb on top of my legs, crawling her way slowly up my body. She lifted her abominable face from my chest, grasped her bony hands around my shoulders and heaved herself forward. Her face was in my face. Her one good eye dripping down her cheek. The stench was vomit-inducing. I swallowed, choked, and gasped for air.
+Over the next few weeks, the mail started piling up. Packages sat on their porch, unopened. Bills and letters filled their box until I had to rubber-band them together. I'd knock each time, call out, but never got an answer. Their car never moved from its spot in the driveway.
 
-“Charlie,” she whispered.
+Then came the night I had to work late, sorting packages for the next day's route. It was past nine when I finally headed home, and I decided to drive by their place on my way. Maybe I'd see lights, some sign they were okay.
 
-Charlie? That was my father’s name.
+The road felt different in the dark. My headlights carved a narrow tunnel through the blackness, and the trees seemed to press closer on both sides. About halfway to their house, I had to slam on the brakes.
 
-“Charlie.”
+Something was standing in the middle of the road.
 
-“I’m not Charlie.”
+At first, I thought it was a person. It had the rough shape of one—two legs, a torso, something that might have been a head. But as my eyes adjusted, I realized how wrong that first impression was. It was too tall, maybe eight feet. Its limbs were too long, joints bending at angles that didn't match human anatomy. And its skin—if you could call it skin—had a wet, glistening quality that reflected my headlights.
 
-She grabbed my head and planted her dead lips on mine. Bile and decay filled my mouth. It wasn’t a loving embrace. Her mouth held tight, putrid water flowed from her inner being into my throat. I felt like I was trapped in a dentist’s chair with dirty cotton stuck in my mouth and rigid plastic stretching my lips wide.
+It turned toward my truck, and I saw its face.
 
-A vision played before my mind. A beautiful woman in a two-piece yellow bathing suit, with elegant hair, talking to a man, a man eerily similar to my father, but much younger. A child on the floor. An argument. The man choking the woman. Lifeless. The man leaving with the child.
+I can't describe it properly. The features were almost human but stretched and distorted, like someone had tried to sculpt a person from memory and gotten all the proportions wrong. Its eyes were too large, too dark, and they held an intelligence that was both alien and terrifyingly familiar.
 
-Cool air rushed across my body. I heard a splash and a scream. I could feel my arms and legs again. I crawled to my knees, stood up, and was about to run when I heard her whisper from behind me.
+We stared at each other for what felt like hours but was probably only seconds. Then it opened its mouth—a hole that split its face too wide—and made a sound I'll never forget. Not quite a scream, not quite words, but something that made every nerve in my body fire at once.
 
-“Son.”
+It stepped off the road and disappeared into the trees with a fluid motion that nothing that size should have been able to manage.
 
-I stopped and turned. My feet were still in the water. The warmth from earlier returned. Fear subsided, but sadness engulfed me. The woman was beautiful again, but she was no longer smiling. She seemed ashamed. The last light faded and her shadow dissolved into the merging line between sky and water.
+I sat there shaking for several minutes before I could make myself drive forward. When I reached the Hendricks' driveway, I could see their house was completely dark. But there were shapes moving around it—tall figures circling the building with that same unnatural gait I'd witnessed on the road.
 
-I had every intention of leaving that night, but I was exhausted. Sometimes fear plays itself out. You can only be haunted by ghosts for so long before it becomes routine, part of life. Besides, something had changed.
+I didn't stop. I floored it past their driveway and didn't slow down until I reached the main highway.
 
-That morning, I packed and got ready to leave. I had three days left on my reservation but needless to say I wasn’t really in the mood to be by the lake. I did my last check of the cabin to make sure I hadn’t forgotten anything. It’s a ridiculous routine. I check under the bed, in the drawers, and even in the shower, in case I forgot some soap or shampoo. There was an empty carton of orange juice in the refrigerator. It wasn’t mine but I didn’t want the next tenant to think it was me, as if they would go through the trouble to find out which asshole had left trash in the refrigerator. As I walked out to the garbage can near the road I noticed the cabin across the street. The little wooden sign staked out in front of the porch had etched in it the number 3 1 4.  
+The next morning, I called the sheriff's office. Deputy Collins drove out with me to check on the family. The house was empty. Not just unoccupied—empty. All their furniture was gone, their belongings vanished. The only signs they'd ever lived there were some scratches on the hardwood floors where furniture had been dragged and a few crayon drawings the boys had left on their bedroom walls.
 
-That was last August. Now a new August is fast approaching and I’ve made reservations. This time I've invited my stepmother. 
+"Looks like they cleared out in a hurry," Collins said, examining the house. "Probably got tired of living so far from everything."
 
+But I knew better. Families don't pack up every stick of furniture and disappear overnight, especially not with mail still sitting in their box. And families definitely don't leave those kinds of claw marks scraped into every door frame, or that smell—sweet and rotten, like fruit left too long in the sun.
+
+The house has been empty for two months now. The county's trying to figure out what happened to the Hendricks, but their investigation is going nowhere. No forwarding address, no contact with relatives, no trace of where they went. It's like they never existed.
+
+But I know they existed, because I still have to drive past their place twice a week. The mailbox I installed is gone now—torn clean off its post again. The claw marks on the trees have spread, carved deeper into the bark. And sometimes, when I'm driving that last stretch of road, I catch glimpses of movement in my peripheral vision. Tall shapes moving between the trees, keeping pace with my truck.
+
+I've put in for a transfer to a different route, but they're processing it slowly. Government bureaucracy, they say. In the meantime, I still have to make that drive.
+
+The worst part is the sounds. They start about a mile before I reach the empty house—scratching noises from the forest, like claws on bark. Like something marking its territory. The sounds follow me all the way to the dead end and back, a constant reminder that I'm not alone on Timber Creek Road.
+
+I don't know what happened to the Hendricks family. But I know they didn't just move away. And I know that whatever took them is still out there, waiting in the woods at the end of that lonely road.
+
+The county's already talking about selling the property. Some city family will probably buy it, drawn by the isolation and the beauty of all those trees. They'll move in thinking they've found paradise, far from the noise and crowds of town.
+
+I hope I'm wrong about what's waiting for them out there.
+
+But I know I'm not.
