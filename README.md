@@ -1,106 +1,138 @@
-# Something Woke Up in Room 237
-I’ve always believed certain places absorb energy. Not just haunted castles or graveyards, but places where a lot of people pass through—airports, train stations… hotels. Especially hotel rooms.
+# I work as a Janitor in a school where all the kids are quiet. One day they all screamed.
+I hate when a place gets too quiet. 
 
-See, I used to work night security at one of the poshest hotels in Dublin City. Five stars, marble floors, high-end clientele. That kind of place. You’d think nothing dark could touch it. But let me tell you, money doesn't stop the weird shit from creeping in.
+Ever since I was little I had always been this way according to my mother. Whenever I'd be just alone in my room she would always hear either a clap or a small bucket of pencils being dropped on the floor. 
 
-It started around 2:17 AM. I remember because I was mid-yawn, flipping through the camera feeds, when the front desk patched a call through to security.
+When I would go for a drive I would always have either the radio on or I would play music from one of my several playlists. 
 
-A man’s voice. Panicked. Breathless.
+I know no kid has ever dreamed of working as a janitor. 
 
-“My wife’s in the bath. I think she’s not breathing.”
+That's one of the things that separated me from everyone else is that I was the one that always wanted to do the odd jobs. If a teacher had asked me to help stay behind and clean up i would, if a neighbor needed help cleaning leaves from their gutters sign me up. 
 
-I snapped upright. Me and this other guard, Mark, rushed to Room 237 on the 8th floor. The hallway was dead quiet. The kind of quiet that feels wrong, like the building itself is holding its breath.
+Most people would call it as just a kind gesture but in my head it was more so as keeping myself busy. 
 
-We pushed in. The guy was pacing around, soaked from the waist down. The bathroom door was wide open. I’ll never unsee that moment.
+One of the best feelings when doing odd jobs is knowing what's happening behind closed doors. You get to know the ins and outs. 
 
-She was in the tub, completely still. Water up to her shoulders. Eyes open, but not seeing.
+I don't remember when it actually started happening but I do remember one specific instance that was off to me. 
 
-We dragged her out. Tried CPR. I was counting compressions under my breath while Mark gave breaths. Her skin was cold. Like—not just chilly—cold, like touching stone. I knew it was too late, but we had to try.
+At the 7th grade hallway(in our school 6-8 had their own section and different hallways) one of the students was shutting their locker after putting stuff in and leaving. I know what you're thinking; “what's weird about a kid shutting a locker this poster already sounds crazy”. 
 
-Police arrived within minutes. The moment they stepped in, they told us to stop. One of the officers pulled me aside and said quietly, “She’s been gone a while. A couple hours, at least.”
+It's the fact that there was no noise from when they were closing it. 
 
-The husband told them they’d argued earlier. He stormed out, came back, saw her in the bath, assumed she was just soaking, and went to bed. Said he only got suspicious when she didn’t join him.
+After a couple minutes when the student left I got out my keys and checked the locker. Sure enough I heard the occasional squeak. Weird. I thought as I closed it back and continued doing my normal shift. 
 
-No obvious signs of violence. No water overflow. No witnesses. They couldn’t charge him. But between us—staff, cops, even the paramedics—we all felt it. That gut pull. That *something’s off* feeling.
+The next couple of days after I overheard the English teacher and the Librarian talking down the hall as I was mopping the floors. 
 
-He checked out the next morning. Quiet. Calm. Not a single tear.
+“Have you noticed anything about the Macintosh twins lately?” The English teacher asked. 
 
-Room 237 was locked off for three weeks.
+The librarian just shrugged. 
 
-Housekeeping deep-cleaned every inch. Management said, “Accidents happen. Life moves on.” They reopened the room like nothing happened. No priest. No sage. Nothing. Just fresh linens and a new bar of soap.
+“I find it a peaceful change of place”, she said. “You know how rowdy and loud those boys have always gotten. I guess they might have finally learned to grow up and stop annoying others”. 
 
-The first person to stay in that room after the death was this woman named Liz. She was a regular—corporate client, stayed at least once a month. She always asked for a high-floor room. She got 237 without knowing a damn thing.
+I knew of the twins that they were talking about. 
 
-Next morning, 6:50 AM, she’s at the front desk with her suitcase and this look like she’d seen hell.
+The Macintosh twins were your usual troublemakers. Always disrupting the class with crude jokes and gestures. Teachers complained about them constantly.
 
-I was walking past when she said, loud enough for guests to hear, “That room is haunted. I didn’t sleep a second. Something’s *wrong* with it.”
+During the lunch period I decided to go see for myself as this was a rare occurrence. I walked by the cafeteria and looked in the door while letting other chatting students through. 
 
-She said she kept hearing dripping water all night. Not just from the bathroom—like it was coming from the *walls*. At 3 AM, the taps in the bathtub turned on by themselves. Full blast. She walked in and turned them off, soaked her slippers. Then, five minutes later, the shower started. She swore she hadn’t touched anything.
+There they were. 
 
-She said she kept smelling something… floral. Like old roses, but rotten. Like death wearing perfume.
+Both of them were sitting at one of the tables quietly. Neither of the boys were moving. Everyone else seemed to act like they just weren't there. 
 
-We offered her another room. She refused. Said she was checking out for good. Never came back.
+What got me though was that they weren't eating…like at all. Just sitting there unmoved and unbothered. I swear I don't think I even saw them blink thinking back at it but I'm probably right. 
 
-After that, Room 237 got a reputation—internally.
+I just shrugged it off. Said I was overthinking. 
 
-Guests kept requesting room changes after one night. Some didn’t even last that long.
+Then after a few more days more and more kids started going silent. 
 
-There was this German businessman who called at 1:03 AM, whispering like he didn’t want someone to hear: “I think someone is in my bathroom.”
+A substitute teacher complained to the principal one afternoon. I overheard them conversing outside the door. Which wasn't hard since Principal Warren was a loud man even when he speaks normally. 
 
-I asked if he saw anything.
+“Mr.Warren…” The substitute says, "I think something's genuinely wrong with the students”. 
 
-“No,” he said, “but someone is coughing. A wet cough.”
+Principal Warren chuckles “and whats wrong about them? Are we disrupting the class?” 
 
-I went up. Bathroom was empty. But the floor was damp. Towels crumpled in the corner. The toilet had been used—seat up, water moving like it had just flushed. The guy hadn’t gone in all night. He checked out the next morning without breakfast.
+“Well no…that's the thing, they are just silent almost in an eerie way. They would do the things I ask them but most of them would just be unnerved and quiet. Their blank eyes just looking at me even creeps me out”. The substitute's voice trembles. 
 
-A honeymoon couple stayed there once. The woman came down at 4:12 AM in her pajamas, crying. She said she saw a pale woman standing at the foot of the bed. Dripping wet. Not moving. Just… staring.
+Warren gruffs,”If they aren't being pests then don't bother me with this nonsense. Here, just take your pay and leave”. 
 
-Her husband didn’t see anything, but he confirmed the room temperature dropped *ten degrees* in minutes.
+After I stepped out of the way as the substitute left almost shocked. I was confused. 
 
-I checked the thermostat. It was set to 23°C. The room was at 14.
+Why are none of them concerned about this? Seems too odd just to be a rare occurrence. I thought to myself. 
 
-No windows were open.
+As soon as I went to the back of the hallway I jumped. One of our students, a boy, was inches behind me was just staring at me. 
 
-I started dreading that room.
+I almost had a heart attack as I went to calm myself down. 
 
-Even walking past it gave me this tightness in my chest. Like I was being watched. I’d make rounds and literally speed-walk past it.
+“Jeezus kid you almost scared me”. I said to him. The boy said nothing back just kept staring at me with point blank eyes. I was unnerved. Almost like how the substitute felt. Just then the bell rang. 
 
-Once, I was reviewing CCTV around 2:20 AM—same time the original call had come in—and I saw something weird. The hallway camera outside 237 glitched. Just for a second.
+As more students left the building I made sure to watch the one that felt like having a staring contest with me. 
 
-But when I paused the footage and zoomed in… there was a shadow. Not a person. A shape. Just outside the door. Like someone was standing there, pressed against it.
+I saw him go up to a woman that I assume is his mother. The point blank expression suddenly turns to a happy one and hugs her. Almost like going back to a everyday normal reaction to a kid coming home to their parents. 
 
-I replayed it a hundred times. Mark saw it too. “It’s probably compression error,” he said.
+As I look every other kid seems to act like that as well. Even the Macintosh twins were rough housing as they were outside. 
 
-But his voice shook when he said it.
+I was confused.
 
-Management refused to shut the room.
+Why are the kids silent inside the school but not out? 
 
-They said we’d get sued if we told guests. “Unless you see something tangible, it's superstition.” So we kept assigning the room. But we started calling it *The Bathtub Room* behind closed doors.
+I left that day with more questions than answers. 
 
-The cleaners hated it. They’d go in pairs. Even when nothing moved, the mirror always fogged up on its own. Once, one of the maids, Rosa, swore she saw the words *“Don’t leave me”* written in the steam. But when she called her coworker over, it vanished.
+Then something even more strange happened. 
 
-Guests who stayed more than one night? Always complained of water sounds. Dripping. Running. Gurgling. Sometimes crying. One guy swore his sheets were damp every morning. Like someone had gotten in the bed wet.
+Next couple of weeks the kids were back to how they were. All noise no quiet. The staff was a little confused but I think they were bummed out as well. 
 
-Then came the worst night. 3:08 AM. We get a call from Room 237. The guest was an old man, solo traveler. Very logical, very composed. He said, “Someone knocked on my bathroom door from the inside. Not once. *Three times.*”
+At the staff meeting one week there was questions. 
 
-I sprinted up. When I opened the door, the room was empty.
+To ease the confusion Principa Warren slowly calmed everyone down saying that “things will go back the way were” 
 
-But the lights in the bathroom were flickering. Not just flickering—*buzzing*. And the bathtub faucet was trickling. Just enough to hear.
+The staff agreed with this and so did I. Who knows. Maybe it was just kids being kids. I mean, none of us has ever seen anything this far but we thought it was just the change of times and how it was probably a trend or prank that was viral on the internet. 
 
-That’s when I noticed it.
+Weeks went by.
 
-There was water. Not just in the tub. It was on the floor. In a straight line. Like footprints. Leading from the bath… to the bed.
+We all slowly got the edge off as all of our kids got back to normal. 
 
-But no one had walked. No one had opened the door.
+I remember thinking the whole thing was funny. 
 
-I put in my resignation a week later.
+Until one day for some reason every kid in the school got quiet as soon as they stepped through the doors. Just immediate silence. 
 
-Mark lasted a month more. He said he heard a woman humming in the elevator when he was alone. Hummed the same tune for three floors. When the doors opened, no one was there.
+Talking one second and then just quick silence the next. 
 
-Room 237 is still open, as far as I know.
+Everyone on the staff froze in place. 
 
-They just keep painting over the mold and turning the mattress.  
-But something lives there now. Or maybe something never left.  
-Not every hotel room starts off haunted.  
-Some of them *become* haunted.  
-And I was there when it happened.
+The kids instead just walked in, got their stuff and silently went into class. You couldn't even hear their footsteps. 
+
+We all watched at one point when a kid even tripped and fell but you couldn't hear a thing from it. They just silently got up and walked on. Not even brushing themselves off.
+
+Teachers struggled going through the day. 
+
+Said all the kids silently staring at them as they taught unnerved them so much they had to make a little bit of noise in the classroom. It was sad because they were all becoming like me in a way. I dealt with this one time even by banging each locker as I went down a hallway. 
+
+It's just like the sound was erased in our school building. 
+
+Yesterday was the first time I actually snapped. 
+
+While cleaning the science classroom one of the kids was there by the doorway silently staring at me. I couldn't take it anymore as I was gripping my broom so hard my knuckles turned white. 
+
+I let go of the broom letting it fall to the floor. 
+
+Hearing the sound of it clanking on the ground was satisfying enough but still didn't stop me from going to him. I grabbed the boy's shoulders and in an angry tone asked “WHAT THE HELL IS GOING ON”. 
+
+Silence. 
+
+The thing I dread the most is evident in the air.  
+
+Then suddenly out of nowhere the boy I was interrogating started screaming loudly. So loud that even I had to hold my ears as it screeched. Teachers that were near me came out of classrooms also holding their ears as I looked and every single kid was yelling. 
+
+You can see them sitting in their desk chairs patiently but their mouths open in a scream that takes forever. 
+
+We got them all to quiet down after Principal Warren on the intercoms told everyone to go outside. Each kid got up still screaming and walked to the outside doors like a death march. 
+
+As soon as one stepped outside the yelling stopped. They all went back to normal. 
+
+We would ask the kids eventually what was going on but they would say they have no recollection of what took place. Warren made everyone leave early. Then took me aside and berated me for causing the yelling. 
+
+Now I'm here looking for answers. 
+
+Because I don't want to go back to a school that's always quiet. The first best option is to quit but I need to know what's happening to these kids. 
+
+Just please don't let it be quiet. 
