@@ -1,138 +1,33 @@
-# I work as a Janitor in a school where all the kids are quiet. One day they all screamed.
-I hate when a place gets too quiet. 
+# I think my tinder date killed me last night
 
-Ever since I was little I had always been this way according to my mother. Whenever I'd be just alone in my room she would always hear either a clap or a small bucket of pencils being dropped on the floor. 
+I know. This sounds impossible. How would I have been killed last night but be posting on Reddit. I get it. But I have no other explanation for what happened this morning. 
 
-When I would go for a drive I would always have either the radio on or I would play music from one of my several playlists. 
+I woke up with the worst headache of my life. It was so bad, I could hardly open my eyes. I realized it was from the blinding, florescent lights over head. I was stiff and cold. That was from the metal slab table I was lying undressed on top of. 
 
-I know no kid has ever dreamed of working as a janitor. 
+I woke up with a hangover in a morgue. 
 
-That's one of the things that separated me from everyone else is that I was the one that always wanted to do the odd jobs. If a teacher had asked me to help stay behind and clean up i would, if a neighbor needed help cleaning leaves from their gutters sign me up. 
+I was laid out on an autopsy table with a white, paper sheet covering me. The pathologist wasn’t in the room but the lights were on and next to my table was a rolling tray of various metal instruments that were no doubt about to be used to slice into me. I had a yellow toe tag labeled Doe, Jane. I wasted no time waiting around to see if someone would come back to the room. In the corner by the door, where I assume the pathologists coat was hanging was a plastic bag labeled West Chester Police Department: EVIDENCE with my belongings stuffed inside of it. The clothes I had worn to my date the night before were neatly folded and placed inside. Along with one of my checkered vans, two socks, my black Coach crossbody purse, and my cellphone—which had a new crack through the screen. 
 
-Most people would call it as just a kind gesture but in my head it was more so as keeping myself busy. 
+My clothes were absolutely filthy but I redressed myself anyways. I had worn blue jeans and a black sweater—which now were littered with small tears and rips and chalky dirt. My purse had certainly been riffled through. All that was left was a couple of tampons, my go-to lip gloss, and a business card of some girl I had run into downtown ages ago. My wallet and coin purse were gone.
 
-One of the best feelings when doing odd jobs is knowing what's happening behind closed doors. You get to know the ins and outs. 
+Outside of the autopsy room, the hallway was dark and from the glass doors at the end of the hall, I could see it was still dark out. At this point, I had no idea how much time had passed. All I knew was that I had to get out of there as quick as I could. I hurried down the hall, one dirty sneaker in my hands, padding down the linoleum hallway in just my socks. Just past the examination room on the right was a door that was propped open and warm light was coming from inside. I could hear someone humming softly and the buzz of a microwave warming something fishy. I peeked around the door to see the pathologist with overhead headphones on, air drumming with his back to the door. I took my opportunity and sprinted down the hall and out the front doors. 
 
-I don't remember when it actually started happening but I do remember one specific instance that was off to me. 
+The night was cold and drizzly, not at all how the night of my date was. Not to mention that I went out in Lancaster and woke up with my clothes in a West Chester Police Evidence bag. To my absolute surprise, my phone still turned on, albeit smashed to bits. After several seconds of the Apple logo staring back at me, my phone lit up like a Christmas tree with missed calls and texts. Mostly all from my roommate, Bethany. The missed calls started approximately 22 hours prior. 
 
-At the 7th grade hallway(in our school 6-8 had their own section and different hallways) one of the students was shutting their locker after putting stuff in and leaving. I know what you're thinking; “what's weird about a kid shutting a locker this poster already sounds crazy”. 
+But, other than the texts from Bethany and a few “You up?” messages from other dating app failures, there was nothing from the guy I had gone out with the night before. I had given him my number and I know I sent him a message when I got to the bar to let him know I had arrived. But they were gone. Inside the Tinder app, I couldn’t find his profile or our messages anywhere. Just a greyed out This User is No Longer Available box that I can’t open. 
 
-It's the fact that there was no noise from when they were closing it. 
+I recently started dating after ending a 3 year relationship with my ex, Kyle. I hadn’t done much dating prior to him and thought I’d try my hand at dating apps. I had the basics, hinge, bumble, tinder; even tried my hand at Facebook dating. Most were dead ends. Some ended in an awkward hook up at their cramped studio apartments or sneaking past their roommates door at 2am. I admittedly mostly used Tinder when I was getting antsy and looking for…a short term connection I suppose. 
 
-After a couple minutes when the student left I got out my keys and checked the locker. Sure enough I heard the occasional squeak. Weird. I thought as I closed it back and continued doing my normal shift. 
+I couldn’t remember much from who I met up with for my date the night before. I vaguely remember a photo on my screen, a white guy with brown hair. Super specific, I know. I don’t have any memories of seeing him in person either. The last of my memories was me taking a seat at the bar, ordering a whiskey sour, and texting the guy I had made it. Next thing I knew I was under a cloth on an autopsy table. 
 
-The next couple of days after I overheard the English teacher and the Librarian talking down the hall as I was mopping the floors. 
+Now, I’m sure you’re thinking — just look at the screenshots of his profile that you sent to all of your friends! I didn’t take one. In fact, I was avoiding telling anyone I was on the apps or meeting up with strangers. Over the last few months, there’s been several girls in Philadelphia who have showed up dead after meeting up with someone from a dating app. But I’m smart! I carry pepper spray and a taser. I can spot a fake profile from a mile away. And honestly, sometimes I just want a stranger to buy me a drink and call me pretty. So I kept my dating app adventures on the DL. And last night was no different. I told Bethany I was meeting up with a friend and slipped out. She didn’t ask questions and I didn’t give details. And besides, all those girls were hundreds of miles away. If there was a deranged killer on Tinder, I wouldn’t cross paths with him. 
 
-“Have you noticed anything about the Macintosh twins lately?” The English teacher asked. 
+But now, I’m standing in front of the West Chester Medical Examiner’s office with one shoe and I’m pretty sure I’ve just rose from the dead. Bethany answered almost immediately and told me I hadn’t been home in almost 37 hours, give or take. She chalked it up to me hitting it off with someone at a bar and spending the night but she was minutes away from filing a report before I called. She was on the way to the station right then, she had already called and they told her she had to go in person. 
 
-The librarian just shrugged. 
+I made it all the way to the bus station before I even thought to consider what I looked like. My voice was horse and dry but I figure if I’ve been dead for a day, probably fits the bill you know. I opened my camera and I literally looked like I rolled out of the morgue. My hair was knotted in the back and had sticky mud in it, I had a busted open wound across the bridge of my nose, and god awful bruising around my neck. 
 
-“I find it a peaceful change of place”, she said. “You know how rowdy and loud those boys have always gotten. I guess they might have finally learned to grow up and stop annoying others”. 
+I was ready to deny this whole deal honestly. I must have gotten roofied and robbed and it was some medical examiners first day on the job. But as I took the bus ride back home, a news alert popped up on my phone. 
 
-I knew of the twins that they were talking about. 
+Another young woman slain after meeting with dating app suitor Friday night; who is next? 
 
-The Macintosh twins were your usual troublemakers. Always disrupting the class with crude jokes and gestures. Teachers complained about them constantly.
-
-During the lunch period I decided to go see for myself as this was a rare occurrence. I walked by the cafeteria and looked in the door while letting other chatting students through. 
-
-There they were. 
-
-Both of them were sitting at one of the tables quietly. Neither of the boys were moving. Everyone else seemed to act like they just weren't there. 
-
-What got me though was that they weren't eating…like at all. Just sitting there unmoved and unbothered. I swear I don't think I even saw them blink thinking back at it but I'm probably right. 
-
-I just shrugged it off. Said I was overthinking. 
-
-Then after a few more days more and more kids started going silent. 
-
-A substitute teacher complained to the principal one afternoon. I overheard them conversing outside the door. Which wasn't hard since Principal Warren was a loud man even when he speaks normally. 
-
-“Mr.Warren…” The substitute says, "I think something's genuinely wrong with the students”. 
-
-Principal Warren chuckles “and whats wrong about them? Are we disrupting the class?” 
-
-“Well no…that's the thing, they are just silent almost in an eerie way. They would do the things I ask them but most of them would just be unnerved and quiet. Their blank eyes just looking at me even creeps me out”. The substitute's voice trembles. 
-
-Warren gruffs,”If they aren't being pests then don't bother me with this nonsense. Here, just take your pay and leave”. 
-
-After I stepped out of the way as the substitute left almost shocked. I was confused. 
-
-Why are none of them concerned about this? Seems too odd just to be a rare occurrence. I thought to myself. 
-
-As soon as I went to the back of the hallway I jumped. One of our students, a boy, was inches behind me was just staring at me. 
-
-I almost had a heart attack as I went to calm myself down. 
-
-“Jeezus kid you almost scared me”. I said to him. The boy said nothing back just kept staring at me with point blank eyes. I was unnerved. Almost like how the substitute felt. Just then the bell rang. 
-
-As more students left the building I made sure to watch the one that felt like having a staring contest with me. 
-
-I saw him go up to a woman that I assume is his mother. The point blank expression suddenly turns to a happy one and hugs her. Almost like going back to a everyday normal reaction to a kid coming home to their parents. 
-
-As I look every other kid seems to act like that as well. Even the Macintosh twins were rough housing as they were outside. 
-
-I was confused.
-
-Why are the kids silent inside the school but not out? 
-
-I left that day with more questions than answers. 
-
-Then something even more strange happened. 
-
-Next couple of weeks the kids were back to how they were. All noise no quiet. The staff was a little confused but I think they were bummed out as well. 
-
-At the staff meeting one week there was questions. 
-
-To ease the confusion Principa Warren slowly calmed everyone down saying that “things will go back the way were” 
-
-The staff agreed with this and so did I. Who knows. Maybe it was just kids being kids. I mean, none of us has ever seen anything this far but we thought it was just the change of times and how it was probably a trend or prank that was viral on the internet. 
-
-Weeks went by.
-
-We all slowly got the edge off as all of our kids got back to normal. 
-
-I remember thinking the whole thing was funny. 
-
-Until one day for some reason every kid in the school got quiet as soon as they stepped through the doors. Just immediate silence. 
-
-Talking one second and then just quick silence the next. 
-
-Everyone on the staff froze in place. 
-
-The kids instead just walked in, got their stuff and silently went into class. You couldn't even hear their footsteps. 
-
-We all watched at one point when a kid even tripped and fell but you couldn't hear a thing from it. They just silently got up and walked on. Not even brushing themselves off.
-
-Teachers struggled going through the day. 
-
-Said all the kids silently staring at them as they taught unnerved them so much they had to make a little bit of noise in the classroom. It was sad because they were all becoming like me in a way. I dealt with this one time even by banging each locker as I went down a hallway. 
-
-It's just like the sound was erased in our school building. 
-
-Yesterday was the first time I actually snapped. 
-
-While cleaning the science classroom one of the kids was there by the doorway silently staring at me. I couldn't take it anymore as I was gripping my broom so hard my knuckles turned white. 
-
-I let go of the broom letting it fall to the floor. 
-
-Hearing the sound of it clanking on the ground was satisfying enough but still didn't stop me from going to him. I grabbed the boy's shoulders and in an angry tone asked “WHAT THE HELL IS GOING ON”. 
-
-Silence. 
-
-The thing I dread the most is evident in the air.  
-
-Then suddenly out of nowhere the boy I was interrogating started screaming loudly. So loud that even I had to hold my ears as it screeched. Teachers that were near me came out of classrooms also holding their ears as I looked and every single kid was yelling. 
-
-You can see them sitting in their desk chairs patiently but their mouths open in a scream that takes forever. 
-
-We got them all to quiet down after Principal Warren on the intercoms told everyone to go outside. Each kid got up still screaming and walked to the outside doors like a death march. 
-
-As soon as one stepped outside the yelling stopped. They all went back to normal. 
-
-We would ask the kids eventually what was going on but they would say they have no recollection of what took place. Warren made everyone leave early. Then took me aside and berated me for causing the yelling. 
-
-Now I'm here looking for answers. 
-
-Because I don't want to go back to a school that's always quiet. The first best option is to quit but I need to know what's happening to these kids. 
-
-Just please don't let it be quiet. 
+And you guys, I think it was me. Well, it was supposed to be anyways. 
