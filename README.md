@@ -1,33 +1,74 @@
-# I think my tinder date killed me last night
+# That thing was not my grandma
+My grandma used to be my favorite part of my childhood. We would go garage-sale hunting, go to dog shows, and she attended every single sporting event. Her birthday gifts were always amazing, and she was always there to help if I needed anything. I’m now sixteen, and she isn’t doing well. I’m not sure exactly what the issue is, but over the year her health has become a serious problem, and she now has to move in with us. I watched as my parents helped the frail, broken old woman into the house and into her hospital bed set up in the room right beside mine. She smiled at me, but I didn’t recognize her. My dog, Benji, would not stop barking at her — something I should have picked up on. For the first night, my grandma rested and did not really engage with us, rarely ringing her small bell to get help from either of my parents.
 
-I know. This sounds impossible. How would I have been killed last night but be posting on Reddit. I get it. But I have no other explanation for what happened this morning. 
 
-I woke up with the worst headache of my life. It was so bad, I could hardly open my eyes. I realized it was from the blinding, florescent lights over head. I was stiff and cold. That was from the metal slab table I was lying undressed on top of. 
 
-I woke up with a hangover in a morgue. 
+That night at around 11 p.m., I lay in my bed listening to the rain hit my window, soothing me to sleep, when I heard it: the light bell chime. When no one responded, she rang it again, and again. Finally, I decided to help her myself. Shuffling over to the spare room next to mine, what I saw lying in my grandmother’s bed shook me to my core. Bright magenta eyes glowed like small neon orbs, accompanied by a black, human-shaped mass and bright teeth just visible. The image only lasted a couple of seconds because I was quick to turn her light on, but to my surprise my grandma was not in her bed. I then heard it again — this time behind me, coming from my room.
 
-I was laid out on an autopsy table with a white, paper sheet covering me. The pathologist wasn’t in the room but the lights were on and next to my table was a rolling tray of various metal instruments that were no doubt about to be used to slice into me. I had a yellow toe tag labeled Doe, Jane. I wasted no time waiting around to see if someone would come back to the room. In the corner by the door, where I assume the pathologists coat was hanging was a plastic bag labeled West Chester Police Department: EVIDENCE with my belongings stuffed inside of it. The clothes I had worn to my date the night before were neatly folded and placed inside. Along with one of my checkered vans, two socks, my black Coach crossbody purse, and my cellphone—which had a new crack through the screen. 
 
-My clothes were absolutely filthy but I redressed myself anyways. I had worn blue jeans and a black sweater—which now were littered with small tears and rips and chalky dirt. My purse had certainly been riffled through. All that was left was a couple of tampons, my go-to lip gloss, and a business card of some girl I had run into downtown ages ago. My wallet and coin purse were gone.
 
-Outside of the autopsy room, the hallway was dark and from the glass doors at the end of the hall, I could see it was still dark out. At this point, I had no idea how much time had passed. All I knew was that I had to get out of there as quick as I could. I hurried down the hall, one dirty sneaker in my hands, padding down the linoleum hallway in just my socks. Just past the examination room on the right was a door that was propped open and warm light was coming from inside. I could hear someone humming softly and the buzz of a microwave warming something fishy. I peeked around the door to see the pathologist with overhead headphones on, air drumming with his back to the door. I took my opportunity and sprinted down the hall and out the front doors. 
+I slowly walked back to my room, where an outline was visible under my covers. My lights wouldn’t work, and as I slowly crept toward my bed I heard the bell behind me again, causing me to swiftly turn around. The room grew darker, as if my eyes were suddenly unable to adjust. I then heard and felt fast footsteps exit my room and slam the door. Suddenly the lights came on, and as I stuck my head out of my room I saw my parents tending to my grandma, now back in her bed. I wondered if I had a nightmare and decided to keep the ordeal to myself.
 
-The night was cold and drizzly, not at all how the night of my date was. Not to mention that I went out in Lancaster and woke up with my clothes in a West Chester Police Evidence bag. To my absolute surprise, my phone still turned on, albeit smashed to bits. After several seconds of the Apple logo staring back at me, my phone lit up like a Christmas tree with missed calls and texts. Mostly all from my roommate, Bethany. The missed calls started approximately 22 hours prior. 
 
-But, other than the texts from Bethany and a few “You up?” messages from other dating app failures, there was nothing from the guy I had gone out with the night before. I had given him my number and I know I sent him a message when I got to the bar to let him know I had arrived. But they were gone. Inside the Tinder app, I couldn’t find his profile or our messages anywhere. Just a greyed out This User is No Longer Available box that I can’t open. 
 
-I recently started dating after ending a 3 year relationship with my ex, Kyle. I hadn’t done much dating prior to him and thought I’d try my hand at dating apps. I had the basics, hinge, bumble, tinder; even tried my hand at Facebook dating. Most were dead ends. Some ended in an awkward hook up at their cramped studio apartments or sneaking past their roommates door at 2am. I admittedly mostly used Tinder when I was getting antsy and looking for…a short term connection I suppose. 
+I woke up the next day and my dog was nowhere to be found, so I spent the day hanging up lost-dog posters. That night I heard scratching coming from above my room, which kept me up and caused me to tell my dad. He heard shuffling as he went up there. He discovered a few dead, chewed-up rats and wondered if the dog had done it. I denied it — Benji had no way to get up there — but my dad swore it was the most logical explanation. He set up some rat traps and went back to bed. The noises only increased, and I could now hear my dog yelping. I rushed up the attic stairs without hesitation; to my horror, I found my grandma eating Benji. She attacked me, we fell down the stairs, and I remember nothing after that as I slipped into a small coma.
 
-I couldn’t remember much from who I met up with for my date the night before. I vaguely remember a photo on my screen, a white guy with brown hair. Super specific, I know. I don’t have any memories of seeing him in person either. The last of my memories was me taking a seat at the bar, ordering a whiskey sour, and texting the guy I had made it. Next thing I knew I was under a cloth on an autopsy table. 
 
-Now, I’m sure you’re thinking — just look at the screenshots of his profile that you sent to all of your friends! I didn’t take one. In fact, I was avoiding telling anyone I was on the apps or meeting up with strangers. Over the last few months, there’s been several girls in Philadelphia who have showed up dead after meeting up with someone from a dating app. But I’m smart! I carry pepper spray and a taser. I can spot a fake profile from a mile away. And honestly, sometimes I just want a stranger to buy me a drink and call me pretty. So I kept my dating app adventures on the DL. And last night was no different. I told Bethany I was meeting up with a friend and slipped out. She didn’t ask questions and I didn’t give details. And besides, all those girls were hundreds of miles away. If there was a deranged killer on Tinder, I wouldn’t cross paths with him. 
 
-But now, I’m standing in front of the West Chester Medical Examiner’s office with one shoe and I’m pretty sure I’ve just rose from the dead. Bethany answered almost immediately and told me I hadn’t been home in almost 37 hours, give or take. She chalked it up to me hitting it off with someone at a bar and spending the night but she was minutes away from filing a report before I called. She was on the way to the station right then, she had already called and they told her she had to go in person. 
 
-I made it all the way to the bus station before I even thought to consider what I looked like. My voice was horse and dry but I figure if I’ve been dead for a day, probably fits the bill you know. I opened my camera and I literally looked like I rolled out of the morgue. My hair was knotted in the back and had sticky mud in it, I had a busted open wound across the bridge of my nose, and god awful bruising around my neck. 
 
-I was ready to deny this whole deal honestly. I must have gotten roofied and robbed and it was some medical examiners first day on the job. But as I took the bus ride back home, a news alert popped up on my phone. 
+I woke two days later to the antiseptic smell of the ward and the mechanical tick of a clock I hadn’t noticed before. My mom was hunched in a plastic chair beside me, eyes red and empty like someone who’d been looking for answers and only found questions. When I told them—slow, halting, the memory jagged and skipping like a scratched record—doctors said I’d suffered a massive brain injury. “Post-concussive episodes,” one of them called it gently, as if naming it made it less monstrous. They told me to rest. They told me things would be okay.
 
-Another young woman slain after meeting with dating app suitor Friday night; who is next? 
 
-And you guys, I think it was me. Well, it was supposed to be anyways. 
+
+My mom also told me my grandma was fine. She was home, she said, sleeping in her bed just like before, “responding appropriately to stimuli,” my dad told us over the phone. My mom stayed with me at the hospital while my dad wast home to help — we both needed someone to be somewhere. He called later that day in a voice so flat I thought maybe the house had swallowed the hope in it. “I need you here,” he said. “Now.” My mom kissed my forehead, shoved a folded hospital blanket into my hands like proof she’d been there, and left. “I’ll be right back,” she said, and the words hung in the doorway and then the door closed.
+
+She didn’t come back for a long time.
+
+
+
+I tried to keep my eyes open, to count the ceiling panels or the number of raindrops on the window, but the exhaustion from whatever the doctors had fixed in my skull pulled me under like a tide. When I surfaced, it was to a sound I knew too well: the low, frantic scratching that crawled along the same frequency as a ringing bell.
+
+My nurse call button blinked like a small, indifferent star. I jabbed it. No response. The light on the panel stuttered and died. For a second I believed the wires in my head had been rewired so the hospital couldn’t hear me. Then I heard it—the faint chime of my grandma’s bell.
+
+
+
+Panic warmed my palms and then cooled into a strange clarity; if no one was coming, I had to see for myself.
+
+I swung my legs over the bed and stood. The floor felt colder than the mattress should allow. The corridor hummed; a distant trolley clattered. I moved like a ghost learning how to haunt its own body: quiet, careful, each footfall measured. The scratching grew louder as I walked, a frantic, animal rhythm coming from the corner of my room where a cheap vinyl chair sat with its back to the wall.
+
+I edged closer and peered behind the chair.
+
+
+
+What crouched there was my grandmother and not my grandmother. She was shoved to the floor, knees tucked under her frail body, fingers splayed and scrabbling at the linoleum. Her nightgown hung in loose, unfamiliar folds. There was blood on her fingertips, dark and smeared, and the way she worked at the floor—tearing, clawing—was both frantic and oddly deliberate, like someone trying to dig a key out of the wood with nails that should not have been capable of such force. Her eyes were sunken, pupils blown wide with a flat, wet sheen that caught the fluorescent lights and turned them into something cruel.
+
+For a moment I simply watched, breath frozen behind my ribs. This could not be right. This could not be.
+
+Then she rose.
+
+
+
+She moved so fast that the sound off her unsteady heels on linoleum sounded obscene—too loud for the tiny body that used to fold into my lap. She darted forward like a mechanism wound too tightly, aimed straight at me. Instinct threw my hands out. Before I could think, her fingers closed on mine and we were locked together as if by some small, inevitable machine. Her grip was cold and impossibly strong, as if iron had been cast around my wrist.
+
+
+
+Her face was not my grandmother’s face. It began to shift in the small space between two heartbeats: skin stretching and thinning where it should have been soft, cheekbones sharpening into angles that weren’t human, a mouth widening too wide for the jaw that had contained it a moment before. Magenta irises bled into black rims. Teeth that were too bright and too many slid like knives behind lips that had become something else. The sound she made was a wet, small sound—not quite a moan, not quite a laugh—and it vibrated up my arm like an electric current.
+
+
+
+For a breath I felt something like recognition—something human beneath the thing—but it was overlaid with a second, truer knowledge: whatever had taken her had learned how to wear her. The creature’s eyes caught mine with a hungry, delighted focus that stripped away memory and left hunger. I could smell the hospital detergent, the stale coffee on the nurse’s station, and beneath it the copper tang of blood.
+
+
+
+My heart hammered so loudly I thought someone would answer it, would finally come, and then the room narrowed to the grip of those fingers and the wet rasp of breath against my ear. I had no plan, no weapon, only the brutal clarity of being pinned to the moment. My lungs filled and I had to decide — fight, scream, pray — but the creature bent its head in a way that made my stomach drop and smiled with a mouth that was wrong, magenta eyes burning into my retna.
+
+
+
+Just then, the door burst open. Nurses rushed in, flooding the room with light. My parents stood behind them, both pale and out of breath.
+
+“Grandma’s missing,” my dad said.
+
+The words sank into me like ice. My mom stared at me, waiting for me to speak, but nothing came out.
+
+Somewhere down the hall, a bell chimed.
