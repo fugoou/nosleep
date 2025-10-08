@@ -1,139 +1,272 @@
-# My manipulative ex sent me a box full of apologies five years after we broke up. The problem is, she died a year ago.
-It’s been five years. Five years since I finally, painfully, and messily, extracted myself from that relationship. It was one of those relationships that doesn’t just end; it leaves a crater. She was my first real love, and she was a master of a quiet, insidious kind of cruelty. A manipulator of the highest order. Every argument was my fault. Every insecurity I had was a weapon she would sharpen and use against me. By the end, I was a hollowed-out, anxious wreck of a person. It took me years of therapy, of rebuilding my own self-worth from the ground up, to feel even remotely normal again. I hadn’t seen or spoken to her in half a decade. I thought I was free.
+# My 90 year old grandfather told me something disturbing.
+“She’s buried under that tree,” my grandfather whispered, pointing out the window to the front lawn.
 
-Then, last month, the box arrived.
+*Oh boy,* I thought. *Here we go again.*
 
-It was a small, unassuming package in my mailbox. No return address. Just my name and address, written in a familiar, elegant, sharp cursive that I recognized instantly. A cold, heavy feeling, a ghost of an old anxiety, settled in my stomach. Her handwriting.
+For ninety years old, Grandpa was physically capable. He could move, do basic chores, and eke out a decent existence. His primary weakness was his mind. 
 
-On a small, cardboard tag tied to the box with a black ribbon, were seven words, also in her hand: “For all the things I should have said.”
+“Who’s buried there?” I asked, humoring his senility as I adjusted the angle on his lift chair.
 
-My first instinct was to throw it away, unopened. To just toss it in the dumpster and pretend it never came. But I couldn’t. The curiosity, the morbid need for a final, long-overdue sense of closure, was too strong. I took it inside.
+“The girl with white hair and green skin.”
 
-The box itself was beautiful. It was a small, ornate thing, carved from a dark, heavy wood, with intricate patterns of vines and leaves winding around its sides. It felt old, ancient even. I sat at my kitchen table, my heart a frantic drum against my ribs, and I lifted the lid.
+*Green skin?* I wondered. *That’s new.* 
 
-Inside, the box was empty.
+I fixed Grandpa’s chair to the recline position and made my way to the kitchen. “I’m gonna make us some sandwiches.”
 
-It was lined with a deep, dark, light-absorbing velvet. There was no letter, no trinket, no explanation. Just an empty, velvet-lined box. I felt a surge of frustrated, familiar anger. Of course. Even now, five years later, she was still playing games. Sending a cryptic, beautiful, and ultimately empty gesture. It was so perfectly her.
+“Alright, Sweetie.”
 
-I put the box on a bookshelf in my living room, a strange, dark little monument to a past I was trying to forget, and I did my best to put it out of my mind.
+I left him there in front of the TV. 
 
-The next morning, I was getting ready for work. I walked past the bookshelf, and something caught my eye. There was a small, folded piece of white paper sitting in the center of the box’s dark velvet lining.
+This weekend was my monthly visit. My siblings and I switched weekends to make sure Grandpa wasn’t alone. 
 
-I froze. I knew, with an absolute certainty, that the box had been empty when I went to bed. My apartment door was locked. No one had been in. My hands were trembling as I reached for it.
+The location was inconvenient because he lived in the ass crack of nowhere. It was a good two hours to the nearest town. If you needed something other than general store items, you’d be driving for a while. 
 
-I unfolded the paper. On it, in that same, sharp, elegant cursive, was a single sentence.
+After I finished the sandwiches, I slid one on a plate, and placed it in Grandpa’s lap. 
 
-“I’m sorry for making you feel small at that dinner party with your friends.”
+“Thanks, Honey,” he said and started chewing with yellow teeth.
 
-I stared at the note, my mind reeling. The dinner party. It had been seven years ago. A small gathering at a friend's apartment. She had spent the entire night subtly, skillfully, undermining me in front of my oldest friends, making me the butt of a dozen “gentle” jokes that left me feeling like an idiot. I had almost forgotten about it. But the apology… it was so specific. So verbatim to the conversation we’d had in the car on the way home, where I had used those exact words: “You made me feel small.”
+I sat down on the sofa, cracked open a murder mystery book. A golf tournament was playing on TV. I hated golf, but that was the only thing he liked, so I occasionally glanced out the window at the beautiful vista to keep myself from boredom. 
 
-I spent the rest of the day in a daze, the note folded in my pocket, a strange, hot coal against my leg. When I got home from work, I went straight to the bookshelf.
+Grandpa’s property was strange in that it was high up in the mountains, appropriate for farming, but his specific land hadn’t been built for that. 
 
-There was another note.
+He lived in a mobile home just beneath a hill. There were trees decorating the terrain, but the only one on his quarter acre lawn was a pine my father had brought up years ago as a sapling. It was well over twelve feet now.
 
-“I’m sorry for reading your journal.”
+“She’s buried there.” He mumbled, devouring a slice of ham on bread.
 
-My blood ran cold. She had always sworn she hadn’t. It had been a huge fight, a suspicion I could never prove. But here it was. A confession. A posthumous admission of guilt.
+*Why does he keep saying that?* I focused my gaze on the tree in the lawn. *What an odd thing to hallucinate.*
 
-I checked again an hour later. Another note.
+***
 
-“I’m sorry for lying about where I was that night.”
+Two hours later, I was interrupted by a call from my brother, Stu. 
 
-This was the rhythm of my life for the next week. The box became an endless, automated apology machine. Every time I looked, a new note, a new folded piece of paper, a new shard of our toxic past, would be waiting for me. At first, it was… cathartic. Validating. Every note was a confirmation that I hadn’t been crazy. The gaslighting, the manipulation, it had all been real. It was like all the old wounds I had were finally being lanced, the poison drained away.
+“Hey, Grace,” he said, his voice as cheerful as ever. “How’s Gramps?”
 
-“I’m sorry I told your mother you were the one who broke her antique vase.”
-“I’m sorry I flirted with your best friend at your birthday party.”
-“I’m sorry I made you quit your painting class.”
+“Coping,” I said. Grandpa had fallen asleep in his chair, a half-eaten sandwich in his lap. “He’s resting after a light lunch.”
 
-But then, the apologies started to get darker. More intrusive.
+“Good. He needs that.”
 
-“I’m sorry for watching you while you slept.”
+I returned to the couch, saved the spot in my murder mystery. My eyes fell on the lonely pine outside.
 
-I found that one on a Saturday morning. I felt a chill that had nothing to do with the temperature of the room. I remembered waking up sometimes, in the dead of night, with the feeling of being watched, only to see her lying beside me, her eyes closed. I had always dismissed it as a dream.
+“Stu, can I ask you something?”
 
-“I’m sorry for putting that keylogger on your laptop.”
+“Sure, Sis.”
 
-That one explained so much. The way she always seemed to know what I was thinking, who I was talking to. The way she would bring up things from private emails, pretending it was just a lucky guess.
+“Has Grandpa mentioned anything about a green girl buried under a tree?”
 
-“I’m sorry I followed you to work that day you said you were sick.”
+Stu fell silent.
 
-The box wasn’t just apologizing for the things I knew about. It was revealing a secret, hidden history of stalking and violation, a level of obsession and control that I had never even suspected. The catharsis was curdling into a deep, creeping horror. It was an invasion. A re-opening of a past that was far more monstrous than I had ever realized.
+“Stu?” 
 
-I had to get rid of it.
+“Give me a second.” 
 
-I took the box, my hands shaking with a mixture of fear and rage, and I threw it in the dumpster behind my apartment building. I watched it disappear under a pile of trash bags. I felt a sense of finality, of relief.
+“You there?”
 
-The next morning, it was back on my bookshelf.
+“Yeah. Just a minute,” a heavy sigh… “When did he start mentioning it?”
 
-It was sitting in the exact same spot, polished and pristine. And inside, a new note was waiting.
+“This morning.”
 
-“I’m sorry you tried to throw me away.”
+“Don’t let him talk about it.”
 
-Panic, a raw, frantic, animal panic, began to set in. I took the box out to my small concrete patio and I took a hammer to it. I swung with all my might. The hammer head connected with the dark wood with a loud CRACK… and bounced off, leaving not so much as a scratch. The wood was impossibly, unnaturally hard. The hammer, however, had a new dent in its head.
+“Why not?”
 
-The box was a part of my life now. An unmovable, unbreakable, and unending source of my past’s poison.
+“Because…he gets all worked up…when Jess and I were there last month, we found him digging a hole under the tree at two in the morning. He thinks someone lives down there. He belongs in a care home.”
 
-And then, the apologies started to change. They started to become… predictive.
+I turned towards Grandpa. Noted his frail shoulders. The muscles that had carried bales of hay and iron tools for years. Now his body was fading…
 
-One morning, a note appeared that was different. It was about the future.
+“Grace?”
 
-“I’m sorry for what the man on the bus is about to say to you.”
+“I’m still here.” 
 
-I stared at the note, a sense of profound, dizzying wrongness washing over me. An hour later, on my commute to work, the bus lurched, and a large, angry-looking man stumbled and spilled his coffee. He turned and glared at me, even though I was a full three feet away. “Watch where you’re going, you idiot,” he snarled, his voice full of a bizarre, unearned venom.
+“Make sure he doesn’t talk about it.” 
 
-The box wasn’t just dredging up the past anymore. It was predicting, or maybe even causing, new negativity in my life, and then apologizing for it.
+***
 
-The notes became a mix of past and present.
+It was quarter past five when I cleared the plates from the dining table.
 
-“I’m sorry I dented your father’s car and let you take the blame.”
-“I’m sorry for the flat tire you’re going to get this afternoon.”
-“I’m sorry I told all our friends your novel was just a stupid hobby.”
-“I’m sorry your boss is going to lose that important file.”
+“Thanks for cooking, Sweetheart.”
 
-It was a constant, unending stream of misery, both remembered and newly delivered. I was living in a psychic minefield, with the box as my own personal, malevolent fortune teller.
+“Of course, Grandpa. Need help getting to bed?”
 
-I had to talk to her. I had to stop this. I dug through my old contacts, my fingers feeling like clumsy sausages, and I found her number. I hadn’t deleted it. I just… never looked at it. I called. It went straight to a disconnected tone.
+“No,” He sighed, seemingly deep in thought. 
 
-I tried her social media. Her profiles were all gone. Deactivated.
+He pushed himself out of his seat. Waddled down the hall. It took him so long to reach the other end of the trailer.
 
-I was getting desperate. I called one of our old, mutual friends, someone I hadn’t spoken to in years.
+“Grace,” He stopped at this bedroom door.
 
-“Hey,” I said, my voice shaking. “This is going to sound really, really weird. But I need to get in touch with her. It’s an emergency. Do you have a new number for her?”
+“Yes.”
 
-There was a long, heavy silence on the other end of the line.
+“You do believe me…about the girl under the tree?”
 
-“Are you… are you okay?” my old friend finally asked, his voice full of a strange, cautious concern.
+“Yes, Grandpa.”
 
-“Yeah, I’m fine, I just… I really need to talk to her.”
+“Good. If anything happens, stay by my side. I’ll protect you.”
 
-Another pause. “Dude,” he said, his voice soft. “She’s dead. She died a year ago.”
+*Huh?*
 
-The phone slipped from my hand and clattered to the floor. I just stood there, the blood roaring in my ears. Dead. She was dead.
+With that, Grandpa cracked open his bedroom door and slipped inside.
 
-“A car accident,” my friend’s tinny voice continued from the floor. “It was really awful. I thought you knew. Her parents sent out an announcement.”
+***
 
-I hung up. She was dead. For a year. But the box… the box had arrived a month ago. And the notes… they were still coming.
+FWACK. 
 
-I stumbled to the bookshelf. The box was there, a dark, silent void. And inside, a new, folded note. I picked it up with a hand that was so numb I could barely feel the paper.
+My eyes shot open. It was dark. Maybe one in the morning.
 
-“I’m sorry I died.”
+FWACK.
 
-My mind shattered. The last, fragile barrier between the rational world and this impossible, waking nightmare dissolved completely. This wasn’t a sick prank. This wasn’t a final, manipulative game. This was something else. Something from beyond the grave.
+A hard metallic noise thundered in my ears. 
 
-I’m writing this now because I don’t know what else to do. I am trapped. The notes haven’t stopped. But they’re different now. They’re no longer just apologies for the life we shared. They’re… dispatches. Postcards from whatever hell she’s in. And they are more terrifying than any of her earthly cruelties.
+*What was that?* 
 
-This morning, there were three.
+FWACK.
 
-“I’m sorry I was thinking of you when I died. I was holding this box.”
+I stumbled out of bed. Disoriented. Face aching with exhaustion. 
 
-That one made me physically ill. I was the last thought in her head. And somehow, in that final moment, she had tethered this… this thing to me.
+I ripped open the blinds. A man was swinging a tool at the foot of the pine tree. 
 
-“I’m sorry the sky is red here.”
+*Grandpa?*
 
-“I’m sorry the people here don’t have hearts. They just have empty spaces.”
+I raced to his room. The bed was empty.
 
-The last note, the one that is sitting on my desk right now, the one that has finally pushed me to write this, to scream into the void and pray someone has an answer, arrived an hour ago.
+FWACK.  
 
-“I’m sorry. I have to go now. The one with the smiling face is coming for me again.”
+The metallic clangs grew louder. 
 
-I don’t know what to do. I think..I think I am tied to a ghost and her only connection to the living world is me. The box is on my bookshelf, and I know, with a certainty that is slowly crushing the life out of me, that a new note is already waiting. And I am so, so afraid to read it.
+*What’s happening?!*
+
+I ran to the sofa. Grabbed my phone. Turned on the flashlight. And stumbled outside.
+
+The moon was barely up. Cold air bit my skin as I pulled my shirt close, covering my body.
+
+Just ahead, Grandpa was hunched at the twelve foot pine, swinging a pickaxe. I was so stunned to see him lifting the massive tool.  
+
+“Grandpa, what are you—?” 
+
+“She’s coming, Grace. I have to set her free.” 
+
+“Grandpa, it’s three in the morning!”
+
+“I have to get her out!” 
+
+I grabbed Grandpa’s wrist. But he shoved me back. I landed on my posterior, my flashlight’s beam illuminating his face—wide with terror. 
+
+“Don’t stop me, Grace. If I don’t let her out, she’ll take you too.” 
+
+Without another word, he slammed his tool into the earth. 
+
+***
+
+The next morning, Grandpa and I sat at the table chewing bacon and eggs. Neither of us had slept.
+
+“Grandpa.”
+
+He looked at me with weariness in his eyes. 
+
+“What…happened last night?”
+
+He let out a deep sigh, pulled out a worn shoe box from a cabinet.
+
+“See this?” 
+
+He brought out a stack of black and white photos.
+
+“This is your grandmother, Belle, and me a few years after we were married. And here…” he tapped the face of an adorable boy. “Is your father.”
+
+In the background of the picture, I noticed a young girl, maybe four years old, perched on a fence, watching everyone with a miserable gaze. 
+
+“Who’s that?”  
+
+“The Green Girl. She’s the one who’s buried under that tree. She took your father and grandmother. Now, she’s coming for me.”
+
+“Why?”  
+
+“Because… she’s death.” 
+
+*Death?*
+
+BOOM. 
+
+The front door lurched with sudden impact. Grandpa and I swerved our gazes, deep in fear and concentration.
+
+“Didn’t you think it was odd how Grandma died so young? And your father?”
+
+BOOM.
+
+“This girl lived in the woods. She was there for each family member who passed on.”
+
+BOOM.
+
+“My uncle, aunt… When I figured it out, I found her in the woods. Made sure she never came after us again.”
+
+“You killed a… child?”
+
+“She’s no child, Grace. She’s evil. And she’s coming for me…”
+
+BOOM. 
+
+I ran to the couch. Peered out the window to see a hunched figure wearing old pioneer clothes. They were bashing their fists against the door.
+ 
+“Someone’s out there!”
+
+“It’s alright, Grace. She only wants me.”
+
+The slamming grew more intense. I retraced my steps to the table.
+
+“Why is she harassing our family?”
+
+“I don’t know, Grace. But it’s been like that, ever since I was a boy. Whatever you do, don’t make eye contact with her.”
+
+BOOM. 
+
+The front door caved in under the pressure. 
+
+I closed my eyes, then reopened them.
+
+A strange figure stood in the door frame. About four feet tall. Dressed in worn rags. Her skin was as green as a pine tree’s leaves. Long white hair flowed down her back.  
+
+“She’s here.”
+
+The Green Girl shuffled toward us across the carpet.
+
+I watched in suspense, so scared I could barely breathe. My eyes searched for a weapon, and found… a letter opener. I reached for it —
+
+“Stop, Grace! This has to happen.”
+
+I gawked in horror as the Green Girl lurched up to Grandpa, let out a blood-chilling gasp.
+
+“Heeeeeeeeeehhhh.”
+
+The sound of her breath stung my ears. Grandpa commanded: “Only me! That’s the deal."
+
+The Green Girl grabbed his face with bone-thin hands and held her mouth over his.
+
+A sickening sound of rushing wind accompanied her widening mouth. 
+
+Grandpa gave a frightened gasp, then collapsed.
+
+“Grandpa!” 
+
+The Green Girl let out a sickening groan. Limped back to the door.
+
+“Wait!” 
+
+The creature looked at me.
+
+“Why are you doing this?!” 
+
+The Green Girl pointed at the clock hanging above the dining table. Then, pointed at herself, then me. 
+
+For the next few seconds, I was too shocked to move. 
+
+With a final groan, the Green Girl limped out the front door and was gone. 
+
+*** 
+
+It’s been two days. I called the sheriff. They investigated everything. I’ve been asked so many questions. 
+
+My siblings think I’m crazy. Stu’s the only one who believes me. Why? 
+
+He says that one night, while he was at Grandpa’s, he heard a woman speaking in one of the rooms.
+
+It reminded him of a soothing voice he had once heard as a young boy. A voice that told him the exact date he would die.
+
+And that date wasn’t far off…
