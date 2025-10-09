@@ -1,272 +1,498 @@
-# My 90 year old grandfather told me something disturbing.
-“She’s buried under that tree,” my grandfather whispered, pointing out the window to the front lawn.
+# I Just Found A New Toy In My Daughter's Room and I Don't Remember Putting It There - Part III
+I didn’t sleep that night.
 
-*Oh boy,* I thought. *Here we go again.*
+After I was sure Win was out, I crept into the closet – making sure not to wake up Jess. My heart was pounding, my breathing hard and fast, and I didn’t want to scare her.
 
-For ninety years old, Grandpa was physically capable. He could move, do basic chores, and eke out a decent existence. His primary weakness was his mind. 
+I was scared enough for the both of us.
 
-“Who’s buried there?” I asked, humoring his senility as I adjusted the angle on his lift chair.
+We had some of our things stacked in boxes toward the back of the closet – old, unnecessary things consolidated to a few boxes. I had meant to take them up to the attic, that new shared and secret space, but just hadn’t gotten around to it yet. I was glad I hadn’t because the thought of creeping up those narrow stairs into the still, hot dark up there after what had just happened seemed unbearable.
 
-“The girl with white hair and green skin.”
+One of the boxes had a bunch of Win’s baby things. Old bottles, a well-used maternity pillow, some of Win’s baby toys she had moved on from – all of them were stuffed into a box labeled ‘Someday’. We’d been saving them, of course, with the thought that maybe we’d need them again; *someday*. A sweet wish we were banking on for the future.
 
-*Green skin?* I wondered. *That’s new.* 
+I ripped the tape off the top of the box, a little too loud. I winced, looking back through the closet to the edge of the bed, watching Jess’s feet in case she stirred and kicked. But she was still, and even from the insulated quiet of the closet I could hear her deep, rhythmic breathing.
 
-I fixed Grandpa’s chair to the recline position and made my way to the kitchen. “I’m gonna make us some sandwiches.”
+I rummaged through the box, my hands clumsy in the dark – forgotten shapes playing against my imagination. I knew what I was looking for, and after some digging my fingers brushed against a length of cord. A hard, plastic shape. I pulled it all free.
 
-“Alright, Sweetie.”
+It was Win’s baby monitor. A small black camera, the power chord snaking around the aperture. I stuffed it into the pocket of my pajama pants, walking carefully around the spots in the floor I knew would creak and back out of the closet.
 
-I left him there in front of the TV. 
+As I stood in the doorway, I heard it.
 
-This weekend was my monthly visit. My siblings and I switched weekends to make sure Grandpa wasn’t alone. 
+A long, slow *creeaaak.*
 
-The location was inconvenient because he lived in the ass crack of nowhere. It was a good two hours to the nearest town. If you needed something other than general store items, you’d be driving for a while. 
+This wasn’t the timid, hesitant sound I’d heard before. This was drawn-out, deliberate – ending with a low, hollow *thunk,* like the lid meant to shut itself. Like it meant to be heard.
 
-After I finished the sandwiches, I slid one on a plate, and placed it in Grandpa’s lap. 
+I froze. The shape of the second-floor unspooled in my mind: the hall stretching to Win’s room, the nook, the box in the corner.
 
-“Thanks, Honey,” he said and started chewing with yellow teeth.
+*creeaaak.* *thunk.*
 
-I sat down on the sofa, cracked open a murder mystery book. A golf tournament was playing on TV. I hated golf, but that was the only thing he liked, so I occasionally glanced out the window at the beautiful vista to keep myself from boredom. 
+Again – measured, almost playful.
 
-Grandpa’s property was strange in that it was high up in the mountains, appropriate for farming, but his specific land hadn’t been built for that. 
+My pulse skittered. I thought of her jaw clicking last night, her wide, glassy eyes. The cold tooth in my palm. I felt my forehead break out in sweat at the thought of it – that frigid pebble of a molar.  
 
-He lived in a mobile home just beneath a hill. There were trees decorating the terrain, but the only one on his quarter acre lawn was a pine my father had brought up years ago as a sapling. It was well over twelve feet now.
+I walked down the hall as silently as the carpet allowed, feeling the darkness lean toward me. Lick at me. The creaking stopped as I reached her door.
 
-“She’s buried there.” He mumbled, devouring a slice of ham on bread.
+I eased it open.
 
-*Why does he keep saying that?* I focused my gaze on the tree in the lawn. *What an odd thing to hallucinate.*
+The room glowed in the faint, amber haze of her nightlight. Win was a bundled shape on the bed, her face turned toward the wall. The toybox sat still and shut within the nook, as if it hadn’t moved in years.
 
-***
+But I knew better. I was learning to be better.
 
-Two hours later, I was interrupted by a call from my brother, Stu. 
+I pulled the monitor from my pocket, unwinding the cord. I worked by memory, crouching in the far corner of the room – away from the bed, away from the box. *Out of sight*, my mind whispered, *out of sight*.
 
-“Hey, Grace,” he said, his voice as cheerful as ever. “How’s Gramps?”
+I found an outlet and jammed the cord in. The red light blinked on. I angled the lens toward both the toybox and the bed, making sure they fit together in the frame. Then – standing, holding my breath – I backed out of the room.
 
-“Coping,” I said. Grandpa had fallen asleep in his chair, a half-eaten sandwich in his lap. “He’s resting after a light lunch.”
+On the other side, back in safer dark of our room, I took out my phone. I downloaded the monitoring app and logged back into our account. It took a moment for the camera to start streaming live to me but when it did…
 
-“Good. He needs that.”
+I saw Win, still and tucked away in her blanket. I saw the room, the night vision switching on as soon as the camera felt how dark the room was. I saw the nook -- the dark little threshold in the far wall.
 
-I returned to the couch, saved the spot in my murder mystery. My eyes fell on the lonely pine outside.
+And inside, the edge of the toybox.
 
-“Stu, can I ask you something?”
+I settled next to Jess as softly as I could, as careful as the bed springs as I was of the floorboards, rolling over on my side, hugging my phone close to me. I checked the app every few minutes like I was pressing on a bruise to make sure it still hurt. My little portal into Win’s room, a window to peek through. The toybox was still, a window to peek through. Static shimmered across the shadowed wood, making it seem alive, *squirming*.
 
-“Sure, Sis.”
+And there, eyes wide in the dark, I waited. I watched.
 
-“Has Grandpa mentioned anything about a green girl buried under a tree?”
+\*\*
 
-Stu fell silent.
+“What are you doing?”
 
-“Stu?” 
+I jolted, half-asleep, spilling cold coffee over the edge of the mug. I was sitting at the kitchen table, hunched forward in my seat. My phone in my other hand, close to my face.
 
-“Give me a second.” 
+Too close, I guessed, from the way Jess was looking at me.
 
-“You there?”
+“Hello?” she asked. Her arms were crossed in front of her, and she nodded her head toward my phone. “What’s that?”
 
-“Yeah. Just a minute,” a heavy sigh… “When did he start mentioning it?”
+“Just work,” I said, sliding my hand and the phone with it under the edge of the table and into my lap. I’d been checking the feed since dawn, over and over, and I’d had to have my phone plugged in ever since I got up out of our bed a few hours to charge. I brought the mug to my lips, taking a sip. Wincing at the flat, cold flavor.
 
-“This morning.”
+“Yeah,” Jess said, turning around. She was portioning snacks – carrots and apple slices and yogurt pouches. A juicebox.
 
-“Don’t let him talk about it.”
+I frowned.
 
-“Why not?”
+“What are *you* doing?” I asked.
 
-“Because…he gets all worked up…when Jess and I were there last month, we found him digging a hole under the tree at two in the morning. He thinks someone lives down there. He belongs in a care home.”
+Jess didn’t turn around.
 
-I turned towards Grandpa. Noted his frail shoulders. The muscles that had carried bales of hay and iron tools for years. Now his body was fading…
+“Packing a bag,” she said, stuffing the goods into the plastic grocery bag.
 
-“Grace?”
+“Yeah, I can see that,” I said, sitting up a little in my chair, a dull pain settling in my lower back, “but why?”
 
-“I’m still here.” 
+Jess dropped her hands on the counter. I saw her shoulders slump, saw her head roll back just the barest few inches. Inches enough for me. I felt my heart kick up in my chest.
 
-“Make sure he doesn’t talk about it.” 
+“For Mom’s?” she said, half-turning her head to me. I could see the side of her eye, her lips drawn tight.
 
-***
+“For Mom’s,” I repeated, closing my eyes.
 
-It was quarter past five when I cleared the plates from the dining table.
+Of course. Jess had told me last week we’d be going to see her parents this weekend. They lived two hours away, they were well off in their retirement, and they spoiled Win at every chance they got. The thought of her coming home with some fresh toys, something new and good? It was a relief, it was a balm to the unease throbbing in the center of me.
 
-“Thanks for cooking, Sweetheart.”
+“I’m sorry,” I said again after a moment, opening my eyes again – a slow struggle, “I know I’ve been…”
 
-“Of course, Grandpa. Need help getting to bed?”
+“We’re leaving in an hour,” Jess said, grabbing the bag. Cinching it shut and turning toward me.
 
-“No,” He sighed, seemingly deep in thought. 
+I met her eyes. I tried to smile. Wondering, idly, if I looked as sick as I felt.
 
-He pushed himself out of his seat. Waddled down the hall. It took him so long to reach the other end of the trailer.
+Jess softened. She didn’t return the smile, not quite. But her body relaxed, her free hand easing the neck of her bathrobe. Rubbing her collarbones – drifting tickling fingers along their ridges. It was a small gesture of self-comfort, automatic, and one I knew well. In that moment I wanted so very badly to stand up, cross the distance between us in the kitchen, and wrap my hands around her waist – to take her hand, hug her close, and whisper how much I loved her right into the dip of her shoulders. To wish in her well.
 
-“Grace,” He stopped at this bedroom door.
+I blinked, my eyes suddenly watering. Jess smiled, and this time I’m sure what she saw reflected back on my face was genuine. It was the real chord of our love, thrumming through us – what brought us together, what made Win, what made sharing this life and this house so beautiful.
 
-“Yes.”
+A secret, smiling note between us that – in the bare seconds of that moment – felt like it could fill the house. One that could amplify all of the light of everything good we had here and push back the shadows.
 
-“You do believe me…about the girl under the tree?”
+I stayed at the kitchen table longer than I needed to, just watching her move. The soft hum of the fridge, the faint shift of the house above us – like something settling deeper into place. Her presence felt… steady. It was something I could hold onto.
 
-“Yes, Grandpa.”
+“Want to get the girl?” Jess said, walking by me and pausing where I sat. Laying her hand on my shoulder. Squeezing once. It felt like home should.
 
-“Good. If anything happens, stay by my side. I’ll protect you.”
+I wiped my eyes, nodding. I heard Jess walk on behind me – out the kitchen and up the stairs. When I was sure she was gone, I thumbed shut the close button on my phone. I stood up, stretching, and tried to keep that lingering moment with me.
 
-*Huh?*
+Then, with a sigh that turned into a shaking yawn, I turned around myself and started up the stairs. Toward Win’s room.
 
-With that, Grandpa cracked open his bedroom door and slipped inside.
+\*\*
 
-***
+I walked past our room, smiling to myself as I heard Jess humming deeper inside as she got dressed. The sun was up and full as I came to Win’s door – streaming through the window upstairs, washing the still-bare walls in warm gold. Win’s door was closed, Win’s door was closed – a habit she picked up after potty training; she always closed the door on the way back into her room if she had to get up in the middle of the night for some reason. I reached for the handle and pressed my ear to the wood, listening for the sounds of my girl sleeping.
 
-FWACK. 
+Nothing.
 
-My eyes shot open. It was dark. Maybe one in the morning.
+I eased the door open.
 
-FWACK.
+Win’s bed was empty. Blankets a messy coil at the foot, pillow almost bare.
 
-A hard metallic noise thundered in my ears. 
+Except for Milkshake. Except for *fucking* Milkshake.
 
-*What was that?* 
+The room didn’t have any of the warmth from the outside hall. It felt… hollow. Empty.
 
-FWACK.
+I took a slow step inside, shutting the door again, my eyes sweeping the room. I didn’t see Win’s new doll anywhere – that one didn’t have a name yet and I was glad of it. Hoping she’d forget about it, hoping she wouldn’t latch on to it like she had that ashen snake. It would be so much easier to take that way – to get rid of.
 
-I stumbled out of bed. Disoriented. Face aching with exhaustion. 
+*creeaaak*
 
-I ripped open the blinds. A man was swinging a tool at the foot of the pine tree. 
+My gaze shot to the nook. The toybox was open, its black lid angled back.
 
-*Grandpa?*
+For a moment, I didn’t understand what I was seeing—two small legs, pajama cuffs bunched at the ankle, feet hooked over the edge. Half my daughter’s body – inside the gaping mouth of that shadow thing. The rest of her vanished inside.
 
-I raced to his room. The bed was empty.
+“Win.” My voice came out flat, too quiet.
 
-FWACK.  
+No answer.
 
-The metallic clangs grew louder. 
+I dashed across the room and grabbed her around the waist. She twisted in my arms, immediately struggling, small hands clutching something to her chest. I gasped, surprised, and tried to keep my grip on her.
 
-*What’s happening?!*
+“Let go!” she shrieked, writhing. “LET GO.”
 
-I ran to the sofa. Grabbed my phone. Turned on the flashlight. And stumbled outside.
+“Win, stop. STOP,” I said, finding myself screaming as I yanked her back and out of the nook. I felt what she was holding on to pressing against me, a lump of cold and wet. It was repulsive, and in the dreamy scramble of the moment the first thought that lit up my mind was that it was dead, that it was a dead thing Win had and she was squeezing it so tight against herself.
 
-The moon was barely up. Cold air bit my skin as I pulled my shirt close, covering my body.
+“Drop it baby,” I said, my mouth going dry, “drop it now, what…what is that?”
 
-Just ahead, Grandpa was hunched at the twelve foot pine, swinging a pickaxe. I was so stunned to see him lifting the massive tool.  
+Win’s eyes shot to mine. Her face was flushed, eyes bright. She wailed, her arms going limp as she started to cry, sloping against my shoulder. I held her closer to me, an entirely different sting of tears welling in my eyes.
 
-“Grandpa, what are you—?” 
+Win dropped the thing. I felt it land on my bare feet, and I gasped. And, I hate myself very much for admitting this – but my first reaction was to drop Win, after feeling the way that frigid lump felt against the tops of my bare feet. It was lizard instinct, the kind that knows to run when you see a shadow creeping up behind you out of the corner of your eye.
 
-“She’s coming, Grace. I have to set her free.” 
+But Dad instincts won. I squeezed Win tight, stepping around the thing and away from the nook. 
 
-“Grandpa, it’s three in the morning!”
+The toybox lid slammed shut.
 
-“I have to get her out!” 
+I moaned. My heart was throbbing, my guts wrung. Win held on tight to me, pressing her face against me, her wails rising as I spun around to look at the box.
 
-I grabbed Grandpa’s wrist. But he shoved me back. I landed on my posterior, my flashlight’s beam illuminating his face—wide with terror. 
+It was silent. Eerie. Still.
 
-“Don’t stop me, Grace. If I don’t let her out, she’ll take you too.” 
+I heard footsteps pounding down the hall – Jess. I hugged Win tighter, burying my face in her hair.
 
-Without another word, he slammed his tool into the earth. 
+“Shhh, shh,” I said, my own voice shaking, “it’s okay, daddy’s here. I’m here, I’m with you, I’m here.”
 
-***
+I repeated my litany as the door to Win’s room shuddered in its frame.
 
-The next morning, Grandpa and I sat at the table chewing bacon and eggs. Neither of us had slept.
+“Robert? What’s going on?”
 
-“Grandpa.”
+I could hear Jess on the other side of the door, see the knob rattling. I heard her grunt before she gave three short slamming knocks.
 
-He looked at me with weariness in his eyes. 
+“ROBERT.”
 
-“What…happened last night?”
+Had I closed the door? I moved to open it, breathing hard, when my foot brushed the thing on the floor once more.
 
-He let out a deep sigh, pulled out a worn shoe box from a cabinet.
+I recoiled, feeling bile sluice up my throat even before I laid eyes on the thing. I looked down, expecting to see something rotten and awful, something that should never be in my daughter’s room. I stared, struck dumb and disgusted, down at the lump on the floor.
 
-“See this?” 
+It was, of course, a toy. A new toy, one I’d never seen before – and larger than the others. Its body was lopsided, stitched from mismatched fabric: faded doily webbings, shredded silks, threadbare linens. All of them separate shades of grey, a bouquet of ash. The shape of the thing was uneven, and I couldn’t tell if the fabric was supposed to be a dress or a shirt or a blouse. It looked – half-finished.
 
-He brought out a stack of black and white photos.
+My mind retched the word: *undigested.*
 
-“This is your grandmother, Belle, and me a few years after we were married. And here…” he tapped the face of an adorable boy. “Is your father.”
+The thing had two button eyes, one missing, leaving only a frayed circle of thread. The one that remained, however, was smoke-white and glassy. Staring down at the thing, I almost thought I saw myself reflected in its haze.
 
-In the background of the picture, I noticed a young girl, maybe four years old, perched on a fence, watching everyone with a miserable gaze. 
+“What the hell is GOING ON?!” I heard Jess shout, from the hallway.
 
-“Who’s that?”  
+Hearing her voice, the strain, the horrible rise in pitch at the end, broke me out of my shock. I reached for the door in a rush, turning the knob. Hearing the lock click as I swung it open.
 
-“The Green Girl. She’s the one who’s buried under that tree. She took your father and grandmother. Now, she’s coming for me.”
+Jess was on the other side, her face almost as red as Win’s.
 
-“Why?”  
+“Whathappenedwhathappened,” she said, twice and fast, slurring her words together. She was already stepping in the room, reaching for Win. Taking her from me.
 
-“Because… she’s death.” 
+I reached for her, the same way I’d wanted to reach for the warmth in the kitchen hours ago — but this time she twisted away, her back to me. The box creaked behind her, long and low, a settling groan.
 
-*Death?*
+Like it was breathing.
 
-BOOM. 
+I let Jess take Win from me, my gaze shifting back to the thing on the floor. The cyclopean bundle.
 
-The front door lurched with sudden impact. Grandpa and I swerved our gazes, deep in fear and concentration.
+“What is that baby,” I heard myself say, before I realized I was speaking.
 
-“Didn’t you think it was odd how Grandma died so young? And your father?”
+Win’s face was buried in Jess’s shoulder, and she raised it, her face twisted with anger and confusion.
 
-BOOM.
+“It’s mine,” she said, breathless. “It was in the hallway.”
 
-“This girl lived in the woods. She was there for each family member who passed on.”
+My mouth went dry. “What hallway? What?”
 
-BOOM.
+She didn’t answer – just hugged Jess tighter, her cheek pressing into her mother’s neck.
 
-“My uncle, aunt… When I figured it out, I found her in the woods. Made sure she never came after us again.”
+“Jess, I…”
 
-“You killed a… child?”
+But Jess just looked at me. Something unreadable in her stare. I felt it shrivel me, and suddenly all the menace in the room was gone. I felt empty, confused and dumb.
 
-“She’s no child, Grace. She’s evil. And she’s coming for me…”
+“you’re acting *in-sane*,” Jess hissed.
 
-BOOM. 
+I opened my mouth to reply, but Jess stepped out of the room, barreling down toward the other end of the hallway. Back to our room.
 
-I ran to the couch. Peered out the window to see a hunched figure wearing old pioneer clothes. They were bashing their fists against the door.
- 
-“Someone’s out there!”
+I turned around to glance once more at the toybox before following them. The shadows underneath the chitinous wood were deeper than they should have been in the spilling daylight, pooling and oily at the bottom. I glared at it, waiting for it to open, waiting for it to creak.
 
-“It’s alright, Grace. She only wants me.”
+But there was nothing. Once again, the fucking thing was *still*.
 
-The slamming grew more intense. I retraced my steps to the table.
+\*\*
 
-“Why is she harassing our family?”
+By the time I came downstairs, Jess was in the entryway, kneeling in front of Win and buttoning a dress up the girl’s back – it was nice, almost too nice; floral print and pressed smooth. Win hadn’t worn it since Easter. Win was struggling to try and get the dress off, heavy-salted tears still lying fat and swollen on her face.
 
-“I don’t know, Grace. But it’s been like that, ever since I was a boy. Whatever you do, don’t make eye contact with her.”
+A small overnight bag sat open on the bench, half-filled with Jess’s clothes. The plastic snack bag was next to it, and beside that too were Jess’s toiletries.
 
-BOOM. 
+There was nothing of mine.
 
-The front door caved in under the pressure. 
+Win whined, a pitiful little cry, and slumped down on the entryway wall as I came close. Jess froze, her face locked in a scowl. She watched me from the corner of her eye, standing up slowly.
 
-I closed my eyes, then reopened them.
+“What are you doing?” I asked.
 
-A strange figure stood in the door frame. About four feet tall. Dressed in worn rags. Her skin was as green as a pine tree’s leaves. Long white hair flowed down her back.  
+Jess gesticulated with both of her hands in front of her – an inferred ‘duh’.
 
-“She’s here.”
+“I’m taking her to my parents. Alone.,” she said, her tone already hard.
 
-The Green Girl shuffled toward us across the carpet.
+“Jess –”
 
-I watched in suspense, so scared I could barely breathe. My eyes searched for a weapon, and found… a letter opener. I reached for it —
+“What the hell was that? I mean, she’s shaking, Rob. She’s scared out of her mind.”
 
-“Stop, Grace! This has to happen.”
+“She was in the box,” I said. “Halfway inside.”
 
-I gawked in horror as the Green Girl lurched up to Grandpa, let out a blood-chilling gasp.
+“It’s a *toybox*.” Jess zipped the bag with one sharp pull. “Not a trapdoor. Not some – ”
 
-“Heeeeeeeeeehhhh.”
+“You didn’t see it.” I stepped closer. “The way she was in there. The way she was holding that thing, I mean, it felt disgusting…”
 
-The sound of her breath stung my ears. Grandpa commanded: “Only me! That’s the deal."
+“What felt disgusting?”
 
-The Green Girl grabbed his face with bone-thin hands and held her mouth over his.
+“The toy,” I said, “the…thing she had.”
 
-A sickening sound of rushing wind accompanied her widening mouth. 
+“It’s a toy, Robert. She’s a kid. Kids play. You’re the one turning it into some something, something it isn’t ever going…” She stopped herself, glanced at Win, lowered her voice. “You’re scaring her.”
 
-Grandpa gave a frightened gasp, then collapsed.
+I looked at Win. She stared back, peeking up through her bangs which had spilled loose over her head. Her eyes were shiny and wet, her lip trembling.
 
-“Grandpa!” 
+I wanted to go to her. I wanted to scoop her up into my arms and hold her. I wanted to apologize to her a hundred thousand times with a hundred thousand kisses all over her head. I wanted to take the fear I had put into her, siphon it out, and remove every hard thought flowing through her head.
 
-The Green Girl let out a sickening groan. Limped back to the door.
+I wanted her Daddy to make it all better. But Jess stepped between the two of us, reaching a hand down for Win’s. Our daughter took it, -- standing up and locked eyes with me once more.
 
-“Wait!” 
+“It’s mine,” she said softly, almost a whisper.
 
-The creature looked at me.
+Jess stroked her hair. “I know, honey. We’re just going to go see Grammie and Grandpie for a little while.”
 
-“Why are you doing this?!” 
+But Win was still looking at me, clutching the edges of her dress and pulling it up over her knees. Her voice was steady now:
 
-The Green Girl pointed at the clock hanging above the dining table. Then, pointed at herself, then me. 
+“It’s not for you,” she said.
 
-For the next few seconds, I was too shocked to move. 
+The words slit their way into my mind. I stood still, meeting Win’s gaze. She stared through me. And even then, even in that moment and knowing what was coming, it felt like there was no one else in the entryway but the two of us.
 
-With a final groan, the Green Girl limped out the front door and was gone. 
+Jess stood, sweeping Win close as she opened the door. She picked up our girl with one hand while the other looped though the bags’ handles. A late summer gust rushed in, filling the entryway with hot, bitter warmth. The air wet like breath.
 
-*** 
+“Don’t follow us,” she said. “Just… let us breathe for the day. Take some time and, I don’t know. Relax.”
 
-It’s been two days. I called the sheriff. They investigated everything. I’ve been asked so many questions. 
+I opened my mouth to respond – to try and convince them to stay. To argue, to push back, to tell them I was coming too.
 
-My siblings think I’m crazy. Stu’s the only one who believes me. Why? 
+But Win’s words were still buried in me. I felt so full – of dread, of confusion. Of a vague and helpless anger. It was all enough to make me burst…and yet I felt paralyzed, that I myself was just another fixture of the house – just some unwanted thing left to stand and witness another leaving love.
 
-He says that one night, while he was at Grandpa’s, he heard a woman speaking in one of the rooms.
+And what if Jess was right? What if I was the one making everything this way?
 
-It reminded him of a soothing voice he had once heard as a young boy. A voice that told him the exact date he would die.
+Did I want it to be this way?
 
-And that date wasn’t far off…
+The door shut behind them, the sound echoing through the house. I stayed there in the doorway, watching through the window set into the front door at Jess’s back as she went down the steps, Win’s small head resting on her shoulder, bobbing up and down – her eyes fluttering shut. The sudden warmth dissipated with the door shut, sealing out the sounds of their retreat – the engine starting, the slow backup down our driveway. I watched as our car drifted down the street without a sound. the quiet in the house shifting again – not settling this time but holding its breath.
+
+Glutted with the words Win had whispered.
+
+*It’s not for you.*
+
+\*\*
+
+I don’t know how long I stood in the empty entryway. I lingered longer than I should have, hands in my pockets, staring at Win’s backpack. Jess must have left it in her rush to get out and by the time I noticed it they had been gone for too long. It was hot pink and covered with blue polka-dots. It was also zipped tight. I didn’t know what was inside, so I left it where it was. Because, for several long moments, I thought if I kept looking that maybe I’d hear the car back up again. Hear the door open. Hear her voice calling for me like nothing had happened.
+
+The house felt airless, not empty – not exactly – but suspended. Like every room was holding its breath. But the quiet never went away. It just… waited.
+
+I drifted from room to room, trying to shake my thoughts loose. My eyes skimmed the places no one was—the living room, the kitchen, the hallway to the stairs. The corners where shadows pooled like water.
+
+I kept going, unable to stop, pacing the downstairs in tighter and tighter loops. Circles around Jess and Win. Circles around the toybox. Around the thing I’d seen. Around what I’d done. Each lap pulling the walls closer, each turn drawing me in.
+
+Everywhere felt wrong without Win. Without Jess.
+
+My mind kept replaying what I’d seen in her room, like a broken clip on a loop – the pale cuffs of her pajamas disappearing into the toybox, her little heels spinning over the edge. That lump of cold in her arms.
+
+Except, each time I ran it back, the edges started to shift and blur.
+
+  
+*Maybe she hadn’t fallen all the way in. Maybe she was just leaning over the edge.*
+
+  
+*Maybe the lid didn’t slam — maybe it just fell.*
+
+*Maybe the lid did open easily, maybe it’d just been stuck when I tried, the wet paint sticking with humidity.*
+
+*Maybe she really had found that thing in the hallway, and I’d—*
+
+I sat down hard in one of the kitchen chairs, the breath rushing out of me.
+
+Jess’s voice came back in perfect detail. *You’re scaring her.* It landed heavier this time. Made my skin itch.
+
+Was that what she saw? Not a father keeping his daughter safe, but some paranoid lunatic grabbing his kid and shouting at her about nothing?
+
+I pressed my hands to my face and stayed there. The dark behind my eyelids was safer. But when I opened them, all I could see was Win.
+
+I took out my phone, unlocking it and composed a quick text to Jess:
+
+“Hey. Sorry for earlier. I know I can be a lot sometimes. Hope you and Win are having a good time with your parents.”
+
+And then:
+
+“Love you both.”
+
+The air in the kitchen felt thick, like I couldn’t get enough of it down my throat. My fingers itched for something to do, anything that would stop the circling.
+
+The toys.
+
+I went upstairs and gathered both Milkshake and the new lump doll. I didn’t look at them too closely. I didn’t want to know if they were warm or cold. I just put them all in an old laundry basket, carried it through the back door, and locked them in the garage.
+
+It helped a little. But not enough.
+
+I came back inside, opened my laptop at the kitchen table. The screen lit my face in the stillness, and I tried not to stare at my dim reflection in the monitor. I signed in, minimizing all my work tabs, and opened a new tab. I stared at the empty search bar, not sure what to type.
+
+Then it came to me. I typed: **“60 Adams house history.”**
+
+It was our house address. Nothing came up at first — just realtor blurbs, aerial maps, a few grainy shots of the property from when the last owners had it listed. But there were no photos listed anywhere taken inside the house. None of them showed the nook. None of them showed the toybox.
+
+I tried other searches: *60 Adams accidents.* *60 Adams deaths.* *60 Adams children.*
+
+A few old news clippings turned up, scanned crooked into the county archive. I expanded my search, replacing our address with the name of the town and county. Still, there was mostly nothing. Fundraisers, lost pets, a fire at a gas station that’s been a vape shop for as long as we'd lived here.
+
+I leaned back in my chair, staring at the screen. My reflection met my stare, my eyes tired and too wide. I blinked, looking around the kitchen for the first time. Already it was dusk. I checked my phone, but I didn’t have a single message.
+
+I almost closed the laptop. I almost let myself believe there was nothing to find. That the absence of proof meant I could shut this down and go sit in the living room until Jess came back. Maybe if I couldn’t forgive myself I could at least distract myself enough to forget. Bury myself on the couch in a blanket, order a pizza and maybe pick up some beer from the liquor store down the road – or maybe something stronger. Jess would be back that night, she had to be. At the very latest she would on Sunday. I wouldn’t have long to myself and maybe if I numbed the time I wouldn’t keep feeling this way all night – or all day tomorrow.
+
+God I hoped it wouldn’t be that long.
+
+I looked down at the laptop again, one more time before I shut it off. And that’s when I saw it.
+
+A thumbnail on a page for the *Sevrin Hill Historical Society*, some buried section of their website that hadn’t been updated in years – white background with blue bulleted hyperlinks. I clicked on one of them: “Community Picnic — August 8th, 1987.”
+
+The photo loaded slow, the pixels knitting themselves into shapes. Rows of folding chairs on the lawn in front of an old town hall. People holding paper plates and sweating in the August sun. People that looked like they could be anyone and be anywhere.
+
+And near the bottom edge of the frame, apart from the others – a girl, maybe six years old. Standing alone in the grass. Her expression was unreadable, almost blurred by the sun.
+
+But in her arms, hanging loose against her side, was something long and striped.
+
+I leaned closer to the screen. My hand went to the trackpad, zooming until the image broke into little squares. But it didn’t matter how close I got. I knew the shape.
+
+Milkshake. Or…something that looked exactly like it.
+
+I leaned in closer, squinting, trying to let my mind run over the pixels. Trying to synthesize what I couldn’t define make sense in my mind. It was like I was looking at an old Magic Eye poster – the truth was in there, I just had to relax my focus, let my mind fill in the details.
+
+The more I looked at the thing in the girl’s arms, the more sense it made to me. The thing in the girl’s arms was Milkshake. But the more I looked at the girl…
+
+She was plump, and her face had the grim acceptance of the relentlessly bullied. She was short, the Girl Scout uniform she wore ill-fitted and looked even in the low quality of the image like it needed to be washed. And there was something over her eye. It could have been a trick of the lens or a mote of dust but…the closer I looked, the more I was sure. It was an eyepatch. Medical, white and wide, covering her left eye.
+
+The same eye missing from the doll upstairs. Win’s newest plaything.
+
+I scrolled down to the caption. The words were simple, nothing strange:  
+*Sevrin Hill residents celebrate at the farmer’s market.*
+
+That was all. No note about the snake. No explanation for why she was standing alone, away from the other kids. Not that I really expected there to be one. Still, I felt like I was on to something. The coincidence, the eerie resemblance, was too great.
+
+I sat there a long time, staring at that girl’s pale, unreadable face.
+
+Then it came to me, clicking back to the previous page. I typed the year from the original link on the historical site in my search bar and followed it with “Sevrin Hill girl scouts”.
+
+A few pages popped up, but most of it was irrelevant. Some of the results directed me back to the county’s public records, and so I filtered my search to only show results from there. I clicked on a few dead ends and found more than a few dead links. I was almost out of search results when I got lucky.
+
+Another photo – this one a faded black and white. A line of young girls sat under a mural – the same one I’d seen with Win and Jess downtown while we’d walked over for dinner a little while ago: fields of sunflowers of varying sizes and skill in composition. The girls were all wearing smocks, and some of them had paint smudged around their noses and eyes. And there, at the very end and almost shoved out of frame, was the girl from the farmer’s market photo.
+
+A slinking, ringed serpent wound around her shoulder.
+
+Below, the caption read “Troop 217. From left to right: Lenore Adams, Cary Ann Clark, Stephanie Cole, Marissa Trailor, and June Howard.”
+
+June Howard. That was the girl’s name.
+
+I copied and pasted it into the search bar, my heart beating fast. I made my search “June Howard Sevrin Hill”. I hesitated for a moment and then added “disappeared” before jamming the enter key.
+
+I clicked the top result.  
+It was a scan of the Sevrin Hill Gazette from 1992, the grain ghosted into the page like it was printed on ancient skin. I leaned closer to the screen, squinting at the headline:
+
+**LOCAL GIRL STILL MISSING**
+
+The article was barely three paragraphs. An afterthought between a notice about a pancake breakfast and an ad for lawnmower repair. I skimmed it, breathing faster and faster with each line.
+
+*Authorities continue to search for 11-year-old June Howard, missing since the evening of September 2…last seen walking home from a friend’s house in the Adams Street area, near Hollow Hill Road…quiet and shy…missing her left eye, often wears a white medical patch…no new leads.*
+
+It was the photo that stopped me.
+
+She stood alone, framed from the knees up, her expression flat in a way only a kid who’s been through too much can manage. The white eyepatch was there, stark against her skin. In one hand was a thick hardcover book, the other a plastic terrarium. Curled up inside was a small, ringed snake. But I wasn’t looking at her face or the snake.
+
+Behind her was a white house with a sharply pitched roof and a narrow front porch. One corner sagged, the same way ours did. The windows were set too close together. The siding was split under the eaves in a way I knew by touch.
+
+I didn’t have to check the caption. I didn’t have to count the shingles or match the railings.
+
+It was this house.
+
+*Our* house.
+
+I sat there staring at the screen, my hands resting uselessly on either side of the keyboard. The girl’s face filled my mind — the blunt, guarded expression, the white medical patch swallowing one eye. The same side missing from the doll upstairs.
+
+June Howard.
+
+The name kept spiraling in my mind, an undercurrent to every thought.
+
+I looked again at the old photographs – the farmer’s market, the troop mural. Both times, the snake was there, draped around her like a stuffed animal for any other kind of child. Milkshake, or something so close it didn’t matter.
+
+Maybe there was a practical explanation. Some eccentric neighbor or overzealous parent with a sewing kit and too much time on their hands, making toys to match a pet snake for the lonely girl down the street. A gift that, by some coincidence, had outlived her and ended up in our house years later. That could happen, I told myself. Small towns hold on to things. People die, boxes get donated, junk ends up in attics and thrift stores and – sometimes – in the hands of children who don’t know the history behind them.
+
+But the more I tried to settle into that version, the less it fit. It was too neat. Too bloodless. I could feel it in the pit of me, in that place Jess would call paranoia but which I knew was something else entirely. A sharper kind of knowing. There was a ring to it – the resonance of truth vibrating inside my skull – that this wasn’t coincidence, and it wasn’t harmless. I needed to trust that, even if she wouldn’t. Especially if she wouldn’t.
+
+My eyes drifted up, toward the ceiling. The attic was the one part of this house we hadn’t seen when we toured it. After Jess and I had torn down the boards during our first week here, we’d swept out the splinters and insulation and then started sliding things up there we didn’t need right away. Winter coats. Boxes of old books. A few sealed cartons left in the coat closet from the previous owners that I’d never gotten around to opening. The sealed boxes…
+
+Now, the thought of those forgotten remnants made my skin prickle. Maybe there was something left behind. Something of the one-eyed girl, something of June’s. And if there was, I wanted to see it for myself.
+
+\*\*
+
+I climbed slowly, my palms sticking to the rails. The attic pressed in around me as soon as my head cleared the opening. It was the same as I remembered: the pitched roof – a tent of dark beams, the scattered floorboards over insulation puffing out from between joists, and the slow, oppressive heat curling around me. My breath felt heavy in it.
+
+A few of our own boxes sat stacked near the attic stairs, labeled in Jess’s neat handwriting. Beyond them, the cartons from the previous owners slouched against one wall, the tape yellow and curling at the edges. For a second, I just crouched there, staring, the hair on my forearms rising for no reason I could name.
+
+I started toward them, stepping lightly along the narrow plywood path laid to keep from crushing the insulation. The floor flexed under my weight. I knelt at the first box, traced the faded writing scrawled across the cardboard – indecipherable – and popped the top.
+
+Inside was a mess of paperbacks, most of them damp-soft at the edges, and a few ceramic figurines packed in yellowed newspaper. I shifted them aside, looking for something… more. Something that would connect.
+
+Beneath the books and brittle newsprint was a layer of toys – cheap plastic farm animals, a jumble of hair clips, and a pair of jelly sandals gone cloudy with age. I dug deeper, my fingers catching on the cracked edge of a photo frame. Inside, faded almost to nothing, was a picture I recognized instantly—two little girls in early-90’s puffers, cheeks red from the cold, their parents standing behind them. Candace and Marie. The worn twin of the photo Jess and I had found in the downstairs coat closet. We’d found other traces of them when we first moved in – marker scribbles on the upstairs baseboards, a pair of children’s spades behind the shed, a few other photographs tucked in odd places. Little artifacts of a family’s life left behind and outgrown like discarded cicada shells.
+
+I felt the familiar sag of disappointment as I set the frame aside. No snake. No eyepatch. No June. Just more pieces of someone else’s history.
+
+But as my hand left the frame, something made me pause. I picked it back up, this time looking harder at the girls’ faces. One of them – Marie, I thought – had the same pale hair and glass-bright eyes I remembered from the doll Win had in her hands the night I’d carried her down from her room. Not just blue eyes, but *those* blue eyes, the same clear, almost unnatural shade, crystalline frost. I stared at her smile, wide and fixed, and felt my skin prickle.
+
+The connection was loose, frayed—but it was there. The doll Win had been holding the night I’d taken her from her room. It was someone. One of these girls.
+
+I lowered the frame into my lap, holding it there longer than I meant to, the attic’s still heat settling heavy over me. Enveloping me. Licking at me.
+
+And then I heard it.
+
+Not a creak, not the dry flex of wood, but a low *groan* from below. It wasn’t the water softener, the boards shifting in the house. It wasn’t any appliance or outer wind.
+
+It was squelching. Luridly alive, an unmuffled groan that I felt in my bones. Deeper than a creak, wetter than wood should sound. A long, deliberate sound – something working its jaw after a slow meal.
+
+It came again – shorter this time, clipped, a swallowed chuckle. The sound reminded me of something I’d heard before, and it only took a moment for me to put it together. I felt sick, unbalanced, even as it came to me.
+
+It sounded like the toybox. The opening of its jaws. The exaggerated sibling to its taunting creaking moan.
+
+I knew I should go downstairs, get my hammer, smash the fucking thing apart and take the splintered remains outside to burn them. But instead, I found myself turning toward the far side of the attic, toward the sound’s echo in my head. Hesitating only for a moment, I started toward the back end of the attic, the section we hadn’t used, running my hand along the bare wood of the slanted attic walls for support as the floorboarded path narrowed.
+
+That’s when my hand brushed a section of wall that felt…off. Too smooth.
+
+I turned my head, swaying slightly on my feet—the boards here were thinner, narrower, uneven in their fit. Their grain didn’t match the rest of the attic—darker, almost bruised. I thumbed on my phone’s flashlight, already bracing for something I didn’t want to see.
+
+The beam caught on a stretch of boards slick with a black, oily residue, as if something deep in the wall had burst and seeped slow for years. The stain seemed to breathe faintly under the light, as if there were pressure behind it. When I pulled my hand away, there was a faint film webbing between my fingers, sticky and metallic in the air and on my tongue when I reflexively swallowed.
+
+I pushed the first board. It flexed, giving before tearing away with a damp snap. I tossed it down into the insulation and reached for another. Each one peeled off softer, wetter, colder. The dampness seemed to cling, not just to my hands but under my nails, sinking in. By the time I’d cleared the last of them, I was shivering.
+
+Beneath the boards was not more wood, but stone. Black stone – slick and glistening, reflecting the light in the same way the toybox lid did, a shifting sheen that made me think of the way an eye moves under a lid. At the center of this surface was an opening – low, jagged, puckered at the edges. A split seam in the wall, raw and uneven, as if it had grown out of the house.
+
+I crouched low, the rafters pressing down on me, and angled the light inside. The corridor beyond was paved with uneven stones mortared with something pale and fibrous. The walls pressed in tight at odd angles – as if they had shifted and locked into place centuries apart. The cold that rolled out was a deep cold, bloodless and still.
+
+It wasn’t just darkness in there. It had weight. It had depth that didn’t belong in the shape of this house –  the way a body can feel its wounds deeper than the shallow scar tissue.
+
+I dropped to my hands and knees, breath loud in my ears. I stuck my head inside, the stone damp and cold against my arms, angling the light forward. The beam bled into the dark and disappeared.
+
+Somewhere ahead, in that thin black channel, something shifted. Soft. Deliberate.
+
+My throat tightened. I jerked back, scraping my shoulder against the frame.
+
+For a moment I stayed there, crouched, my breath ragged, phone still aimed at the hole. Waiting for the sound again. Waiting for…something.
+
+But the corridor was still.
+
+I stood, my knees popping, and backed away until my spine pressed against the far wall, nearly falling into a pocket of insulation as I did. The hole waited in the beam of my light—patient. Expectant.
+
+I killed the flashlight. The dark rushed in.
+
+Then I turned, forcing my way down the attic stairs, sliding the plywood cover back behind me.
+
+I didn’t look up again – not once. I went downstairs, flung open the front door, and walked to the end of the driveway. I sat on the curb, cross‑legged.
+
+I looked down at my hands and watched them shake. Black filth under my fingernails. I breathed, hard and fast, trying to calm myself down.
+
+“Headlights, baby, c’mon headlights please,” I repeated, I prayed, aloud to the quiet of the evening, “c’mon, c’mon, come home baby pleaaase…”
+
+I sobbed, finally letting my head drop into my hands. I wanted my girls, I wanted home the way it was even just a day ago. That I’d take, I’d take anything over what I had seen. What I’d *felt*.
+
+But cutting under even that? I had a different kind of dread. A dread that resounded in me and, even now, grew louder and louder. Echoing, repeating, demanding I feel it.
+
+It was this – Jess wouldn’t believe me. Even after everything, even after dragging her up there to show her, I had a sinking knowing at the very center of me that all of this would be another example of breaking from them. From their reality.
+
+No, Jess may not believe me. And I would spare myself the trial of getting her to, that I knew now. Because whatever the fuck was going on in this house – with the toys, the toybox, the horrible, lonely way in the attic – I would have to deal with it and spare them of the grief. Even if Jess never believes me, I know what I heard.
+
+I would fix this. I would fix this for our family, for my girls.
