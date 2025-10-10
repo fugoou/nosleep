@@ -1,498 +1,528 @@
-# I Just Found A New Toy In My Daughter's Room and I Don't Remember Putting It There - Part III
-I didn’t sleep that night.
+# A Weekend In Appalachia
+**Who doesn't like a good road trip right? The sights, the people, the experience as a whole is just amazing, or maybe that's just me.**
 
-After I was sure Win was out, I crept into the closet – making sure not to wake up Jess. My heart was pounding, my breathing hard and fast, and I didn’t want to scare her.
+**I've dedicated the last month to driving across the country. I'm luckily able to, as my job allows me to work from anywhere that has an internet connection, cyber security to be exact. I started in Florida and worked my way through the southeast region of the U.S. After moving through both of the Carolinas I decided to swing by Tennessee while I was around.** 
 
-I was scared enough for the both of us.
+**And I've got to say, the place was beautiful, the large metropolitan areas meshing with the deep forest was an amazing experience to be a part of. However it wasn't always good, for example, in some of the more densely forested areas I found it difficult to find coffee shops and other places with free wifi to work at.**
 
-We had some of our things stacked in boxes toward the back of the closet – old, unnecessary things consolidated to a few boxes. I had meant to take them up to the attic, that new shared and secret space, but just hadn’t gotten around to it yet. I was glad I hadn’t because the thought of creeping up those narrow stairs into the still, hot dark up there after what had just happened seemed unbearable.
+**Luckily however, GPS exists and it's usually not too long until I find one, and if I can't then I'll find somewhere where I can rent out for the night while I work. Well, one day after having very bad luck finding any establishments with free Wi-Fi so deep in the mountains,** 
 
-One of the boxes had a bunch of Win’s baby things. Old bottles, a well-used maternity pillow, some of Win’s baby toys she had moved on from – all of them were stuffed into a box labeled ‘Someday’. We’d been saving them, of course, with the thought that maybe we’d need them again; *someday*. A sweet wish we were banking on for the future.
+**I got very lucky and was able to find a very nice 3 bedroom Airbnb cabin in the mountains for just 50$ a night. After confirming payment for one night, I head to the area where the house is at.** 
 
-I ripped the tape off the top of the box, a little too loud. I winced, looking back through the closet to the edge of the bed, watching Jess’s feet in case she stirred and kicked. But she was still, and even from the insulated quiet of the closet I could hear her deep, rhythmic breathing.
+**As I'm driving to the cabin, I can't help but feel uneasy, this place is really deep into the forest, I must've been driving for at least 30 minutes straight just going deeper into the forested mountain range, all the while the road keeps thinning and lowering in quality all the way.** 
 
-I rummaged through the box, my hands clumsy in the dark – forgotten shapes playing against my imagination. I knew what I was looking for, and after some digging my fingers brushed against a length of cord. A hard, plastic shape. I pulled it all free.
+**What had started as a strong, well-made two-lane asphalt road eventually turned into a decrepit, one-lane, dirt road that barely even had a clear path, mostly thanks to the massive trees on either side accompanied by the brush occasionally having grown on the road.** 
 
-It was Win’s baby monitor. A small black camera, the power chord snaking around the aperture. I stuffed it into the pocket of my pajama pants, walking carefully around the spots in the floor I knew would creak and back out of the closet.
+**“Why in the hell would someone live this far out?” I ask myself, frustrated with the condition of the area. Even this far into the road trip I haven't gone down a road this bad yet. First time for everything, I guess.**
 
-As I stood in the doorway, I heard it.
 
-A long, slow *creeaaak.*
 
-This wasn’t the timid, hesitant sound I’d heard before. This was drawn-out, deliberate – ending with a low, hollow *thunk,* like the lid meant to shut itself. Like it meant to be heard.
+**Eventually after a few minutes of driving down the run-down road, if you can call it that, and I finally see it, the cabin. And I won't lie, this place was definitely worth the drive. It looked to be about 2000 square feet, made of very fine, finished wood logs and gorgeous windows giving an amazing look into the forest. Walking into the house I'm surprised with how homey it looks.** 
 
-I froze. The shape of the second-floor unspooled in my mind: the hall stretching to Win’s room, the nook, the box in the corner.
+**The first room is the living room lit by a familiar and warming orange glow, looking straight past the living room is the kitchen, sizable but not large, and nothing really notable about it. The living room however, had a very elevated roof and a fireplace to the right wall, A few taxidermied animal heads lay about it, as well as the skull of an animal I don't think I've ever seen, looking left of the living room, I see a sectioned couch with a very large mounted tv on a stand on the other side of the room.**
 
-*creeaaak.* *thunk.*
+**Looking left I see the rest of the living room which wasn't really anything special, just a dining table and a few other pieces of furniture you'd expect to see in any house.**
 
-Again – measured, almost playful.
+**Past the living room to the left was a sizable hallway, which is where my host told me the bathrooms and master bedroom were. I walked down the hall to the door at the very end, which led to the master bedroom. And again upon walking in I'm blown away by the interior. It had a huge and very soft bed with enough pillows to smother a giant, and in front of the bed on the wall was another huge plasma TV. walking to the right I enter the bathroom and of course its lavish, large granite countertops and a marble bathtub as well as a huge walk-in shower. “There's no way this place is just 50$ a night.” I say to myself, blown away by the sheer luxury of a house so far away from civilization.** 
 
-My pulse skittered. I thought of her jaw clicking last night, her wide, glassy eyes. The cold tooth in my palm. I felt my forehead break out in sweat at the thought of it – that frigid pebble of a molar.  
+**I sit my stuff down and head to the back door, just past the kitchen to get a look at the backyard.** 
 
-I walked down the hall as silently as the carpet allowed, feeling the darkness lean toward me. Lick at me. The creaking stopped as I reached her door.
+**and it’s even better than the front, there is a sizable pond that drains to a large stream flowing through the mountain. And of course, a well kept lawn all the way up until the tree line about 50 feet away. I stand there for a moment, impressed by the amazing area I've found myself in. It almost feels too good to be true.**
 
-I eased it open.
+**Walking back inside the lavish cabin I go to the room to get my laptop so I can start working, and luckily, despite the GPS shenanigans, this place does have a stable internet connection. And so, I begin my work.**
 
-The room glowed in the faint, amber haze of her nightlight. Win was a bundled shape on the bed, her face turned toward the wall. The toybox sat still and shut within the nook, as if it hadn’t moved in years.
 
-But I knew better. I was learning to be better.
 
-I pulled the monitor from my pocket, unwinding the cord. I worked by memory, crouching in the far corner of the room – away from the bed, away from the box. *Out of sight*, my mind whispered, *out of sight*.
+**The hours fly by, and I don't even realize how long I've been working until my app for work closes abruptly. I look at the wifi icon at the bottom of my laptop and sure enough, it's dark, indicating my wifi connection has stopped working for some odd reason. glancing at the time I see it's 8 PM, looking out of the living room window I also see the sun beginning to lower in the sky.** 
 
-I found an outlet and jammed the cord in. The red light blinked on. I angled the lens toward both the toybox and the bed, making sure they fit together in the frame. Then – standing, holding my breath – I backed out of the room.
+**But that isn't my biggest concern. My boss told me if I'm not done with this project by next week I won't hold my position much longer, so getting this Wi-Fi back on is my biggest focus.**
 
-On the other side, back in safer dark of our room, I took out my phone. I downloaded the monitoring app and logged back into our account. It took a moment for the camera to start streaming live to me but when it did…
+**Walking outside with my phone flashlight, I go around the house looking for cables that might've gotten unhooked or unplugged in some way. Eventually I find the internet cable running down the side of the house and into the ground, but I'm dumbstruck as I realize the cable and the wall it's running along has massive and deep claw-looking incisions on it. “Damnit, you live in the forest and don’t have protected lines!?” I yell out in frustration.**
 
-I saw Win, still and tucked away in her blanket. I saw the room, the night vision switching on as soon as the camera felt how dark the room was. I saw the nook -- the dark little threshold in the far wall.
+ **knowing that there's no way I can finish my work like this, I send a message to the host that I'm leaving early and of course let him know something shredded his cables.**
 
-And inside, the edge of the toybox.
+**But when I get to the front door, I see there’s pieces of paper hanging on it, at the top above a page full of writing is bold underlined letters that read; “***VIEW ASAP***”** 
 
-I settled next to Jess as softly as I could, as careful as the bed springs as I was of the floorboards, rolling over on my side, hugging my phone close to me. I checked the app every few minutes like I was pressing on a bruise to make sure it still hurt. My little portal into Win’s room, a window to peek through. The toybox was still, a window to peek through. Static shimmered across the shadowed wood, making it seem alive, *squirming*.
+**Taking the curious looking papers off the door, I take it inside and begin to read it.**
 
-And there, eyes wide in the dark, I waited. I watched.
 
-\*\*
 
-“What are you doing?”
+*To whomever is reading, I am sorry for what you are going to go through these next 48 hours, as it is likely you will not be alive by the end of them. However, if you read this carefully and take it seriously, you might make it out of this alive, so keep reading and TAKE.THIS.SERIOUS.*
 
-I jolted, half-asleep, spilling cold coffee over the edge of the mug. I was sitting at the kitchen table, hunched forward in my seat. My phone in my other hand, close to my face.
 
-Too close, I guessed, from the way Jess was looking at me.
 
-“Hello?” she asked. Her arms were crossed in front of her, and she nodded her head toward my phone. “What’s that?”
+*This house was built for people like you, unsuspecting travelers, to be part of a game. Not a game like the ones you see on TV. You are now a new toy for an ancient evil. No matter how skeptical or superstitious that sounds, it's the truth. Many years ago, miners uncovered something deep in the mountainside they never should have, just a couple miles from where you are now. Every year it demands someone to take part in its demented games, and if they survive 48 hours, they get to live free, but in the past 6 years nobody has survived and I doubt you will be any different. This thing is good at what it does.*
 
-“Just work,” I said, sliding my hand and the phone with it under the edge of the table and into my lap. I’d been checking the feed since dawn, over and over, and I’d had to have my phone plugged in ever since I got up out of our bed a few hours to charge. I brought the mug to my lips, taking a sip. Wincing at the flat, cold flavor.
 
-“Yeah,” Jess said, turning around. She was portioning snacks – carrots and apple slices and yogurt pouches. A juicebox.
 
-I frowned.
+*But there is hope, there are rules you can follow that will greatly increase the chances of you surviving, these rules are a major part of whether or not you are still alive by the end of the next two days.* 
 
-“What are *you* doing?” I asked.
 
-Jess didn’t turn around.
 
-“Packing a bag,” she said, stuffing the goods into the plastic grocery bag.
+*Now this entity is clever, and likes to play with its food. It will likely attempt to break your mental before ever physically harming you. However,  its highly unpredictable nature makes it impossible to know its intention, it is likely it will do something neither you or I can plan for so always be on your toes.*
 
-“Yeah, I can see that,” I said, sitting up a little in my chair, a dull pain settling in my lower back, “but why?”
 
-Jess dropped her hands on the counter. I saw her shoulders slump, saw her head roll back just the barest few inches. Inches enough for me. I felt my heart kick up in my chest.
 
-“For Mom’s?” she said, half-turning her head to me. I could see the side of her eye, her lips drawn tight.
+*Now that you know the entity and the situation, here are the rules for you.*
 
-“For Mom’s,” I repeated, closing my eyes.
 
-Of course. Jess had told me last week we’d be going to see her parents this weekend. They lived two hours away, they were well off in their retirement, and they spoiled Win at every chance they got. The thought of her coming home with some fresh toys, something new and good? It was a relief, it was a balm to the unease throbbing in the center of me.
 
-“I’m sorry,” I said again after a moment, opening my eyes again – a slow struggle, “I know I’ve been…”
+1. *Do not go outside after dark unless you have to, and be alert when it is,* *this is when it is most aggressive and active.*
 
-“We’re leaving in an hour,” Jess said, grabbing the bag. Cinching it shut and turning toward me.
 
-I met her eyes. I tried to smile. Wondering, idly, if I looked as sick as I felt.
 
-Jess softened. She didn’t return the smile, not quite. But her body relaxed, her free hand easing the neck of her bathrobe. Rubbing her collarbones – drifting tickling fingers along their ridges. It was a small gesture of self-comfort, automatic, and one I knew well. In that moment I wanted so very badly to stand up, cross the distance between us in the kitchen, and wrap my hands around her waist – to take her hand, hug her close, and whisper how much I loved her right into the dip of her shoulders. To wish in her well.
+1. *Prioritize lights, it thrives in the dark, if the power goes out at some point you need to go outside to the backyard and get them back on via* *resetting the Powerbox just past the treeline.* *If the Powerbox fails to reset, hide somewhere in the house and pray it doesn't know where you're at.*
 
-I blinked, my eyes suddenly watering. Jess smiled, and this time I’m sure what she saw reflected back on my face was genuine. It was the real chord of our love, thrumming through us – what brought us together, what made Win, what made sharing this life and this house so beautiful.
 
-A secret, smiling note between us that – in the bare seconds of that moment – felt like it could fill the house. One that could amplify all of the light of everything good we had here and push back the shadows.
 
-I stayed at the kitchen table longer than I needed to, just watching her move. The soft hum of the fridge, the faint shift of the house above us – like something settling deeper into place. Her presence felt… steady. It was something I could hold onto.
+1. *Barricade the windows. The windows are the easiest place of entry and they won't protect you for even a second once it arrives. There are supplies in the basement for you,* *open the trapdoor in the master bedroom closet behind the suitcases.*
 
-“Want to get the girl?” Jess said, walking by me and pausing where I sat. Laying her hand on my shoulder. Squeezing once. It felt like home should.
 
-I wiped my eyes, nodding. I heard Jess walk on behind me – out the kitchen and up the stairs. When I was sure she was gone, I thumbed shut the close button on my phone. I stood up, stretching, and tried to keep that lingering moment with me.
 
-Then, with a sigh that turned into a shaking yawn, I turned around myself and started up the stairs. Toward Win’s room.
+1. *10PM-12PM are the only two hours each day where it will not attack you. I highly suggest you use these hours for sleep.*
 
-\*\*
 
-I walked past our room, smiling to myself as I heard Jess humming deeper inside as she got dressed. The sun was up and full as I came to Win’s door – streaming through the window upstairs, washing the still-bare walls in warm gold. Win’s door was closed, Win’s door was closed – a habit she picked up after potty training; she always closed the door on the way back into her room if she had to get up in the middle of the night for some reason. I reached for the handle and pressed my ear to the wood, listening for the sounds of my girl sleeping.
 
-Nothing.
+1. *It will come for you after 2-3 hours of you reading this,* *prepare as soon as possible.*
 
-I eased the door open.
 
-Win’s bed was empty. Blankets a messy coil at the foot, pillow almost bare.
 
-Except for Milkshake. Except for *fucking* Milkshake.
+1. *Lock the doors but do not barricade yourself inside, the doors will hold and you may need to go on foot, although if you do your pretty much already dead, you can't outrun this thing in its own backyard.* 
 
-The room didn’t have any of the warmth from the outside hall. It felt… hollow. Empty.
 
-I took a slow step inside, shutting the door again, my eyes sweeping the room. I didn’t see Win’s new doll anywhere – that one didn’t have a name yet and I was glad of it. Hoping she’d forget about it, hoping she wouldn’t latch on to it like she had that ashen snake. It would be so much easier to take that way – to get rid of.
 
-*creeaaak*
-
-My gaze shot to the nook. The toybox was open, its black lid angled back.
-
-For a moment, I didn’t understand what I was seeing—two small legs, pajama cuffs bunched at the ankle, feet hooked over the edge. Half my daughter’s body – inside the gaping mouth of that shadow thing. The rest of her vanished inside.
-
-“Win.” My voice came out flat, too quiet.
-
-No answer.
-
-I dashed across the room and grabbed her around the waist. She twisted in my arms, immediately struggling, small hands clutching something to her chest. I gasped, surprised, and tried to keep my grip on her.
-
-“Let go!” she shrieked, writhing. “LET GO.”
-
-“Win, stop. STOP,” I said, finding myself screaming as I yanked her back and out of the nook. I felt what she was holding on to pressing against me, a lump of cold and wet. It was repulsive, and in the dreamy scramble of the moment the first thought that lit up my mind was that it was dead, that it was a dead thing Win had and she was squeezing it so tight against herself.
-
-“Drop it baby,” I said, my mouth going dry, “drop it now, what…what is that?”
-
-Win’s eyes shot to mine. Her face was flushed, eyes bright. She wailed, her arms going limp as she started to cry, sloping against my shoulder. I held her closer to me, an entirely different sting of tears welling in my eyes.
-
-Win dropped the thing. I felt it land on my bare feet, and I gasped. And, I hate myself very much for admitting this – but my first reaction was to drop Win, after feeling the way that frigid lump felt against the tops of my bare feet. It was lizard instinct, the kind that knows to run when you see a shadow creeping up behind you out of the corner of your eye.
-
-But Dad instincts won. I squeezed Win tight, stepping around the thing and away from the nook. 
-
-The toybox lid slammed shut.
-
-I moaned. My heart was throbbing, my guts wrung. Win held on tight to me, pressing her face against me, her wails rising as I spun around to look at the box.
-
-It was silent. Eerie. Still.
-
-I heard footsteps pounding down the hall – Jess. I hugged Win tighter, burying my face in her hair.
-
-“Shhh, shh,” I said, my own voice shaking, “it’s okay, daddy’s here. I’m here, I’m with you, I’m here.”
-
-I repeated my litany as the door to Win’s room shuddered in its frame.
-
-“Robert? What’s going on?”
-
-I could hear Jess on the other side of the door, see the knob rattling. I heard her grunt before she gave three short slamming knocks.
-
-“ROBERT.”
-
-Had I closed the door? I moved to open it, breathing hard, when my foot brushed the thing on the floor once more.
-
-I recoiled, feeling bile sluice up my throat even before I laid eyes on the thing. I looked down, expecting to see something rotten and awful, something that should never be in my daughter’s room. I stared, struck dumb and disgusted, down at the lump on the floor.
-
-It was, of course, a toy. A new toy, one I’d never seen before – and larger than the others. Its body was lopsided, stitched from mismatched fabric: faded doily webbings, shredded silks, threadbare linens. All of them separate shades of grey, a bouquet of ash. The shape of the thing was uneven, and I couldn’t tell if the fabric was supposed to be a dress or a shirt or a blouse. It looked – half-finished.
-
-My mind retched the word: *undigested.*
-
-The thing had two button eyes, one missing, leaving only a frayed circle of thread. The one that remained, however, was smoke-white and glassy. Staring down at the thing, I almost thought I saw myself reflected in its haze.
-
-“What the hell is GOING ON?!” I heard Jess shout, from the hallway.
-
-Hearing her voice, the strain, the horrible rise in pitch at the end, broke me out of my shock. I reached for the door in a rush, turning the knob. Hearing the lock click as I swung it open.
-
-Jess was on the other side, her face almost as red as Win’s.
-
-“Whathappenedwhathappened,” she said, twice and fast, slurring her words together. She was already stepping in the room, reaching for Win. Taking her from me.
-
-I reached for her, the same way I’d wanted to reach for the warmth in the kitchen hours ago — but this time she twisted away, her back to me. The box creaked behind her, long and low, a settling groan.
-
-Like it was breathing.
-
-I let Jess take Win from me, my gaze shifting back to the thing on the floor. The cyclopean bundle.
-
-“What is that baby,” I heard myself say, before I realized I was speaking.
-
-Win’s face was buried in Jess’s shoulder, and she raised it, her face twisted with anger and confusion.
-
-“It’s mine,” she said, breathless. “It was in the hallway.”
-
-My mouth went dry. “What hallway? What?”
-
-She didn’t answer – just hugged Jess tighter, her cheek pressing into her mother’s neck.
-
-“Jess, I…”
-
-But Jess just looked at me. Something unreadable in her stare. I felt it shrivel me, and suddenly all the menace in the room was gone. I felt empty, confused and dumb.
-
-“you’re acting *in-sane*,” Jess hissed.
-
-I opened my mouth to reply, but Jess stepped out of the room, barreling down toward the other end of the hallway. Back to our room.
-
-I turned around to glance once more at the toybox before following them. The shadows underneath the chitinous wood were deeper than they should have been in the spilling daylight, pooling and oily at the bottom. I glared at it, waiting for it to open, waiting for it to creak.
-
-But there was nothing. Once again, the fucking thing was *still*.
-
-\*\*
-
-By the time I came downstairs, Jess was in the entryway, kneeling in front of Win and buttoning a dress up the girl’s back – it was nice, almost too nice; floral print and pressed smooth. Win hadn’t worn it since Easter. Win was struggling to try and get the dress off, heavy-salted tears still lying fat and swollen on her face.
-
-A small overnight bag sat open on the bench, half-filled with Jess’s clothes. The plastic snack bag was next to it, and beside that too were Jess’s toiletries.
-
-There was nothing of mine.
-
-Win whined, a pitiful little cry, and slumped down on the entryway wall as I came close. Jess froze, her face locked in a scowl. She watched me from the corner of her eye, standing up slowly.
-
-“What are you doing?” I asked.
-
-Jess gesticulated with both of her hands in front of her – an inferred ‘duh’.
-
-“I’m taking her to my parents. Alone.,” she said, her tone already hard.
-
-“Jess –”
-
-“What the hell was that? I mean, she’s shaking, Rob. She’s scared out of her mind.”
-
-“She was in the box,” I said. “Halfway inside.”
-
-“It’s a *toybox*.” Jess zipped the bag with one sharp pull. “Not a trapdoor. Not some – ”
-
-“You didn’t see it.” I stepped closer. “The way she was in there. The way she was holding that thing, I mean, it felt disgusting…”
-
-“What felt disgusting?”
-
-“The toy,” I said, “the…thing she had.”
-
-“It’s a toy, Robert. She’s a kid. Kids play. You’re the one turning it into some something, something it isn’t ever going…” She stopped herself, glanced at Win, lowered her voice. “You’re scaring her.”
-
-I looked at Win. She stared back, peeking up through her bangs which had spilled loose over her head. Her eyes were shiny and wet, her lip trembling.
-
-I wanted to go to her. I wanted to scoop her up into my arms and hold her. I wanted to apologize to her a hundred thousand times with a hundred thousand kisses all over her head. I wanted to take the fear I had put into her, siphon it out, and remove every hard thought flowing through her head.
-
-I wanted her Daddy to make it all better. But Jess stepped between the two of us, reaching a hand down for Win’s. Our daughter took it, -- standing up and locked eyes with me once more.
-
-“It’s mine,” she said softly, almost a whisper.
-
-Jess stroked her hair. “I know, honey. We’re just going to go see Grammie and Grandpie for a little while.”
-
-But Win was still looking at me, clutching the edges of her dress and pulling it up over her knees. Her voice was steady now:
-
-“It’s not for you,” she said.
-
-The words slit their way into my mind. I stood still, meeting Win’s gaze. She stared through me. And even then, even in that moment and knowing what was coming, it felt like there was no one else in the entryway but the two of us.
-
-Jess stood, sweeping Win close as she opened the door. She picked up our girl with one hand while the other looped though the bags’ handles. A late summer gust rushed in, filling the entryway with hot, bitter warmth. The air wet like breath.
-
-“Don’t follow us,” she said. “Just… let us breathe for the day. Take some time and, I don’t know. Relax.”
-
-I opened my mouth to respond – to try and convince them to stay. To argue, to push back, to tell them I was coming too.
-
-But Win’s words were still buried in me. I felt so full – of dread, of confusion. Of a vague and helpless anger. It was all enough to make me burst…and yet I felt paralyzed, that I myself was just another fixture of the house – just some unwanted thing left to stand and witness another leaving love.
-
-And what if Jess was right? What if I was the one making everything this way?
-
-Did I want it to be this way?
-
-The door shut behind them, the sound echoing through the house. I stayed there in the doorway, watching through the window set into the front door at Jess’s back as she went down the steps, Win’s small head resting on her shoulder, bobbing up and down – her eyes fluttering shut. The sudden warmth dissipated with the door shut, sealing out the sounds of their retreat – the engine starting, the slow backup down our driveway. I watched as our car drifted down the street without a sound. the quiet in the house shifting again – not settling this time but holding its breath.
-
-Glutted with the words Win had whispered.
-
-*It’s not for you.*
-
-\*\*
-
-I don’t know how long I stood in the empty entryway. I lingered longer than I should have, hands in my pockets, staring at Win’s backpack. Jess must have left it in her rush to get out and by the time I noticed it they had been gone for too long. It was hot pink and covered with blue polka-dots. It was also zipped tight. I didn’t know what was inside, so I left it where it was. Because, for several long moments, I thought if I kept looking that maybe I’d hear the car back up again. Hear the door open. Hear her voice calling for me like nothing had happened.
-
-The house felt airless, not empty – not exactly – but suspended. Like every room was holding its breath. But the quiet never went away. It just… waited.
-
-I drifted from room to room, trying to shake my thoughts loose. My eyes skimmed the places no one was—the living room, the kitchen, the hallway to the stairs. The corners where shadows pooled like water.
-
-I kept going, unable to stop, pacing the downstairs in tighter and tighter loops. Circles around Jess and Win. Circles around the toybox. Around the thing I’d seen. Around what I’d done. Each lap pulling the walls closer, each turn drawing me in.
-
-Everywhere felt wrong without Win. Without Jess.
-
-My mind kept replaying what I’d seen in her room, like a broken clip on a loop – the pale cuffs of her pajamas disappearing into the toybox, her little heels spinning over the edge. That lump of cold in her arms.
-
-Except, each time I ran it back, the edges started to shift and blur.
+*Again, I'm sorry, and good luck.*
 
   
-*Maybe she hadn’t fallen all the way in. Maybe she was just leaning over the edge.*
 
-  
-*Maybe the lid didn’t slam — maybe it just fell.*
 
-*Maybe the lid did open easily, maybe it’d just been stuck when I tried, the wet paint sticking with humidity.*
+**After I finish the papers I just stand there for a moment analyzing the words on the page for a few moments, dumbstruck not knowing what to think. Was this a prank by the locals? No, I'm too deep in the forest for that. Hell, I don't know, there's no way this is real, this is something you'd write in a book!**
 
-*Maybe she really had found that thing in the hallway, and I’d—*
+**I go back to my room, balling up and tossing the fake paper into the empty fireplace for the next resident to ash.**
 
-I sat down hard in one of the kitchen chairs, the breath rushing out of me.
+**Grabbing my belongings I still had barely gotten unpacked, I rushed out of the house heading straight for my truck. I had just thrown my stuff in the backseat when I noticed something was off. My back right wheel looks weird, like maybe it was going flat. A closer look around my truck reveals something terrifying.**
 
-Jess’s voice came back in perfect detail. *You’re scaring her.* It landed heavier this time. Made my skin itch.
 
-Was that what she saw? Not a father keeping his daughter safe, but some paranoid lunatic grabbing his kid and shouting at her about nothing?
 
-I pressed my hands to my face and stayed there. The dark behind my eyelids was safer. But when I opened them, all I could see was Win.
+**All my tires had been slashed.**
 
-I took out my phone, unlocking it and composed a quick text to Jess:
 
-“Hey. Sorry for earlier. I know I can be a lot sometimes. Hope you and Win are having a good time with your parents.”
 
-And then:
+**It takes me a moment to fully understand the gravity of the situation.**
 
-“Love you both.”
+**Before I'm even able to let it, I hear a terrifying sound from deep in the forest. It sounded like a person, screaming like they'd just had every bone in their body broken, but it wasn't right. It had some sort of distortion in it, like a cross between man and beast. Like it wanted something.**
 
-The air in the kitchen felt thick, like I couldn’t get enough of it down my throat. My fingers itched for something to do, anything that would stop the circling.
+**I don't care how dangerous or stupid it is to drive on slashed tires on a mountain, I am getting out of here.**
 
-The toys.
+**I jump into the driver's seat, practically slam the keys into the ignition, turn, and nothing happens. The engine doesn't even stutter. There is nothing but silence.**
 
-I went upstairs and gathered both Milkshake and the new lump doll. I didn’t look at them too closely. I didn’t want to know if they were warm or cold. I just put them all in an old laundry basket, carried it through the back door, and locked them in the garage.
 
-It helped a little. But not enough.
 
-I came back inside, opened my laptop at the kitchen table. The screen lit my face in the stillness, and I tried not to stare at my dim reflection in the monitor. I signed in, minimizing all my work tabs, and opened a new tab. I stared at the empty search bar, not sure what to type.
+**I get out of my truck and rush to the front hood and swing it open.**
 
-Then it came to me. I typed: **“60 Adams house history.”**
+**What I see inside shakes me to my core.**
 
-It was our house address. Nothing came up at first — just realtor blurbs, aerial maps, a few grainy shots of the property from when the last owners had it listed. But there were no photos listed anywhere taken inside the house. None of them showed the nook. None of them showed the toybox.
+**My entire engine block had claw marks, destroying it entirely, a mess of slashed wires and bolt pieces lay scattered, spilled oil strewn across unevenly. Fresh oil.**
 
-I tried other searches: *60 Adams accidents.* *60 Adams deaths.* *60 Adams children.*
+**This was recent.**
 
-A few old news clippings turned up, scanned crooked into the county archive. I expanded my search, replacing our address with the name of the town and county. Still, there was mostly nothing. Fundraisers, lost pets, a fire at a gas station that’s been a vape shop for as long as we'd lived here.
+**I don't know why but I just stood there, staring. My mind was broken by the unbelievable horror of the situation. My deep thinking is broken again by the inhuman howl again, this time seeming angrier, or maybe closer.**
 
-I leaned back in my chair, staring at the screen. My reflection met my stare, my eyes tired and too wide. I blinked, looking around the kitchen for the first time. Already it was dusk. I checked my phone, but I didn’t have a single message.
+**This brings me to my bearings, and I begin sprinting back to the cabin, my eyes continually locking onto the tree line all the way.**
 
-I almost closed the laptop. I almost let myself believe there was nothing to find. That the absence of proof meant I could shut this down and go sit in the living room until Jess came back. Maybe if I couldn’t forgive myself I could at least distract myself enough to forget. Bury myself on the couch in a blanket, order a pizza and maybe pick up some beer from the liquor store down the road – or maybe something stronger. Jess would be back that night, she had to be. At the very latest she would on Sunday. I wouldn’t have long to myself and maybe if I numbed the time I wouldn’t keep feeling this way all night – or all day tomorrow.
+**I swing open the door and instinctually lock it between my fingers, almost autonomously.**
 
-God I hoped it wouldn’t be that long.
+**Now rapidly breathing trying to make sense of everything, I notice something in the fireplace, the papers. I ran toward them and frantically pulled them out and unfurled them from the crumpled ball I'd left them in.**
 
-I looked down at the laptop again, one more time before I shut it off. And that’s when I saw it.
+**I begin scanning the paper, looking for anything it might have told me to do first. The rules! Rules 3 and 5 catch my eyes first, they seem to be the first things I should prioritize. I guess it's time to find this “trap door”, the third rule mentioned.**
 
-A thumbnail on a page for the *Sevrin Hill Historical Society*, some buried section of their website that hadn’t been updated in years – white background with blue bulleted hyperlinks. I clicked on one of them: “Community Picnic — August 8th, 1987.”
+**Walking back to the master bedroom with haste I can almost feel the sweat collecting on my brow, as I slowly realize whoever wrote those papers weren't lying, and I may very well be dead in the next few hours.**
 
-The photo loaded slow, the pixels knitting themselves into shapes. Rows of folding chairs on the lawn in front of an old town hall. People holding paper plates and sweating in the August sun. People that looked like they could be anyone and be anywhere.
+**Arriving at the master bedroom’s closet I open the slide door and analyze my surroundings, clothes, shoes, suits, suitcases!**
 
-And near the bottom edge of the frame, apart from the others – a girl, maybe six years old. Standing alone in the grass. Her expression was unreadable, almost blurred by the sun.
+**Kneeling before them I reach to the back and pull at least half sloppily to the side. And it reveals the top of the trapdoor, an old, dry, dull colored slab of wood with rusted hinges and a crooked doorknob.**
 
-But in her arms, hanging loose against her side, was something long and striped.
+**Throwing the rest of the suitcases carelessly to the side I reach for the knob and twist, having to use my whole arm to get the knob to move. And as it does the door pops forward for a moment before eerily creaking its way open. Looking down all I can make out is a set of stairs that look like they might collapse with every step, plunging you into the void of darkness in the basement.**
 
-I leaned closer to the screen. My hand went to the trackpad, zooming until the image broke into little squares. But it didn’t matter how close I got. I knew the shape.
+**I guess the luxury ends here.**
 
-Milkshake. Or…something that looked exactly like it.
+**Pulling my phone out of my pocket I turn on the flashlight, the beam of light penetrating the veil of darkness instantly.**
 
-I leaned in closer, squinting, trying to let my mind run over the pixels. Trying to synthesize what I couldn’t define make sense in my mind. It was like I was looking at an old Magic Eye poster – the truth was in there, I just had to relax my focus, let my mind fill in the details.
+**The white light reveals a medium-sized concrete-walled room covered in cobwebs and at least 50 planks of wood. The kind you always smell before you see at appliance stores.**
 
-The more I looked at the thing in the girl’s arms, the more sense it made to me. The thing in the girl’s arms was Milkshake. But the more I looked at the girl…
+**I hunch my back and twist my hips at the waist, trying not to get stuck in the tiny door frame. As soon as my shoe hits the first plank of the stairs I hear a loud creak echo through the silence. I'm also hit with a putrid stench, a cross between roadkill and stuffy, century-old air.**
 
-She was plump, and her face had the grim acceptance of the relentlessly bullied. She was short, the Girl Scout uniform she wore ill-fitted and looked even in the low quality of the image like it needed to be washed. And there was something over her eye. It could have been a trick of the lens or a mote of dust but…the closer I looked, the more I was sure. It was an eyepatch. Medical, white and wide, covering her left eye.
+ **Regardless I push through, each stair wailing at me as I make my way down. The final step I can move my flashlight around the right corner to see a workbench with various tools and nails on it, but I don't think you could set anything more on it before it collapses, because of course its condition is highly sub-par. I push my light further right and nearly drop it when the light makes out the decomposing body of someone. their stomach has massive slashes in it and they seem to be missing an arm.**
 
-The same eye missing from the doll upstairs. Win’s newest plaything.
+**Before I can even make out more of the figure on the ground I bolt around and up the screaming stairs, not caring if one of them snapped. Once I'm back in the master bedroom I can finally think rationally.** ***Why did I run?*** **Sure, there was a literal dead body down there, but there wasn't any present danger but God, that was horrifying.**
 
-I scrolled down to the caption. The words were simple, nothing strange:  
-*Sevrin Hill residents celebrate at the farmer’s market.*
+**I now know for sure nothing in that letter was a lie, this was probably one of the earlier victims of this evil entity or whatever the hell it is.**
 
-That was all. No note about the snake. No explanation for why she was standing alone, away from the other kids. Not that I really expected there to be one. Still, I felt like I was on to something. The coincidence, the eerie resemblance, was too great.
+**Regardless, I don't want to be ended in the same way they or any of the others met their demise. I make my way back down there to take stock of the materials, trying not to think about the rotted corpses stench.**
 
-I sat there a long time, staring at that girl’s pale, unreadable face.
+**After a** ***very*** **fast evaluation and knowing my time is limited, I make my way back up to the room and dump all of my belongings out of my massive travel bag and trek back to the basement to stock up on some very well needed supplies.**
 
-Then it came to me, clicking back to the previous page. I typed the year from the original link on the historical site in my search bar and followed it with “Sevrin Hill girl scouts”.
+**I stuff the bag with anything that looks like it can be used, from saws to small bolts, anything will help.**
 
-A few pages popped up, but most of it was irrelevant. Some of the results directed me back to the county’s public records, and so I filtered my search to only show results from there. I clicked on a few dead ends and found more than a few dead links. I was almost out of search results when I got lucky.
+**The planks were hard to fit in my bag but I was luckily able to position them semi-vertical in a way that allowed me to lug them with me, completely convinced in my mind the extra weight is surely going to destroy one, if not all, of the planks.** 
 
-Another photo – this one a faded black and white. A line of young girls sat under a mural – the same one I’d seen with Win and Jess downtown while we’d walked over for dinner a little while ago: fields of sunflowers of varying sizes and skill in composition. The girls were all wearing smocks, and some of them had paint smudged around their noses and eyes. And there, at the very end and almost shoved out of frame, was the girl from the farmer’s market photo.
+**Luckily it doesn't and I make it to the top and immediately begin working tirelessly, boarding any window I see, hastily slamming each nail and sawing each board to fit the right dimensions, making multiple trips back and forth for more supplies. Out of respect I also grabbed the rug from the living room and covered the body in the basement. As little as it is, It's the best I can do for now.**
 
-A slinking, ringed serpent wound around her shoulder.
+**After around an hour and a half of tireless labor, I finally nailed the last board into place over the living room window. I'm not done working however, I also go into the kitchen and grab all the knives I see and place a few scattered around each room in case I need to grab one in a hurry, placing a smaller pocket knife into my shoe, just in case. Judging by the paper it won't do much but something is better than nothing and right now I need all the comfort I can get.**
 
-Below, the caption read “Troop 217. From left to right: Lenore Adams, Cary Ann Clark, Stephanie Cole, Marissa Trailor, and June Howard.”
+**After truly finishing my work I grab the papers off the ground and continue to read, looking for the next thing I should do. It doesn't seem like there's anything more I need to do, other than plug up my phone, then sit and wait until it's time.**
 
-June Howard. That was the girl’s name.
+**Pacing around the living room, I find myself compulsively checking the time, counting down each minute, and it's been about two hours. So the game should be beginning at any moment, and lucky for me, it's night time!** ***Just 46 more hours*****. I think to myself, not feeling any more at ease.**
 
-I copied and pasted it into the search bar, my heart beating fast. I made my search “June Howard Sevrin Hill”. I hesitated for a moment and then added “disappeared” before jamming the enter key.
+**A few more anxious minutes pass, and I hear a familiar sound.** 
 
-I clicked the top result.  
-It was a scan of the Sevrin Hill Gazette from 1992, the grain ghosted into the page like it was printed on ancient skin. I leaned closer to the screen, squinting at the headline:
+**I hear those same inhuman cries coming from the front of the house.**
 
-**LOCAL GIRL STILL MISSING**
+**It sounds terrifyingly close this time, just past the tree line if I had to guess.** 
 
-The article was barely three paragraphs. An afterthought between a notice about a pancake breakfast and an ad for lawnmower repair. I skimmed it, breathing faster and faster with each line.
 
-*Authorities continue to search for 11-year-old June Howard, missing since the evening of September 2…last seen walking home from a friend’s house in the Adams Street area, near Hollow Hill Road…quiet and shy…missing her left eye, often wears a white medical patch…no new leads.*
 
-It was the photo that stopped me.
+**The game has begun.**
 
-She stood alone, framed from the knees up, her expression flat in a way only a kid who’s been through too much can manage. The white eyepatch was there, stark against her skin. In one hand was a thick hardcover book, the other a plastic terrarium. Curled up inside was a small, ringed snake. But I wasn’t looking at her face or the snake.
 
-Behind her was a white house with a sharply pitched roof and a narrow front porch. One corner sagged, the same way ours did. The windows were set too close together. The siding was split under the eaves in a way I knew by touch.
 
-I didn’t have to check the caption. I didn’t have to count the shingles or match the railings.
+**Almost instantly I reach for the nearest knife and hold it tight, waiting for something to happen, although for at least a minute there's nothing.**
 
-It was this house.
+**But then the silence is broken by a loud slam on the front door.** 
 
-*Our* house.
+**It makes me jump, hard. But luckily I managed to keep myself quiet.**
 
-I sat there staring at the screen, my hands resting uselessly on either side of the keyboard. The girl’s face filled my mind — the blunt, guarded expression, the white medical patch swallowing one eye. The same side missing from the doll upstairs.
+**Then comes another, and another.**
 
-June Howard.
+**The slamming on the door becomes more and more frantic and aggressive. The slamming became so hard I was certain the door would come down at any second, as I could see with each impact the door shakes and trembles. large impacts on thick wood became a ringing in my ears as the unrelenting slams continued.** 
 
-The name kept spiraling in my mind, an undercurrent to every thought.
+**The sound of whatever this was so desperately attempting to get in puts fear so potent into my body I can only put my back to a wall and slide down, pointing my knife toward the door, tears rolling down my face.**
 
-I looked again at the old photographs – the farmer’s market, the troop mural. Both times, the snake was there, draped around her like a stuffed animal for any other kind of child. Milkshake, or something so close it didn’t matter.
+**Thankfully after many agonizing moments the pounding at the door pauses. I can hear a muffled low growl come from outside before heavy footsteps tread off somewhere in the forest.**
 
-Maybe there was a practical explanation. Some eccentric neighbor or overzealous parent with a sewing kit and too much time on their hands, making toys to match a pet snake for the lonely girl down the street. A gift that, by some coincidence, had outlived her and ended up in our house years later. That could happen, I told myself. Small towns hold on to things. People die, boxes get donated, junk ends up in attics and thrift stores and – sometimes – in the hands of children who don’t know the history behind them.
+**Now I'm left on the floor, back to the wall in the fetal position, adrenaline coursing through every ounce of my being.** 
 
-But the more I tried to settle into that version, the less it fit. It was too neat. Too bloodless. I could feel it in the pit of me, in that place Jess would call paranoia but which I knew was something else entirely. A sharper kind of knowing. There was a ring to it – the resonance of truth vibrating inside my skull – that this wasn’t coincidence, and it wasn’t harmless. I needed to trust that, even if she wouldn’t. Especially if she wouldn’t.
+**Cops aren't going to save me, it's me against whatever this thing is.**
 
-My eyes drifted up, toward the ceiling. The attic was the one part of this house we hadn’t seen when we toured it. After Jess and I had torn down the boards during our first week here, we’d swept out the splinters and insulation and then started sliding things up there we didn’t need right away. Winter coats. Boxes of old books. A few sealed cartons left in the coat closet from the previous owners that I’d never gotten around to opening. The sealed boxes…
+**But what can I do other than wait this thing out?**
 
-Now, the thought of those forgotten remnants made my skin prickle. Maybe there was something left behind. Something of the one-eyed girl, something of June’s. And if there was, I wanted to see it for myself.
+**It's clear by the slamming on the door that this thing is far stronger than me or anybody I know, a knife isn't going to do anything to this thing.**
 
-\*\*
+**I sit there for a moment, racking my brain for any kind of solution that might give me an edge. Then I'm hit with a stroke of genius.**
 
-I climbed slowly, my palms sticking to the rails. The attic pressed in around me as soon as my head cleared the opening. It was the same as I remembered: the pitched roof – a tent of dark beams, the scattered floorboards over insulation puffing out from between joists, and the slow, oppressive heat curling around me. My breath felt heavy in it.
+**There were taxidermied animal heads on the fireplace wall, there is a chance there could be a gun laying around here somewhere the note did not detail. And maybe if I'm lucky, ammo as well.**
 
-A few of our own boxes sat stacked near the attic stairs, labeled in Jess’s neat handwriting. Beyond them, the cartons from the previous owners slouched against one wall, the tape yellow and curling at the edges. For a second, I just crouched there, staring, the hair on my forearms rising for no reason I could name.
+*Where to look* **I think to myself, racking my head for ideas.** 
 
-I started toward them, stepping lightly along the narrow plywood path laid to keep from crushing the insulation. The floor flexed under my weight. I knelt at the first box, traced the faded writing scrawled across the cardboard – indecipherable – and popped the top.
+*Let's start with the closets.* **I say to myself, hoping there is at least something I can make use of.**
 
-Inside was a mess of paperbacks, most of them damp-soft at the edges, and a few ceramic figurines packed in yellowed newspaper. I shifted them aside, looking for something… more. Something that would connect.
+**Now walking out of the master bedroom into the unnervingly quiet hallway, hearing every wooden board settle under my weight.**
 
-Beneath the books and brittle newsprint was a layer of toys – cheap plastic farm animals, a jumble of hair clips, and a pair of jelly sandals gone cloudy with age. I dug deeper, my fingers catching on the cracked edge of a photo frame. Inside, faded almost to nothing, was a picture I recognized instantly—two little girls in early-90’s puffers, cheeks red from the cold, their parents standing behind them. Candace and Marie. The worn twin of the photo Jess and I had found in the downstairs coat closet. We’d found other traces of them when we first moved in – marker scribbles on the upstairs baseboards, a pair of children’s spades behind the shed, a few other photographs tucked in odd places. Little artifacts of a family’s life left behind and outgrown like discarded cicada shells.
+**I go to the closet to the right of the hall and twist the knob, opening the door, I'm met with a veil of darkness.** 
 
-I felt the familiar sag of disappointment as I set the frame aside. No snake. No eyepatch. No June. Just more pieces of someone else’s history.
+**I look up and see a cord coming down from the ceiling, and pulling it gives light to the darkness, revealing something that fills me with unmatched hope.**
 
-But as my hand left the frame, something made me pause. I picked it back up, this time looking harder at the girls’ faces. One of them – Marie, I thought – had the same pale hair and glass-bright eyes I remembered from the doll Win had in her hands the night I’d carried her down from her room. Not just blue eyes, but *those* blue eyes, the same clear, almost unnatural shade, crystalline frost. I stared at her smile, wide and fixed, and felt my skin prickle.
+**A box of .223 Remington rounds.**                
 
-The connection was loose, frayed—but it was there. The doll Win had been holding the night I’d taken her from her room. It was someone. One of these girls.
+**This has got to be one of the best things I've seen in a long time.**
 
-I lowered the frame into my lap, holding it there longer than I meant to, the attic’s still heat settling heavy over me. Enveloping me. Licking at me.
+**I scan the rest of the closet, and to my surprise, there is no gun of any kind, but I'm not worried. Where there is ammo there is a gun.**
 
-And then I heard it.
+**Hastily, I grab the ammo box and I'm once again disappointed, the box feels very light.**
 
-Not a creak, not the dry flex of wood, but a low *groan* from below. It wasn’t the water softener, the boards shifting in the house. It wasn’t any appliance or outer wind.
+**I pop open the flap of cardboard on the top and to my horror, there are only 2 rounds in the box.**
 
-It was squelching. Luridly alive, an unmuffled groan that I felt in my bones. Deeper than a creak, wetter than wood should sound. A long, deliberate sound – something working its jaw after a slow meal.
+**I yell and throw the box at the wall, the rounds flying out and loudly clinking against the solid wood floor. Right at that moment I realize my mistake, as I hear a shriek come from outside, followed by those same thumping footsteps.**
 
-It came again – shorter this time, clipped, a swallowed chuckle. The sound reminded me of something I’d heard before, and it only took a moment for me to put it together. I felt sick, unbalanced, even as it came to me.
+**I hear the steps clamber onto the porch followed by heavy scratching going down the front door, soon after this creature begins slowly walking around the perimeter of the house, going from the door toward the right of the house.** 
 
-It sounded like the toybox. The opening of its jaws. The exaggerated sibling to its taunting creaking moan.
+**Just when it sounds like it's going to pass the area outside in front of me, it stops for a moment.**
 
-I knew I should go downstairs, get my hammer, smash the fucking thing apart and take the splintered remains outside to burn them. But instead, I found myself turning toward the far side of the attic, toward the sound’s echo in my head. Hesitating only for a moment, I started toward the back end of the attic, the section we hadn’t used, running my hand along the bare wood of the slanted attic walls for support as the floorboarded path narrowed.
+**For a second, there is nothing but me in the silence of the hallway, hearing my heart thud against my chest rapidly.**
 
-That’s when my hand brushed a section of wall that felt…off. Too smooth.
+**Then I hear the wood exterior of the house begin to splinter, the sound starting at ground level, but eventually it goes higher and higher until I hear the roof above me creak heavily, dust and settled cobwebs being knocked loose under the immense weight.** 
 
-I turned my head, swaying slightly on my feet—the boards here were thinner, narrower, uneven in their fit. Their grain didn’t match the rest of the attic—darker, almost bruised. I thumbed on my phone’s flashlight, already bracing for something I didn’t want to see.
+**It's climbed onto the house.**
 
-The beam caught on a stretch of boards slick with a black, oily residue, as if something deep in the wall had burst and seeped slow for years. The stain seemed to breathe faintly under the light, as if there were pressure behind it. When I pulled my hand away, there was a faint film webbing between my fingers, sticky and metallic in the air and on my tongue when I reflexively swallowed.
+**Now paralyzed in fear I stand in the middle of the hallway, watching the dust falling, getting closer and closer to where I'm standing. It isn't long until it's right above me, and just when I think the situation couldn't possibly get worse, the lights flicker, and everything goes dark.**
 
-I pushed the first board. It flexed, giving before tearing away with a damp snap. I tossed it down into the insulation and reached for another. Each one peeled off softer, wetter, colder. The dampness seemed to cling, not just to my hands but under my nails, sinking in. By the time I’d cleared the last of them, I was shivering.
+***Shit.*** 
 
-Beneath the boards was not more wood, but stone. Black stone – slick and glistening, reflecting the light in the same way the toybox lid did, a shifting sheen that made me think of the way an eye moves under a lid. At the center of this surface was an opening – low, jagged, puckered at the edges. A split seam in the wall, raw and uneven, as if it had grown out of the house.
+**This is not good. I need to reset the power box as soon as I can, but there's no way in hell I'm going out there with this thing literally right above me!**
 
-I crouched low, the rafters pressing down on me, and angled the light inside. The corridor beyond was paved with uneven stones mortared with something pale and fibrous. The walls pressed in tight at odd angles – as if they had shifted and locked into place centuries apart. The cold that rolled out was a deep cold, bloodless and still.
+**Instead, I decided to take a very big risk, albeit still less risky than going outside. I take my phone out of my pocket and hit the flashlight icon, the rest of the hallway and part of the living room is instantly illuminated by the penetrating light. Before I can make a move, however, I hear a loud** ***thud*** **above me. Followed by another and another as I'm showered by falling dust and god knows what else.**
 
-It wasn’t just darkness in there. It had weight. It had depth that didn’t belong in the shape of this house –  the way a body can feel its wounds deeper than the shallow scar tissue.
+**I don't have time to think before my legs jump into action and I quickly make a mad dash to nowhere in particular, just anywhere away from here. So I scour the floor plan quickly trying to find a suitable place to hide before this thing is all over me.**
 
-I dropped to my hands and knees, breath loud in my ears. I stuck my head inside, the stone damp and cold against my arms, angling the light forward. The beam bled into the dark and disappeared.
+***Fireplace? No. Cabinets? No. Pantry? Yes.***
 
-Somewhere ahead, in that thin black channel, something shifted. Soft. Deliberate.
+**Instantly I dash towards the double doors and swing them open and shut myself inside.**
 
-My throat tightened. I jerked back, scraping my shoulder against the frame.
+**Now in oppressive darkness, I can only look through the crack that separates the two doors and listen. Eventually the slamming on the roof stopped, I guess it was strong enough to hold.**
 
-For a moment I stayed there, crouched, my breath ragged, phone still aimed at the hole. Waiting for the sound again. Waiting for…something.
+**But the peaceful silence doesn't last long. I hear a piercing shriek followed by thunderous footsteps going off of the roof quickly followed by a hard shake as this thing hits ground level again.**
 
-But the corridor was still.
+**The pounding footsteps go all the way to the back of the house.** 
 
-I stood, my knees popping, and backed away until my spine pressed against the far wall, nearly falling into a pocket of insulation as I did. The hole waited in the beam of my light—patient. Expectant.
+**For about a minute, I can hear this thing walking around and on the house, trying to find a way in, occasionally scratching and banging on different areas of the house.**
 
-I killed the flashlight. The dark rushed in.
+**And for a long moment there is a pause, no noise, no footsteps, nothing but me, the dark, and my booming heart.**
 
-Then I turned, forcing my way down the attic stairs, sliding the plywood cover back behind me.
+**But after maybe 30 seconds of the loudest silence of my life, I hear a sound that makes my heart drop, I hear glass shatter.** 
 
-I didn’t look up again – not once. I went downstairs, flung open the front door, and walked to the end of the driveway. I sat on the curb, cross‑legged.
+**Quickly after this I hear the unmistakable sound of wood planks splintering and their hollow thuds bouncing off the wooden floor.**
 
-I looked down at my hands and watched them shake. Black filth under my fingernails. I breathed, hard and fast, trying to calm myself down.
+**Given the distance of the sound, I can assume it's somewhere on the other side of the house, maybe the guest bedroom?**
 
-“Headlights, baby, c’mon headlights please,” I repeated, I prayed, aloud to the quiet of the evening, “c’mon, c’mon, come home baby pleaaase…”
+**Regardless, this thing has made its way into the house.**
 
-I sobbed, finally letting my head drop into my hands. I wanted my girls, I wanted home the way it was even just a day ago. That I’d take, I’d take anything over what I had seen. What I’d *felt*.
+**There's nothing I can do now besides sit and pray it doesn't know where I'm at.** 
 
-But cutting under even that? I had a different kind of dread. A dread that resounded in me and, even now, grew louder and louder. Echoing, repeating, demanding I feel it.
+**After what feels like a lifetime passes I hear another noise.**
 
-It was this – Jess wouldn’t believe me. Even after everything, even after dragging her up there to show her, I had a sinking knowing at the very center of me that all of this would be another example of breaking from them. From their reality.
+**It's more wood splintering, but this time it's at the master bedroom door. I peek through the tiny slit in the pantry door and try to see as much as I can, and through the deep darkness I can make out a faint orange glow, accompanied by a deep guttural growl somewhere down the hallway. Not long after slow heavy footsteps begin making their way closer to the living room.**
 
-No, Jess may not believe me. And I would spare myself the trial of getting her to, that I knew now. Because whatever the fuck was going on in this house – with the toys, the toybox, the horrible, lonely way in the attic – I would have to deal with it and spare them of the grief. Even if Jess never believes me, I know what I heard.
+**I can hear my heartbeat get heavier than it already was, hearing the boards creak and wail under the weight of whatever this thing was.**
 
-I would fix this. I would fix this for our family, for my girls.
+**Still looking through the slit with heavy anticipation, I watch as the faint orange glow gets brighter and brighter until the entire living room is casted in the warm color.**
+
+**It's just when I try to get a better look into the living room when my arm hits something on a shelf, knocking it over and sending it crashing to the ground with a sharp thud.**
+
+**Almost immediately the orange glow snaps to the kitchen accompanied by that same deep growl.**
+
+**If I hadn't already given myself away, my heartbeat surely would as I could feel it pounding against my ribs, loud as a drum.**
+
+**I see the glow get brighter and the thunderous footsteps get so close I feel the vibration in the floor with each movement this thing made.**
+
+**And eventually, I see it.** 
+
+**It's so unlike anything I've ever seen, its body was huge, easily towering at 8 feet at the least. It seemed to have Fur soaked in tar wrapped around its unusually muscular frame. It walked on all fours, its front, clawed arms much stronger than the smaller and shorter hind legs. Its head was of a worn deer skull adorned with cracked and broken antlers.** 
+
+**It's now when I realize where the orange glow was coming from. Looking into its eyes I see two fiery glowing orbs.**
+
+**Just then it slowly twists its head to me, the orbs illuminating me through the door.**
+
+**No doubt this thing saw me. But it didn't attack, it just released a deep guttural laugh, turned, and left on the same path it had entered.**
+
+**Once I hear the pounding steps leave into the tree line, I slide down the wall of the pantry and just sit there, still trying to make sense of everything.** 
+
+**Even though I’d heard the pounding on the front door, seen the body in the basement and now even having seen the creature, it was all so hard to believe. None of this was grounded in reality anymore** 
+
+
+
+**After a few moments of baffled thought I finally remembered.** ***The power’s out.*** 
+
+
+
+**I needed to go outside and reset the power box before that thing came back, because if it does, I don't think it'll be here to toy with me again.**
+
+**So, I manage to bring myself to my feet and exit the pantry, Turning on my flashlight, the vision of the house's kitchen coming quickly into view. I began walking to the back door past the kitchen, luckily it had a glass top so I could look into the backyard for a moment to ensure I didn't see even the slightest orange glow.**
+
+**After grabbing the doorknob and hesitating for a moment, I throw the door open and begin sprinting across the large, unusually kept lawn.**
+
+**It's hard to tell with just my flashlight but it seems like there is a large metal box with wiring strewn about, and I'm willing to bet that's the power box.**
+
+**After making it across the large backyard I go into the tree line right up to the metal plated box.**
+
+**For a moment I don't see anything, just the smooth grey surface of metal.**
+
+**I looked around the box quickly, seeing a blue button on the back of the box that read; “*****RESET*****”.**
+
+**Instantly I mash the button which causes the box to make a loud pop before humming to life, across the lawn I can see the warm orange glow of the house's lights. It's such a relieving sight that I almost didn't notice the pair of orange eyes on the roof, piercing through the night.** ***Looking at me.*** 
+
+**Instantly my body locks in place, ice encapsulating every inch of my skin.**
+
+**Though it's nighttime and dark, I can still make out the large muscular build of this creature, Large heaving breaths exiting in a thin smoke through the nostrils of the deer skull.**
+
+**For what felt like ages neither of us made a move.**
+
+**I felt like I was staring at this thing for so long I had thought maybe it hadn't seen me.**
+
+**Maybe it was just curious about the noise the power box made.**
+
+**Maybe I was right, or maybe I had been blessed, but either way, the beast made one last deep growl in my direction before sluggishly disappearing behind the other half of the house's roof, disappearing into the deep inky night.**
+
+
+
+**The moment I can no longer hear the thunderous footsteps my legs kick into gear and begin throwing me across the yard to the house.**
+
+**I make it inside, slamming and locking the door behind me in a frantic panic.**
+
+
+
+***“I have to fix that window”*** **I think to myself.**                                       
+
+
+
+**I hated having to go into that basement, but this was survival, and so I did, getting the boards I needed and hastily fixing the window, and as i'm fixing it, I see the smallest amount of light start to peek over the mountaintop, signaling hope, and a reprieve, I've made it through the first night.**
+
+**As I'm leaving the guest bedroom after boarding the window, I turn to close the door behind me, but I see something strange under the bed, some kind of cloth?**
+
+**I go towards it and kneel down, pulling a dark green strap. And as I pull my arm back I'm blessed with the sight of a bolt-action rifle.**
+
+**It's old and dusty, but it seems like it was stable enough to shoot.**
+
+**I spent what little time was left of the night to take apart and clean the weapon, as best as I could anyway.**
+
+**When I'm done I load the two rounds into it and push the bolt forward, making it ready to fire.**
+
+**I hadn't noticed but outside I could hear the faint sounds of birds chirping, glancing out of the window I could see faint slits of blue through the wood boards. Hopefully this thing will back off a little with it being daytime now.**
+
+**I take my phone out of my pocket and see that it's 9 in the morning, one hour until I can finally sleep safely. Even if it's just a few hours, it's enough to keep me alert.**
+
+**The time seems to go by at a crawling pace, I was mostly hoping this creature wouldn't try some last trick on me before letting me get some shut eye. And to my surprise nothing happened.**
+
+**So, when 10’clock struck I immediately set an alarm, so I didn't oversleep, and promptly passed out on the couch.**
+
+
+
+**It almost feels like no time passes before a loud crash sends me flying to my feet, chest heaving and my senses clocking into overdrive as I try to gather my surroundings.**
+
+**At first, I see and hear nothing, but my skin feels slightly cold, and the air around me seems.. Cleaner in a way.**
+
+**As my eyes adjust I can see a faint glow of moonlight casted on a forest of large pine trees.**
+
+**I'm somewhere in the mountains no doubt, but how? I vividly remember collapsing onto the couch.**
+
+**Just then something breaks the silence.**
+
+**I hear a sound I'm very familiar with. A loud thud shakes the earth beneath my feet as multiple twigs snap just a few yards away**
+
+**My blood runs cold as I slowly turn around, and sure enough, my gaze meets that same creature that has been haunting me these past few hours, a mere 10 feet away.**
+
+**Its entire body is ink black, that same tar-like substance matting its fur glows under the moonlight with the only other light being the fiery orange glow of its dead eyes. The beast is staring daggers right through me, a thin mist escapes from under the deer skull with each heaving breath it makes.**
+
+**Then the creature leaps toward me, its huge arms fully extended outward.**
+
+**Then my eyes fly open.**
+
+ **and I'm back in the cabin.**
+
+
+
+**For a moment everything is still, the air is warm and I can hear a cacophony of birds chirping amongst themselves.**
+
+**Despite the terrifying nature of the dream I just had, I'm surprisingly calm.**
+
+**I flip my phone over and check the time, 11:59.**
+
+***Well, that couldn't have been timed better*****. I think to myself, bringing myself to my feet.**
+
+**It wasn't a long sleep by any means, I'm definitely still tired but it's manageable, I'll be able to make it to the next break.**
+
+**For a while nothing happens, I've searched the whole house multiple times over looking for anything else of use, but nothing is uncovered.**
+
+**It feels as though I'm just on a regular vacation sometimes, nothing happens for 30 minutes to an hour and everything feels normal.** 
+
+**I can hear the birds outside, the random call of the mountain animals, even the occasional plane overhead.**
+
+**I can see the morning light shining through the small cracks in between the boards on the windows. It's oddly calming considering the situation, maybe I'm just happy it's not night, and one day closer to making it out of this hell.**
+
+**Around 40 more minutes pass with nothing, deafening silence only broken by the occasional settling of the house that sends me flying to my feet each time. I've noticed I’m so much more jumpy now, for good reason of course.**
+
+**For so long the silence dragged on, despite being so on edge, the lack of any stimulation eventually reached me, and I began to feel my eyes grow heavier as time passed.**
+
+**And so I began to pace around the house to make sure I didn't pass out.**
+
+**I also decided to go into the master bedroom bathroom to see if there could be anything of use, but despite looking to the best of my ability I can't seem to find anything. I figure even though I've looked already, if I keep searching the rest of the house I might find something.**
+
+**So I leave the bathroom and open the door to enter the hallway, where I'm stopped dead in my tracks.**
+
+
+
+**Right there at the entrance of the hallway, stood the beast, with the corpse from the basement hanging lifeless in its jaws. And right behind it was the bolt action rifle, my only hope, leaning on the living room couch; right where I'd left it.**
+
+**How? How could it have made it inside without making a noise? How did it even get to the corpse?**
+
+**I don't have time to think about the reality of the situation, as the beast releases its jaws, dropping the body to the floor with a solid thud. Massive tooth marks sunken deep into its rotted flesh.**
+
+**I should've ran, hidden, closed the door, anything. But I just couldn't bring myself to move.** 
+
+**I could only sit still and stare at the creature, a mix of blood and saliva dripping from its gaping maw.**
+
+**Finally fully realizing the horror of the sight in front of me, I snap into action, slamming the door and bolting to the closet to hide in the basement. Maybe I'll be lucky and it wont fit past the trap door.**
+
+**Frantically I swung into the closet, running to the trap door.**
+
+**I make it to the tiny, dried wood door and try to swing it open, but it doesn't budge, I pull again, harder this time, but it doesn't move an inch.**
+
+**Now the creature is at the room door, and I can hear it slam its fist into it as the sound of wood splintering cracks through the air.**
+
+**Now I begin frantically pulling on the door, trying desperately to get it open but it simply will not budge.**
+
+**A second impact rocks the door. This time I hear it tear off the hinges and crash to the floor.**
+
+**In a desperate panic, I lean back and begin slamming my heel into the door as a last-ditch attempt. And finally, the door splinters and pops open.**
+
+**Just as it does however, the closet is illuminated in the same orange glow I'd seen so many times before. I try to throw myself down into the darkness of the basement but I'm too late.**
+
+**Just as I leap I feel the creature's massive hand grab my body tightly and pull me backwards. Its hand is so massive it wraps around my entire chest, so tight I can't draw a breath.**
+
+**And as it turns me around, I'm face to face with the beast that is about to kill me.**
+
+
+
+**But for a moment it just holds me there, turning me side to side, examining me, tightening its grip so hard I feel my ribs begin to cave inward, threatening to snap at any moment. The pain is blinding and I can feel myself about to pass out from the lack of oxygen.**
+
+**Just as the darkness reaches the edges of my eyes, just as I feel my bones giving out from the immense pressure, an epiphany hits me. I remembered so many hours ago I had put a knife into my shoe!**
+
+**With time limited and my life on the line, I lift my leg up and grab the knife out of my shoe holding it high in the air above the beast.**
+
+**I see it tilt its head upwards, seeing what I'm doing.**
+
+**Before it can do anything, I plunge the knife deep into its right eye.**
+
+**The creature lets out a shrill shriek and drops me to the ground, its hand clawing at the knife, still plunged handle-deep into its socket.**
+
+**The beast looks up to me, still on the ground, ears ringing, trying to catch my breath. It releases a guttural roar that resonates pure hate.**
+
+**Just then its eye releases a bright flash before a hard shockwave sends me flying backwards. Directly into the basement.**
+
+
+
+**The first thing I feel is an intense pulsating pain in my head. I can feel a cold sensation on my body and something wet on my face.**
+
+**I move my arms to pick myself up and I feel a cold, smooth surface that feels like it has a layer of either dirt or dust. As my senses begin slowly coming back to me I notice I'm surrounded by darkness. And I'd assume it was silent but the ringing in my ears makes it hard to tell.**
+
+**For a moment I can't make sense of anything, with the intense head pain and ringing ears my mind is too clouded to think clearly.**
+
+**It's then I begin looking around where I'm at, stumbling trying to keep from falling over as it feels like my head is spinning. At first it's the same darkness in all directions.** 
+
+**But I eventually see a small light. Focusing my eyes I can tell it's a small doorway with a warm yellow light flooding through the darkness.**
+
+ **looking down at my feet I can see a puddle of what seems to be water. But upon closer inspection I can notice a slight red hue to it.**
+
+**To confirm my suspicions I lift my hand to the back of my head and sure enough, I feel a warm, slimy sensation,  and when I pull my hand back, it's covered in blood.** 
+
+**Just then all the dots connect and it hits me. The cabin, the creature, the basement.** 
+
+**I can now remember how I got here and the events that transpired.**
+
+**What had I done? What was that flash after I injured the creature? Did it actually hurt it? Is it over? So many questions flood my aching head, it's too much.**
+
+**I have to sit down and close my eyes for a moment. The small light from the doorway was making my head pulsate with even more waves of agonizing pain.**
+
+**I take my phone out of my pocket and turn on the flashlight, making sure to squint eyes so the light doesn't unleash another barrage of aching pains in my head.**
+
+**I turn the light to my left and I see a ripped and tattered mat where I had left the body.**
+
+**It just doesn't make sense to me, how could that thing make it down here? But then again how has this thing doing anything it’s been doing. How the hell is this thing even real??**
+
+**I finally have enough of my bearings to pick myself up off the floor. Approaching the stairs and ascending up, the familiar sound of old wood crying out all the way.**
+
+ **And at the top my heart drops for a moment, as I see the beast at the closet door. But it’s not the foreboding monster it once was.** 
+
+**Now it’s slumped on the ground, its arms sprawled, and its jaw hung open, a large black tongue resting on the carpet. And where bright, orange orbs once were now two black holes in the deer skull.** 
+
+**Cautiously I walk to the massive corpse, kicking its head as I reach it. Confirming its death.** 
+
+**There’s no celebration, no confetti or party. I don’t jump or yell. I simply look at the body on the ground and make my way to the front door.** 
+
+**Stepping outside, I see its now noon, with the sun settling just under the mountain tops. I sit on the porch for a moment, just taking it all in. Happy to be alive.**
+
+ **Woozy but lucid.** 
+
+
+
+**“I think I’m gonna stick to hotels from now on” I say to myself. Glad to see a sunset. Even if it’s just one more time.**
+
