@@ -1,104 +1,364 @@
-# I Have Memories From A Daycare That I Never Went To  (Part 2)
-Part 1 can be found [here](https://www.reddit.com/r/nosleep/comments/1msza0s/i_have_memories_from_a_daycare_i_never_went_to/).
+# I'm a Missionary and These Undead aren't really Zombies
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ml85bx/im_a_missionary_and_now_i_see_things_in_the/) l [Part 2](https://www.reddit.com/r/nosleep/comments/1mnuanp/im_a_missionary_and_florida_is_zombiecountry/) l [Part 3](https://www.reddit.com/r/nosleep/comments/1mraofk/im_a_missionary_and_my_friend_has_to_save_me_from/)
 
+I froze for a few moments.
 
+His boss was killed by an angel?  I thought back to the Angel Sofia I had seen in my dream (was it a dream?).  
 
-I called my mom to ask if she remembers anything about me spending time at Mrs. Rand’s house during the summer of our year in Wisconsin. 
+She was short, physically, sure.  But when I saw her spirit she filled the room with wings, and the very scenery around us was clearly controlled by her mere presence. 
 
-“Mrs. Rand… Mrs. Rand… no I really don’t recall any lady with that name. Did she live by us?”
+But could she have killed me?  If I had failed her challenge completely, she told me I would die.  But I thought, even then, that it was some kind of bluff.
 
-“Yeah,” I said. “She lived like… right by us. In a white house.”
+Surely an Angel wouldn’t kill someone, right?
 
-“White house… I really can’t remember. It was such a long time ago and we didn’t live there for long.”
+“See,” Reginald said, his voice snapped me away from my thoughts, “Knew you wouldn’t believe me.”
 
-“Well do you remember if I ever went to a daycare at all that summer? Like, even just a couple of times?” I asked. 
+“No, I do,” I said with a frown, “but I’m just hard pressed to believe an Angel would kill someone.”
 
-“No, no. Nothing like that I don’t think. We didn’t go on any trips that year where we didn’t bring you. I mean, you would play with a couple of friends outside a lot but I’m pretty sure that’s it.”
+Cassara laughed, “Really?  I’ve seen angels kill folks all the time.”
 
-That confused me even further. I don’t really remember having too many friends in Racine apart from the few I would see at Mrs. Rand’s. 
+Reginald and I’s attention was now on Cassara.
 
-“Okay. Thanks mom.” I said, hanging up the call. 
+Cassara looked between both of us, “Oh, uh…” She cleared her throat.
 
-I don’t really have any more answers than before, but I have more memories. They’re really all I have to work with at this time. There’s no one that shares these experiences with me. At least, no one I can talk to about it now with. I’m an only child, neither of my parents seem to have any idea what I’m talking about, and I never saw any of the children outside of the daycare. Except for Cory somehow. I had met him before my first day at the daycare somewhere, but the memory isn’t scratching its way free for some reason. 
+Any hope for an explanation was interrupted now by the intercom clicking on, “Like this? This?  Am I doing it right?  Come on, say something more than ‘uuuurrrrrgh’!” A woman’s voice chimed in through the door-bell camera.
 
-The next notable thing in this rough timeline I remember must have been a couple of weeks after my first day there since I knew the kids a bit better. There was Lucas: short, pale, and blonde; Jasper: tall, dark with black curls; and another girl I had met: Sarah. She was tall and tanned with chestnut brown hair. She was a bit older, too. Older than all the other kids really. She must have been eleven or twelve. I remember thinking that was weird at the time since that’s when I thought you could kind of be trusted to be home alone a bit more. It's the age I was when my parents started leaving me at home a bit more, anyway. 
+Reginald leaned over to the door bell’s speaker, “We hear yah.”
 
-The weather was getting nicer outside as the spring rains became less frequent which means we could all start playing some games in the fenced in backyard which was great since there was a wooden jungle gym complete with a swing set. Up until that point we had to make do with either board games or Cory’s odd idea of action figures. There had been an old Mac computer in the upstairs common area, but it was always on this weird page that showed some sort of CCTV footage of an empty concrete room with no door and a flickering, fluorescent light. When I asked Jasper if we could play any games on it he said no.
+“Ah! Put a lid on it!” the voice called out, some shuffling was heard in the background. After a few moments her voice came back, “Can I help you?”
 
-“It only shows this screen,” he told me. “You can’t exit out of it or open a new tab or nothing. I tried to turn the screen off one day but the button didn’t work. Things just busted.”
+“Looking for Howie,” Reginald began, “You seen him?”
 
-“Have you tried unplugging it and plugging it back in?” I asked. 
+“Nope, don’t know who you’re talking about, got the wrong house, later bye!” The female voice called out.
 
-“Can’t find the power cord. It’s like it goes back into the wall or something.” he said. 
+“This is Howie’s house,” Reginald repeated, “If he’s not in, I still have some questions.”
 
-It freaked me out a bit at the time but as soon as we weren’t cooped up inside everyday I mostly forgot about it. 
+“Well sorry to say you won’t find any answers, so just toss an egg in your shoe and beat it, will yah?” The woman’s voice called out.
 
-We were in the backyard one day playing a game called ‘*Lava Monster*’. I’m sure it has a bunch of different names for different people but it’s where everyone gathers in different places on the jungle gym or various places that are off the ground. Whoever is the so-called ‘lava monster’ has to try and tag someone else restarting the game with them as the lava monster. The catch is that the monster can’t open their eyes when they’re off the ground, making their attempts to tag someone a grabby, dangerous mess. If a player is on the ground and the monster sees or hears them they can yell: “the ground is lava!” and that will count as a tag. 
+Cassara stared at the door, then to Reginald, “You want to kick the door in or should I?”
 
-Lucas, Sarah and I were all on the jungle gym staying away from Jasper. He was the lava monster for the round after Lucas tagged him in the previous one. Us three were growing a bit relaxed as we watched Jasper target another kid who was playing. I think his name was Ethan. Since Ethan was the odd man out being secluded on top of the swing set, Jasper had deemed him the easiest prey and was working out the best way to reach him. Casual conversation had started between us three as we watched the scene. 
+Reginald crossed his arms, looking to the door, “Have at it.”
 
-“How come you chose to play with us this time, Sarah?” Lucas asked. “You always sat alone watching us before.”
+“Uh, hey wait-” the woman’s voice called over the intercom as Cassara leaned back, picked her heel up, and kicked the large double doors in hard.
 
-“I don’t like playing when Cory is.” she said sheepishly.
+The doors broke, but didn’t smash open immediately.
 
-“Why not?” Lucas pressed. Sarah paused before answering. Like she was trying to order her words right.
+Cassara then placed both of her hands on the doors, with a bit of effort, forced them open.
 
-“If he gets you by saying the ground is lava, it really burns you.” she said as casually as one points out a cloud. 
+“Okay okay,” The girl’s voice called out, “So I gave you ample chance to just cheese it but, hey, you’re curisin’ for a bruising?  Come on in… The place is a bit of a mess though.”
 
-“No way.” Lucas said immediately. Tall tales were as common among us as they are among most children and it was as fun to vehemently defend them as it was to spread them. Despite this, Sarah simply nodded her head at Lucas and looked back to the scene of Ethan and Jasper. Most of the time when a child isn’t believed it becomes their new life mission to prove it true, but Sarah just nodded Lucas her answer and moved on. Like it wasn’t something she wanted to talk about. 
+We walked in, the lights on but, indeed, the place was a complete mess.
 
-I couldn’t really call her a liar. Whenever Cory was playing the game with us he never really relied on getting people on the ground. He would always go after them on the jungle gym. He was the best at the game and his rounds would never last long. He always seemed to know where everyone was, even with his eyes shut. 
+“The help’s been… less than helpful.  But hey, maybe that will change after you three show up,” the woman’s voice called out through the intercom before it shut off.
 
-I glanced over to Cory. He was on the deck, talking with Mrs. Rand. The conversation looked odd. It wasn’t the way a kid and an adult talk to each other. It was like two adults having a weird, calm argument or something. Cory was wearing a grimace talking at Mrs. Rand and she was staring forward, nodding occasionally. Her face was painted in her signature sadness. It was as if she didn’t want to meet his eyes. 
+I looked around the room.  There was a huge foyer with a large chandelier reaching up two or three floors.  Wilted flowers in pots lined the doorway, and the air smelled oddly stale.
 
-“Hey, why are you so dirty?” Lucas said, pulling me back into the game and the jungle gym. He was looking at Sarah. I remember being a little upset with him in that moment because even at that age I knew that was a rude question to ask. I had to admit though, she was *filthy*. Her hair was greasy and slightly matted and dirt clung to her skin and under her nails. Her clothes were a bit faded and worn and they even looked a little too small for her.
+Reginald slowly pulled a set of linked-rings out of his pockets, sliding them over the four fingers of his fist as he clenched them.
 
-“The showers don’t work here.” she said to him.
+Cassara paused, looking at Reginald's hand, “Are those collapsible brass knuckles?”
 
-“Why don’t you shower at home?” Lucas asked, a tone of judgement in his voice. 
+“These?  These are Madre,” Reginald informed.
 
-“I haven’t been home in a long time. The door isn’t there anymore.”
+“Madre?” Cassara asked.
 
-“What door?” I asked.
+“Cause when these come out, folks call out for their Madre,” Reginald clarified.
 
-“The front door.” she said. “It isn’t there for me anymore.”
+That’s when I heard a groan from our left.
 
-Lucas and I looked at each other not knowing what to say. I think we silently agreed that Sarah was just weird and left it at that. More time passed as Jasper failed to reach Ethan. I remember he was just attempting to climb up after him, his eyes clamped shut, when something above the tree line caught my eye.
+I turned and saw an emaciated corpse shambling towards us from a darkened hallway.
 
-“What’s that?” I said. It looked like a tower of some sort but it wasn’t right. All of the towers and skyscrapers I had seen by that point were made of steel beams and reflective windows, but this one looked like it was made of houses stacked on top of each other. The different colors of siding making up each layer. A beige set of shingles rested on the roof that topped the structure. It was uncanny to look upon. An overly tall house in the distance, the bottom of it obscured by trees. It had to be five or six stories high. 
+This one’s skin was darker than the first we had seen.  It wore loose fitting clothing not unlike what I would expect someone doing yard-work to be wearing.
 
-Lucas craned his neck to see where I was looking. Sarah knew immediately.
+“That explains the weeds outside,” I said as I took a step back.
 
-“That’s where the wax people are.” she said, keeping her apathetic tone. 
+Cassara was about to walk up to the Zombie before Reginald put his hand out to her shoulder, stopping her.
 
-“What?” I said, confused. “Wax people? Like… like the ones in museums?” Me and my parents had been to one such place in Keystone, South Dakota a couple of years back when we were visiting the Black Hills, but the tall house didn’t look like any museum I had ever seen. 
+“You got the door,” Reginald cracked his neck, “I get the Zombie.” He said as he marched towards the Zombie.
 
-“Kinda.” Sarah said. “But I think these ones are real people that put wax on their skin, cause they move and stuff. Sometimes they come over here and we all have to go in the crawl space. I don’t think it's happened since you two have been here.”
+I was about to say something before Reginald swung his fist at the Zombie’s face, knocking the thing’s head clear off.
 
-Again, Lucas and I just stared at her and then at each other. I was forming my next question on my lips when Ethan suddenly jumped down from the swing set to get away from Jasper’s flailing hand. He bolted to the fence and hopped up on it before Jasper could yell ‘the floor is lava!’. 
+“Just like in the movies,” Reginald said as he knocked the body over, which briefly remained standing, “That is more fun than it looks.”
 
-Jasper was after him quickly, running to the fence to try and tag him. Ethan swung his body to the other side and clung to it, avoiding the ground as much as Jasper. When he did I heard Mrs. Rand scream as she shot up from her chair on the deck and ran down the stairs.
+“Better be more for me, then,” Cassara said as she looked around.
 
-“You have to stay inside the fence!” she sobbed as she sprinted to Ethan and Jasper. Seeing her in this state immediately pulled the two out of the game and Ethan scrambled back inside the fence saying “Sorry! Sorry!”
+“If it’s like the Zombie movies,” Reginald said as more footsteps started to echo down the hallway, “and there it is.”
 
-When he hopped down Mrs. Rand grabbed his arm as well as Jaspers and backed them all away from the fence. Tears were streaming down her face by this point. When they were backed away twenty feet she released them and collapsed to the ground, shuddering. Ethan and Jasper took some steps away from her and froze, not knowing how to react. 
+“Are we sure these are even zombies?” I asked, unsure as I moved closer to the door.
 
-“So, how are you liking it here?” Cory said, right next to me. I jumped a bit but he didn’t seem to notice. I never even heard him climb up here with us. I must have been too focused on the commotion with Mrs. Rand and the other kids.
+“What else could they be?” Reginald asked, taking a step back as a few more shambling corpses made their way out of either hallway and towards the foyer.
 
-“Uh… it’s good.” I said. Cory’s face turned up in a smile, scrunching the scar tissue up in that way that always made me wince. He began to laugh in the shrill tone he always used.
+“I dunno, they don’t try to bite you,” I noted.
 
-“It is! It is good! You’re right!” he laughed, moving away and using the slide of the jungle gym. 
+“Yeah, and when they drink your energy, or whatever, you don’t turn into one,” Cassara added.
 
-Oh, god… I think I remember how I met Cory. I just remembered it now, as I’m writing this. Remembering his high pitched cackling knocked something loose, I think. 
+“Well I ain’t letting one get a nibble on me to prove that bit,” Reginald added as he and Cassara soon stood back to back.
 
-This must’ve been before I ever went to Mrs. Rand’s since he already knew me on my first day. My mom took me to a park near our house. I remember I wanted to go to the one at the school but it was being worked on or something, so we had to go to the only other close one. It was adjacent to a bike path that ran through the woods and was far more humble than the one at the school. Just a couple slides and a set of swings if I recall correctly. When we arrived, there were a couple other kids with their parents, but the only one that isn’t a faceless blur in my mind is Cory. 
+I realized rather quickly that I was not equipped to fight off this small horde of undead creatures, at least not as well as Cassara and Reginald were.  
 
-He looked just as he did at Mrs. Rand’s: white t-shirt, blue jean shorts, pale skin, pale blue eyes, a shiny bald head, and that pink scar that ran down his cheek. He wasn’t playing on any of the playground equipment like the other kids. He was just standing off to the side with his hand extended out. I must’ve walked up to him at some point because I remember asking him to play some sort of game with me, but he just stood there staring at me, holding his hand out. After not too long I reached my own out and clasped hands with him. He smiled and shook my hand excitedly. When we let go of each other he began prancing around and laughing that awful laugh.
+As I turned to my right, however, another man lunged at me.  It was another man dressed in gardening or landscaping attire.  
 
-“Now you’re in the weird!” he said to me as he hopped around. “You’re in the weird! You’re in the weird! You’re in the weird!” 
+He lunged at me, and I tried to step back.  
 
-I remember I laughed as he did it but when he kept going I stopped. I tried to talk to him, to ask him what that meant, but when he just kept going and going I left him and went on the slides. He pranced and shouted like that up until I was getting ready to leave with my mom.
+I closed my eyes, and saw the shadow world reappear.
 
-“What a happy little boy!” she laughed, looking at Cory. “I wonder where his mother is?” 
+Over this man’s body, from his mouth and his groin, of all places, were long tendrils of yellow energy.
 
-If Cory’s mom was there, I didn’t see her, and I watched him prance and yell the whole time we walked away, his small, bobbing figure getting smaller as we got further. I can’t believe I forgot about that. God, it’s all coming back to me now that I’m writing it out. I kind of wish it wasn’t. 
+From those two points, it seemed strings of the energy spidered through the corpse’s limbs, as if those smaller strings were controlling him.
+
+I turned around, noticing that the other undead were controlled the same way.
+
+I considered looking through the house, but thought better of it.  If I left my body for too long, like I did before, my body would apparently die without my essence.
+
+That’s when I felt something click in my head as I turned to face the creature shambling towards me.
+
+I moved to the creature, reaching out to the tendril of yellow around its crotch.  I tried to grab it, my ‘feather fingers’ not really flexing.
+
+Though they didn’t need to.  Just upon touching the yellow tendril, the thing snapped, like a rubber band, whipping away down the hallway from where it was reaching from.
+
+As it did, the strings through its lower body all vanished.  I swung my arm over the creature's head, severing the next tendril.
+
+I opened my eyes to see the corpse fall forward at my feet, completely lifeless.
+
+“Hey, uh, I think I figured it out!” I shouted, turning to Cassara and Reginald.  I paused, seeing the pair of them having punched, smashed, or otherwise dismantled most of the undead that had shambled in their direction. 
+
+“Figured what out?” Cassara asked as she turned to me.
+
+Reginald sighed, spinning his rings around one of his fingers, “Yeah, seemed pretty anti-climatic.”
+
+I heard the shambler behind me slowly start to move once more.  I spun on my heel, shocked to see the creature standing up slowly.
+
+I closed my eyes and saw that the tendrils had reattached to the thing’s crotch, another snaking its way to the creature’s head.  I turned within the spiritual world to see the other creatures had a similar situation, the tendrils moving their bodies closer together.
+
+Even without the heads attached, the bodies were still animated, standing up slowly.
+
+I opened my eyes, “Okay, maybe I didn’t figure it out,” I announced.
+
+Cassara glared at the undead creature as it stood up in front of me.  She kicked it in the chest, sending it flying.
+
+“So they get up, we knock them down,” Cassara hissed.
+
+“Hate to remind you,” Reginald said as he saw one of the undead creatures picking up its head and reattaching it, “But unlike these things, we might tire out eventually.  I suggest we regroup.” 
+
+I hefted my backpack and looked around the area, trying to figure out a good place to exit.
+
+Reginald headed to the front door, and as he did, the blond woman from before blocked our path. 
+
+She wore a similar outfit to the first time I had seen her, and I felt that same sensation as when she walked down the street.
+
+Though she was lacking her boots, standing there barefoot, revealing how demure and short she was.  Her long blond hair cascading down her back as her full pink lips turned up into a playful grin.
+
+“Everyone take a little breather, will yah?” the blond grinned at us as she looked to Reginald, “Especially you big guy, you look like you could use a brake.”
+
+“Okay girlie,” Reginald began as he closed his fist, “I don’t hit dames but if you don’t move I’m gonna knock you down a peg,” he narrowed his eyes, “Especially with you messing with the Boss’s business.”
+
+“Oh, buttons!” the blond gasped as she clutched her hands to her ample bosom, “Don’t hurt me Mister!  I ain’t done nothing wrong!” 
+
+Reginald glared at her, “You've done plenty wrong!”
+
+“Look me in the eye and say that!” She taunted.  
+
+Before Reginald could say anything, I watched a wave of yellow energy flash in her eyes.
+
+I turned away, “Don’t look!” I shouted.
+
+Cassara’s eyes were firmly on the blond woman, she glanced at me for a moment before her eyes grew glassy.
+
+I grabbed Cassara, trying to shake her arm, but she was standing like a statue.  
+
+I closed my eyes, seeing a sort of blind-fold of yellow energy around Cassara’s head.  
+
+I swung my arm at it, realizing a bit too late that I had also swung my actual opened hand there as well.
+
+I winced as I slapped Cassara, I opened my eyes, seeing Cassara’s head barely turned from the slap, though she wasn’t agitated.
+
+“What the…” Cassara turned to me, “Thanks.  It was like I couldn’t move-Oh fuck!” 
+
+“Shit!” I turned, seeing Reginald was still stupefied.
+
+“Oh you big lug!” the blond grinned and patted his chest, as she looked to me and Cassara, “You know, my num-nums aren’t doing a whole lot to your friends, but you sure look like you could!” With that, she gave Reginald a kiss.
+
+I closed my eyes, watching as the blindfold-like energy vanished, and now a long and potent tendril reached from the blond woman’s lips to Reginald’s.
+
+But that was not the only odd thing.
+
+The blond wasn’t human, not in the spiritual world.
+
+Her body was mostly shaped the same, sans for her legs.  
+
+Below her shins were a pair of cloven goat legs which had fur matching her blond hair, and a spaded tail waving back and forth.  Her eyes, blue normally, burned with yellow flames, her body surrounded in the yellow aura as her lips pulsed with the same energy. 
+
+The woman’s head featured a pair of long horns peaking out of her forehead, sweeping backwards and curving slightly with her hair.  Along her neck, however, was a violet set of chains.  
+
+The violet chains bore a symbol of a double cross and an infinity symbol around the base of it.  The chain loosely hung over her front, tying to her wrists and reached further to her feet.
+
+I opened my eyes wide, “She’s a-”
+
+“Fucking Succubus!  Are you kidding me?!” Cassara shouted, grabbing me and running into the building.
+
+“Go get ‘em, tiger!” The blond ordered.
+
+In front of us we spotted the original creature, Howie, apparently, now looking far more human, jumping out at us.  
+
+“Oh, you too I guess!” the blond shouted.
+
+I turned on my heel, my eyes wide as Reginald took a swing at me.
+
+Cassara pushed me out of the way, blocking Reginald’s fist with her own, wincing as she felt the steel rings wrapped around his fist, “Fuck,” she hissed in pain, “I need to get a set of those…” 
+
+Reginald swung his other fist at Cassara’s ribs, she dropped her elbow on his forearm, knocking him off balance.
+
+Reginald stumbled, pausing briefly, perhaps stunned from the shock of Cassara’s strike as he paused, “Just do it, I don’t wanna hurt you…” he growled before he rushed at Cassara again.
+
+I tried to help out, but soon found myself grabbed by Howie.  
+
+Howie’s lifeless eyes widened as he grabbed me, “More…” he hissed.
+
+I closed my eyes, seeing the spiritual world again.  
+
+I saw the large yellow tendril going to his head, as well as one from his crotch reaching to the woman.  
+
+I swung my arms at the tendrils, thinking it would be enough to knock him out, but the energy that he had drawn from Cassara and I still pulsed within his chest.  
+
+Howie opened his mouth, and I could see the darkness around his mouth drawing at my essence.
+
+In the spiritual world, at least now, his mouth pulled at me like a leech.  I could see my energy being sucked away from my chest.
+
+I pushed my wings against his mouth, and heard him scream in agony.
+
+My wings were of holy origin, which explained why they were able to temporarily break the yellow tendrils.  
+
+Just like before, however, I could see the yellow tendrils reaching out from the blond woman’s body.
+
+Another thought hit me, and I opened my eyes, running as far from Howie as possible as I reached into my pack, pulling out a bottle of the rum.  
+
+“Oh man,” I frowned, “Please be a doubtfully valid liquid…” I groaned as I recalled baptism suggestions from Arch Bishop Lefebvre.
+
+I looked at Cassara, “Cass, I’m really sorry, but I need to use a bottle of rum!”
+
+“Right now?!” Cassara shouted as she dodged Reginald’s strikes.  “Fuck! Reggie, I really don’t wanna kill you but you’re not giving me a whole lotta choices here!”
+
+“I’m going to bless it!” I shouted, pulling out my cross, “We need holy water!  I need to bless the rum!”
+
+“Would that even work with rum?!” Cassara shouted.
+
+The blond laughed, “uh, fuck no!” She chuckled.
+
+I pulled out the bottle, spotting Howie rushing at me.  I swung the rum at his head, breaking his jaw and sending him staggering backwards.
+
+“I mean if you use it like *that* I guess,” the blond rolled her eyes.
+
+I placed my cross on the bottle.
+
+I’ve blessed holy water before, and it’s nowhere near as fast and simple as you’d think.  I can’t just wave my hand over the water.
+
+You need to exorcise the water, and I need salt to add to it. 
+
+I grabbed at the neckerchief around my neck, which had been soaked with sweat from not just the heat, but also the heat of battle. 
+
+As I looked at the neckerchief and bottle, I had to hope there was enough salt and water in both to do what I needed to do. 
+
+I closed my eyes and opened them to the spirit world.
+
+“Okay,” I said in the spiritual world, “This is for brevity, but: *O water, O Salt, creature of God, I exorcise you in the name of God the Father almighty, and in the name of Jesus Christ His Son, our Lord, and in the power of the Holy Spirit. I exorcise you so that you may put to flight all the power of the Enemy, and be able to root out and supplant that Enemy with his apostate angels: through the power of our Lord Jesus Christ, Who will come to judge the living and the dead and the world by fire. Amen.”*
+
+As I spoke, I watched as my words made the cross in my hand glow, as well as the neckerchief.  The white parts of my essence reach out and enter the bottle, and surround the neckerchief.  I could see within its portions glowing, mixing.
+
+Soon, after a few moments, the bottle glowed blue.
+
+I picked up the bottle, opening my eyes as I made the sign of the cross over the bottle, and squeezed the sweat from neckerchief into the opened bottle, “*Blessed are you, Lord, Almighty God, who deigned to bless us in Christ, the living water of our salvation, and to reform us interiorly, grant that we who are fortified by the sprinkle or use of this water, the youth of the spirit being reviewed by the power of the Holy Spirit, may walk always in newness of life.”* 
+
+I corked the bottle, shook it and uncorked it.  
+
+I splashed the contents on Howie just as his jaw snapped back into place.
+
+He paused for a moment, before his jaw went slack, and his body collapsed.
+
+I felt a surge of energy as the essence he stole from me rushed back into me.
+
+Reginald went flying as I saw fire surrounding Cassara’s hands.
+
+“What the fuck!” Cassara said, turning to me, “Oh… Holy shit that actually worked?!” Cassara narrowed her eyes on me, “And I’m down to nine bottles!?”
+
+I rushed over to Reginald, dabbing my finger with the rum, making a cross on his forehead with the blessed rum.
+
+Reginald’s eyes lost their glassy appearance as he blinked, looking at me, “...Uh.”
+
+“I blessed the rum, it kills the… whatever they are!” I explained.
+
+“My num-nums!” The blond shouted, stomping her foot, “I can’t believe that worked!” she paused, “Well.. Actually the sacrament is alcohol too, I guess.  But that’s wine!  This bites!” 
+
+Reginald sat up, and took hold of the bottle, “I got this…” 
+
+“Huh?” I said as he took a swig of the bottle as the other undead creatures moved towards us.
+
+Reginald looked to Cassara’s hands which still had flames and made a motion with his mouth full of rum.
+
+Cassara shrugged, and moved her hand close to his mouth.
+
+I stood back and Reginald spewed out a mist of rum, the undead gardener rushing at him engulfed in flames before it collapsed to the floor.
+
+Reginald took another swing, and repeated this, knocking the remaining three or four undead creatures to the ground.
+
+I closed my eyes, seeing that each corpse now was lifeless, yet pulsing with soft blue energy.
+
+“Really?  All of my Ghouls?” The woman sighed.  
+
+I glared at the woman, narrowing my eyes, “Okay, what the hell are you?”
+
+Reginald growled, “Fuck!” he glared at her, “Howie’s dead!”
+
+The woman rolled her eyes, “Uh, yeah?  He was the first guy I drained when I got here.”
+
+“Drained?” Reginald asked as the blond woman stood at the doorway, “What the fuck are you?”
+
+She rolled her eyes, snapping her fingers, spinning her finger in the air as yellow flames surrounded her.
+
+Now she stood before us, her body matching her spirit far more closely as she smiled wide.
+
+Behind her were large yellow leathery wings, and with her cloven hooves she was a head higher than before.
+
+Her body was wrapped in a form fitting black top, and jacket with tassels on the shoulders.  Her legs were clad in similar material, almost like black denim, and her hands were gloved.  A whip was at her side, coiled up on her belt and holstered.  
+
+She looked like a back-up dancer in some kind of 90s pop video, if said dancer were a demon.
+
+I shivered as I saw, well, a demon standing before me.  A full blown demon.
+
+She tossed her fingers to the floor, where a strange glowing violet sigil appeared .
+
+“What did you just do?” Cassara hissed.
+
+“Don’t worry about that,” she said with a grin, “I’d be worried about yourselves right now.  You took out all of my Ghouls, and now I’m going to have to deal with you myself.”
+
+“Who or what the fuck are you?” Reginald asked, the rum in his hand still.
+
+“Me?” She grinned, revealing elongated canine teeth, “I’m Brittney, Bitch.” 
+
+“N offense,” Cassara scoffed, “Brittney, but we handled your shitty minions just fine, and while you might be a demon, you don’t look like much.”
+
+“Oh, I’m not!” Brittney said as she jumped into the air, landing behind Cassara, “But don’t think I didn’t notice you checkin' me out!”
+
+“Hey fuck you-” Cassara winced as Brittney’s tail jabbed into Cassara’s fist. “Ah, bitch!  I’m gonna… I’m…” Cassara’s eyes grew glassy again.
+
+“Reginald, the bottle!” I shouted.
+
+Brittney giggled as Reginald rushed over to us, trying to spill the contents of the bottle on Cassara.
+
+Before he could, Brittney kissed Cassara rather deeply before she pulled back, “They’re gonna hurt me baby…”
+
+Cassara’s hand whipped out to Reginald’s throat, knocking the wind out of him, if not damn near breaking his wind pipe.
+
+The bottle rolled to the ground, spilling its contents to the floor.
+
+“Whoopsie Daisies!" Brittney said with a grin, “butter fingers!”
+
+I looked to Reginald, “You okay?!”
+
+Reginald coughed, catching his breath as he shook his head.
+
+“Like I said, I’m not much,” Brittney taunted, “But now you gotta deal with the Valkyrie."
+
+Cassara kicked Reginald in the mouth, sending him rolling towards me, her eyes slightly glassy and yellowish as she lifted her fists up, both igniting in flames.
+
+“Oh and, just a heads up daddios!” Brittney laughed as Cassara started moving towards Reginald and I, “She’s not pulling her punches no [more](https://www.reddit.com/r/The_Guardian_Temple/).”
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1mxkgx5/im_a_missionary_and_theres_too_many_demons_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
