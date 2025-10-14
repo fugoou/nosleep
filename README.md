@@ -1,364 +1,781 @@
-# I'm a Missionary and These Undead aren't really Zombies
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ml85bx/im_a_missionary_and_now_i_see_things_in_the/) l [Part 2](https://www.reddit.com/r/nosleep/comments/1mnuanp/im_a_missionary_and_florida_is_zombiecountry/) l [Part 3](https://www.reddit.com/r/nosleep/comments/1mraofk/im_a_missionary_and_my_friend_has_to_save_me_from/)
+# My flatmates and I keep waking up to our rooms rearranged—perfectly, but none of us did it.
+I noticed it first on a Wednesday morning.
 
-I froze for a few moments.
+I only realised something was off because I stubbed my toe on the corner of my bed. I’ve lived in this room for three months now,same layout, same morning routine, same bleary shuffle toward my desk to check if I’d missed any passive aggressive seminar emails. I don’t stub my toe. Not unless something’s moved.
 
-His boss was killed by an angel?  I thought back to the Angel Sofia I had seen in my dream (was it a dream?).  
+The bedframe was about six inches further from the wall than usual. Not by a lot, but enough that I knew. It left a thin line of dust visible on the carpet where it used to sit like a ghost outline. That’s what made me stop.
 
-She was short, physically, sure.  But when I saw her spirit she filled the room with wings, and the very scenery around us was clearly controlled by her mere presence. 
+I stood there, blinking at it.
 
-But could she have killed me?  If I had failed her challenge completely, she told me I would die.  But I thought, even then, that it was some kind of bluff.
+It’s not the kind of bed you move by accident. Solid wood. Heavy. You have to lift one end to reposition it, and it makes this awful scraping noise that echoes through the flat. There’s no way someone could’ve moved it during the night without waking me up or the rest of the building.
 
-Surely an Angel wouldn’t kill someone, right?
+I checked my door. Locked from the inside, same as always. Window? Still latched. Room? Still mine.
 
-“See,” Reginald said, his voice snapped me away from my thoughts, “Knew you wouldn’t believe me.”
+My first thought was maybe I did it in my sleep. But I don’t sleepwalk. I don’t even toss and turn much. I wake up in the same position I fall asleep in, usually with my arm completely numb and my pillow covered in drool.
 
-“No, I do,” I said with a frown, “but I’m just hard pressed to believe an Angel would kill someone.”
+I moved the bed back, more annoyed than anything. My toe throbbed.
 
-Cassara laughed, “Really?  I’ve seen angels kill folks all the time.”
+That’s when I noticed the lamp.
 
-Reginald and I’s attention was now on Cassara.
+It sits on my desk, angled toward my chair. Always has. I’m obsessive about my lighting setup I do all my coursework late, and that little spotlight of yellow is the only thing keeping me from going blind during all nighters.
 
-Cassara looked between both of us, “Oh, uh…” She cleared her throat.
+Now it was facing the wall.
 
-Any hope for an explanation was interrupted now by the intercom clicking on, “Like this? This?  Am I doing it right?  Come on, say something more than ‘uuuurrrrrgh’!” A woman’s voice chimed in through the door-bell camera.
+Not knocked or bumped. Rotated. Rotated deliberately.
 
-Reginald leaned over to the door bell’s speaker, “We hear yah.”
+Like someone had turned it so the light was pointing into the corner instead of the desk. Like someone wanted it not to shine on my work. Or on me.
 
-“Ah! Put a lid on it!” the voice called out, some shuffling was heard in the background. After a few moments her voice came back, “Can I help you?”
+I frowned. Tried to remember if I’d done it. Maybe I’d been on a call and didn’t want the glare in my face? Maybe I bumped it while grabbing my charger?
 
-“Looking for Howie,” Reginald began, “You seen him?”
+Except it wasn’t just the lamp.
 
-“Nope, don’t know who you’re talking about, got the wrong house, later bye!” The female voice called out.
+My chair was at a different angle too. Slightly pulled out from the desk. The plug for my laptop wasn’t in the socket, it was neatly coiled on the table like I was prepping for a move. 
+Nothing stolen. Nothing damaged.
 
-“This is Howie’s house,” Reginald repeated, “If he’s not in, I still have some questions.”
+Just…arranged.
 
-“Well sorry to say you won’t find any answers, so just toss an egg in your shoe and beat it, will yah?” The woman’s voice called out.
+Carefully. Quietly.
 
-Cassara stared at the door, then to Reginald, “You want to kick the door in or should I?”
+I didn’t mention it to the others. At uni, half the flat’s usually hungover or high at any given point, and everyone’s constantly borrowing or touching each other’s stuff without asking. But my door was locked. Still locked. And I sleep light,I would’ve heard it. Right?
 
-Reginald crossed his arms, looking to the door, “Have at it.”
+I shook it off. Told myself I was tired. Maybe stressed. Maybe it was nothing.
 
-“Uh, hey wait-” the woman’s voice called over the intercom as Cassara leaned back, picked her heel up, and kicked the large double doors in hard.
+Just uni paranoia. Cabin fever. Messing with myself.
 
-The doors broke, but didn’t smash open immediately.
+But that night, when I got into bed, I moved the lamp back to face the desk. I pushed the chair in and plugged the charger back in.
 
-Cassara then placed both of her hands on the doors, with a bit of effort, forced them open.
+And just before I turned off the light, I took a quick photo of my room.
 
-“Okay okay,” The girl’s voice called out, “So I gave you ample chance to just cheese it but, hey, you’re curisin’ for a bruising?  Come on in… The place is a bit of a mess though.”
+Just to be sure.
 
-We walked in, the lights on but, indeed, the place was a complete mess.
+&nbsp;
 
-“The help’s been… less than helpful.  But hey, maybe that will change after you three show up,” the woman’s voice called out through the intercom before it shut off.
+I didn’t plan to mention anything. I figured if I started telling people I thought my furniture was moving on its own, someone would recommend I see a therapist, or worse, start recording me while I sleep for TikTok clout.
 
-I looked around the room.  There was a huge foyer with a large chandelier reaching up two or three floors.  Wilted flowers in pots lined the doorway, and the air smelled oddly stale.
+But I didn’t have to bring it up.
 
-Reginald slowly pulled a set of linked-rings out of his pockets, sliding them over the four fingers of his fist as he clenched them.
+It was Katy who cracked first.
 
-Cassara paused, looking at Reginald's hand, “Are those collapsible brass knuckles?”
+I was in the kitchen waiting for the kettle to scream, when she appeared in the doorway looking like hell. Oversized hoodie, yesterday’s eyeliner, socks that didn’t match. Not unusual. But there was this weird tightness in her face, like she hadn’t slept properly.
 
-“These?  These are Madre,” Reginald informed.
+“You were up late, right?” she asked.
 
-“Madre?” Cassara asked.
+I shrugged. “Yeah. Why?”
 
-“Cause when these come out, folks call out for their Madre,” Reginald clarified.
+“Did you go in my room?”
 
-That’s when I heard a groan from our left.
+I blinked. “No. Why would I?”
 
-I turned and saw an emaciated corpse shambling towards us from a darkened hallway.
+“My mirror’s moved.”
 
-This one’s skin was darker than the first we had seen.  It wore loose fitting clothing not unlike what I would expect someone doing yard-work to be wearing.
+She leaned against the counter, arms crossed. Not accusing, exactly. But watching me too closely.
 
-“That explains the weeds outside,” I said as I took a step back.
+“It’s not just moved…it’s angled. Like, deliberately. I always keep it facing the window. Now it’s turned toward the bed. And my ring light’s unplugged.”
 
-Cassara was about to walk up to the Zombie before Reginald put his hand out to her shoulder, stopping her.
+That made me pause.
 
-“You got the door,” Reginald cracked his neck, “I get the Zombie.” He said as he marched towards the Zombie.
+“Maybe you did it and forgot?” I offered. “Like sleepwalking or something?”
 
-I was about to say something before Reginald swung his fist at the Zombie’s face, knocking the thing’s head clear off.
+She shook her head. “I don’t sleepwalk. And I always plug my ring light in before bed because I use it as a lamp. I even remember switching it on.”
 
-“Just like in the movies,” Reginald said as he knocked the body over, which briefly remained standing, “That is more fun than it looks.”
+She paused.
 
-“Better be more for me, then,” Cassara said as she looked around.
+“And my phone was under the bed this morning. I don’t keep it there.”
 
-“If it’s like the Zombie movies,” Reginald said as more footsteps started to echo down the hallway, “and there it is.”
+We stood in silence for a beat, kettle bubbling up behind us.
 
-“Are we sure these are even zombies?” I asked, unsure as I moved closer to the door.
+“You sure you didn’t go in?”
 
-“What else could they be?” Reginald asked, taking a step back as a few more shambling corpses made their way out of either hallway and towards the foyer.
+“Positive,” I said. “My door was locked. Didn’t leave my room.”
 
-“I dunno, they don’t try to bite you,” I noted.
+“Mine wasn’t,” she muttered. Then added, too casually, “It is now.”
 
-“Yeah, and when they drink your energy, or whatever, you don’t turn into one,” Cassara added.
 
-“Well I ain’t letting one get a nibble on me to prove that bit,” Reginald added as he and Cassara soon stood back to back.
+Later that day, I bumped into Jen in the hallway. She was standing outside the bathroom, arms folded, staring at nothing.
 
-I realized rather quickly that I was not equipped to fight off this small horde of undead creatures, at least not as well as Cassara and Reginald were.  
+“You moved my desk,” she said, not looking at me.
 
-As I turned to my right, however, another man lunged at me.  It was another man dressed in gardening or landscaping attire.  
+“Jesus Christ, not this again.”
 
-He lunged at me, and I tried to step back.  
+“It’s facing the window now. Dead centre. Perfect alignment. Like some interior design freak came in during the night and decided to Feng Shui my coursework stress.”
 
-I closed my eyes, and saw the shadow world reappear.
+She turned, narrowed her eyes.
 
-Over this man’s body, from his mouth and his groin, of all places, were long tendrils of yellow energy.
+“That’s not a joke, by the way. The chair’s lined up too. My Bluetooth speaker’s been unplugged and the plug’s folded over the top neatly. Neatly.”
 
-From those two points, it seemed strings of the energy spidered through the corpse’s limbs, as if those smaller strings were controlling him.
+She pulled out her phone and showed me a photo.
 
-I turned around, noticing that the other undead were controlled the same way.
+“I don’t do neat.”
 
-I considered looking through the house, but thought better of it.  If I left my body for too long, like I did before, my body would apparently die without my essence.
+The desk was immaculate. Lined up like it was being presented in an IKEA showroom. A water bottle dead centre. Coaster aligned. Chair pushed in. It looked... curated.
 
-That’s when I felt something click in my head as I turned to face the creature shambling towards me.
+Jen doesn’t curate. Jen leaves half empty Monster cans in every room like she's claiming territory.
 
-I moved to the creature, reaching out to the tendril of yellow around its crotch.  I tried to grab it, my ‘feather fingers’ not really flexing.
+“You trying to mess with us for content or something?” she asked. “Like a prank channel or some flat horror story bullshit?”
 
-Though they didn’t need to.  Just upon touching the yellow tendril, the thing snapped, like a rubber band, whipping away down the hallway from where it was reaching from.
+“I swear I’m not doing anything,” I said, holding up my hands.
 
-As it did, the strings through its lower body all vanished.  I swung my arm over the creature's head, severing the next tendril.
+She didn’t say anything else. Just walked into the bathroom and closed the door harder than necessary.
 
-I opened my eyes to see the corpse fall forward at my feet, completely lifeless.
+We had dinner together that night well, kind of. Everyone microwaved their own disasters and ended up orbiting around the living room like lazy satellites. One person on the sofa. Two on the floor. Kerry perched on the armrest like a gremlin, bowl of pesto pasta in hand.
 
-“Hey, uh, I think I figured it out!” I shouted, turning to Cassara and Reginald.  I paused, seeing the pair of them having punched, smashed, or otherwise dismantled most of the undead that had shambled in their direction. 
+“What if we’re doing it to ourselves in our sleep?” she asked between mouthfuls.
 
-“Figured what out?” Cassara asked as she turned to me.
+“Or maybe there’s some flat elf,” Sally added, yawning. “Like that story. The cobbler thing. But instead of shoes it just wants our shit symmetrical.”
 
-Reginald sighed, spinning his rings around one of his fingers, “Yeah, seemed pretty anti-climatic.”
+“Casper the anal-retentive,” Jen muttered.
 
-I heard the shambler behind me slowly start to move once more.  I spun on my heel, shocked to see the creature standing up slowly.
+There was laughter. Light, scattered, a little too forced.
 
-I closed my eyes and saw that the tendrils had reattached to the thing’s crotch, another snaking its way to the creature’s head.  I turned within the spiritual world to see the other creatures had a similar situation, the tendrils moving their bodies closer together.
+Then someone said quietly
 
-Even without the heads attached, the bodies were still animated, standing up slowly.
+“Or maybe we’ve got a creep with a key.”
 
-I opened my eyes, “Okay, maybe I didn’t figure it out,” I announced.
+Everyone stopped for a second.
 
-Cassara glared at the undead creature as it stood up in front of me.  She kicked it in the chest, sending it flying.
+Then Katy snorted. “If someone’s creeping around rearranging my shit instead of robbing me, they’re the weirdest criminal alive.”
 
-“So they get up, we knock them down,” Cassara hissed.
+“Or the most patient,” Sally said. She was mostly under a blanket now, just her eyes and wine glass visible. “They’re playing the long game. Next week they’ll alphabetise our books and sort the spice rack by trauma.”
 
-“Hate to remind you,” Reginald said as he saw one of the undead creatures picking up its head and reattaching it, “But unlike these things, we might tire out eventually.  I suggest we regroup.” 
+More laughter.
 
-I hefted my backpack and looked around the area, trying to figure out a good place to exit.
+As we all went off to bed, I heard it.. The quiet click. One by one. Everyone was locking their doors now.
 
-Reginald headed to the front door, and as he did, the blond woman from before blocked our path. 
+Including mine.
 
-She wore a similar outfit to the first time I had seen her, and I felt that same sensation as when she walked down the street.
+And yet, in the morning... things still weren’t quite right.
 
-Though she was lacking her boots, standing there barefoot, revealing how demure and short she was.  Her long blond hair cascading down her back as her full pink lips turned up into a playful grin.
+&nbsp;
 
-“Everyone take a little breather, will yah?” the blond grinned at us as she looked to Reginald, “Especially you big guy, you look like you could use a brake.”
+I started keeping a log.
 
-“Okay girlie,” Reginald began as he closed his fist, “I don’t hit dames but if you don’t move I’m gonna knock you down a peg,” he narrowed his eyes, “Especially with you messing with the Boss’s business.”
+Not some proper journal or anything just a note on my phone titled “???” where I listed what had changed, and when.
 
-“Oh, buttons!” the blond gasped as she clutched her hands to her ample bosom, “Don’t hurt me Mister!  I ain’t done nothing wrong!” 
+At first it was small stuff.
 
-Reginald glared at her, “You've done plenty wrong!”
+Thursday 09:12 – bed 4 inches off-centre
 
-“Look me in the eye and say that!” She taunted.  
 
-Before Reginald could say anything, I watched a wave of yellow energy flash in her eyes.
+Friday 08:44 – lamp turned fully toward wall again
 
-I turned away, “Don’t look!” I shouted.
 
-Cassara’s eyes were firmly on the blond woman, she glanced at me for a moment before her eyes grew glassy.
+Saturday 10:03 – bin emptied, perfectly clean bag, no smell
 
-I grabbed Cassara, trying to shake her arm, but she was standing like a statue.  
 
-I closed my eyes, seeing a sort of blind-fold of yellow energy around Cassara’s head.  
+That last one weirded me out more than the others. We’re five students living in a three bed flat. No one empties the bin without complaining about it at least twice, and definitely not without stuffing it full of food wrappers, crushed Red Bulls and someone's half-eaten rice that’s started its own ecosystem.
 
-I swung my arm at it, realizing a bit too late that I had also swung my actual opened hand there as well.
+But Saturday morning?
 
-I winced as I slapped Cassara, I opened my eyes, seeing Cassara’s head barely turned from the slap, though she wasn’t agitated.
+Pristine.
 
-“What the…” Cassara turned to me, “Thanks.  It was like I couldn’t move-Oh fuck!” 
+Bag tucked neatly around the rim. No overhang. No smell. No noise.
 
-“Shit!” I turned, seeing Reginald was still stupefied.
+Like it had never been used.
 
-“Oh you big lug!” the blond grinned and patted his chest, as she looked to me and Cassara, “You know, my num-nums aren’t doing a whole lot to your friends, but you sure look like you could!” With that, she gave Reginald a kiss.
+That same night, I moved my desk slightly. Just to test something. I dragged it an inch to the left not enough to notice casually, but enough that I’d know.
 
-I closed my eyes, watching as the blindfold-like energy vanished, and now a long and potent tendril reached from the blond woman’s lips to Reginald’s.
+I took a photo before bed.
 
-But that was not the only odd thing.
+Tucked my chair in.
 
-The blond wasn’t human, not in the spiritual world.
+Locked the door.
 
-Her body was mostly shaped the same, sans for her legs.  
+Left my charger plugged in.
 
-Below her shins were a pair of cloven goat legs which had fur matching her blond hair, and a spaded tail waving back and forth.  Her eyes, blue normally, burned with yellow flames, her body surrounded in the yellow aura as her lips pulsed with the same energy. 
+Did everything exactly how I wanted it.
 
-The woman’s head featured a pair of long horns peaking out of her forehead, sweeping backwards and curving slightly with her hair.  Along her neck, however, was a violet set of chains.  
+Woke up the next morning.
 
-The violet chains bore a symbol of a double cross and an infinity symbol around the base of it.  The chain loosely hung over her front, tying to her wrists and reached further to her feet.
+Desk was back.
 
-I opened my eyes wide, “She’s a-”
+Chair slightly further under.
 
-“Fucking Succubus!  Are you kidding me?!” Cassara shouted, grabbing me and running into the building.
+Charger unplugged and coiled neatly on the windowsill. But the worst part?
 
-“Go get ‘em, tiger!” The blond ordered.
+There was a fresh post-it note on my monitor that said
 
-In front of us we spotted the original creature, Howie, apparently, now looking far more human, jumping out at us.  
+“Nice try.”
 
-“Oh, you too I guess!” the blond shouted.
+I stood there for so long my phone alarm restarted. I didn’t touch anything. I didn’t even breathe properly.
 
-I turned on my heel, my eyes wide as Reginald took a swing at me.
+No one else had keys to my room. No one had come in. I checked the photo, desk moved, timestamped. I checked the new one, desk back, timestamped.
 
-Cassara pushed me out of the way, blocking Reginald’s fist with her own, wincing as she felt the steel rings wrapped around his fist, “Fuck,” she hissed in pain, “I need to get a set of those…” 
+It wasn’t a prank. Not anymore.
 
-Reginald swung his other fist at Cassara’s ribs, she dropped her elbow on his forearm, knocking him off balance.
+I confronted the others in the kitchen. Calmly. No accusations. I just said, “Someone’s in my room while I sleep.”
 
-Reginald stumbled, pausing briefly, perhaps stunned from the shock of Cassara’s strike as he paused, “Just do it, I don’t wanna hurt you…” he growled before he rushed at Cassara again.
+They all looked at me like I’d dropped a turd in the sink.
 
-I tried to help out, but soon found myself grabbed by Howie.  
+“You sure you’re not just doing it and forgetting?” Kerry asked, voice too light.
 
-Howie’s lifeless eyes widened as he grabbed me, “More…” he hissed.
+“No offence, mate, but you’re not exactly a heavy sleeper,” Katy added. “You wake up when someone breathes outside your door.”
 
-I closed my eyes, seeing the spiritual world again.  
+“Could be stress,” Sally offered. “You’ve got that coursework due, right?”
 
-I saw the large yellow tendril going to his head, as well as one from his crotch reaching to the woman.  
+Jen didn’t say anything. Just stared into her cereal like it had answers.
 
-I swung my arms at the tendrils, thinking it would be enough to knock him out, but the energy that he had drawn from Cassara and I still pulsed within his chest.  
+So I asked her directly. “Anything weird in your room?”
 
-Howie opened his mouth, and I could see the darkness around his mouth drawing at my essence.
+She hesitated. Long enough to make everyone else turn toward her.
 
-In the spiritual world, at least now, his mouth pulled at me like a leech.  I could see my energy being sucked away from my chest.
+“My laptop’s on the floor every morning,” she said finally. “Closed. Battery dead. I keep it charging on my desk. Every night.”
 
-I pushed my wings against his mouth, and heard him scream in agony.
+“Could’ve fallen,” someone said.
 
-My wings were of holy origin, which explained why they were able to temporarily break the yellow tendrils.  
+“Every night?”
 
-Just like before, however, I could see the yellow tendrils reaching out from the blond woman’s body.
+No one responded.
 
-Another thought hit me, and I opened my eyes, running as far from Howie as possible as I reached into my pack, pulling out a bottle of the rum.  
+“And it’s not just fallen,” Jen added. “It’s placed. Right under the bed. And my desk drawer’s always open a crack.”
 
-“Oh man,” I frowned, “Please be a doubtfully valid liquid…” I groaned as I recalled baptism suggestions from Arch Bishop Lefebvre.
+She looked up.
 
-I looked at Cassara, “Cass, I’m really sorry, but I need to use a bottle of rum!”
+“Someone’s looking through my stuff. I can feel it.”
 
-“Right now?!” Cassara shouted as she dodged Reginald’s strikes.  “Fuck! Reggie, I really don’t wanna kill you but you’re not giving me a whole lotta choices here!”
+That night, we all locked our doors again. Some of us stacked chairs against the handle. Sally wedged a spoon under hers “for vibes.”
 
-“I’m going to bless it!” I shouted, pulling out my cross, “We need holy water!  I need to bless the rum!”
+Didn’t matter.
 
-“Would that even work with rum?!” Cassara shouted.
+Next morning, every room was changed.
 
-The blond laughed, “uh, fuck no!” She chuckled.
+Katy’s desk had been rotated a full ninety degrees to face her wardrobe. Kerry’s bookshelf was sorted by colour. Sally’s wall calendar was flipped to October 2031.
 
-I pulled out the bottle, spotting Howie rushing at me.  I swung the rum at his head, breaking his jaw and sending him staggering backwards.
+Mine?
 
-“I mean if you use it like *that* I guess,” the blond rolled her eyes.
+Everything was perfect.
 
-I placed my cross on the bottle.
+Bed, desk and lamp aligned like a blueprint. Every item spaced evenly. A line of socks laid out end to end, like someone had measured the gaps between them.
 
-I’ve blessed holy water before, and it’s nowhere near as fast and simple as you’d think.  I can’t just wave my hand over the water.
+And on my windowsill, another post it.
 
-You need to exorcise the water, and I need salt to add to it. 
+This one said
 
-I grabbed at the neckerchief around my neck, which had been soaked with sweat from not just the heat, but also the heat of battle. 
+“Better.”
 
-As I looked at the neckerchief and bottle, I had to hope there was enough salt and water in both to do what I needed to do. 
+&nbsp;
 
-I closed my eyes and opened them to the spirit world.
+By this point, I’d ruled out a prank.
 
-“Okay,” I said in the spiritual world, “This is for brevity, but: *O water, O Salt, creature of God, I exorcise you in the name of God the Father almighty, and in the name of Jesus Christ His Son, our Lord, and in the power of the Holy Spirit. I exorcise you so that you may put to flight all the power of the Enemy, and be able to root out and supplant that Enemy with his apostate angels: through the power of our Lord Jesus Christ, Who will come to judge the living and the dead and the world by fire. Amen.”*
+If someone was fucking with us, they were doing it with the dedication of a serial killer or a niche performance artist. No chaos, no mess, no attention-seeking. Just quiet, invasive order. 
+Everything clean. Everything intentional.
 
-As I spoke, I watched as my words made the cross in my hand glow, as well as the neckerchief.  The white parts of my essence reach out and enter the bottle, and surround the neckerchief.  I could see within its portions glowing, mixing.
+So I did the only thing I could think of.
 
-Soon, after a few moments, the bottle glowed blue.
+I set up a camera.
 
-I picked up the bottle, opening my eyes as I made the sign of the cross over the bottle, and squeezed the sweat from neckerchief into the opened bottle, “*Blessed are you, Lord, Almighty God, who deigned to bless us in Christ, the living water of our salvation, and to reform us interiorly, grant that we who are fortified by the sprinkle or use of this water, the youth of the spirit being reviewed by the power of the Holy Spirit, may walk always in newness of life.”* 
+I dug out my old Logitech webcam from the drawer under the socks and random cables void, dusted it off, and wedged it onto the shelf above my desk. Not subtle, not fancy, but high enough to get most of the room. Bed, desk, chair, door. The cupboard wasn’t in frame, but whatever. I wasn’t expecting a ghost crawlspace episode.
 
-I corked the bottle, shook it and uncorked it.  
+I cleared 100GB off my laptop. Created a folder labelled “Do Not Delete.” Opened OBS. Hit record.
 
-I splashed the contents on Howie just as his jaw snapped back into place.
+I even left the lights on just to make sure the footage wouldn’t be pitch black. If something moved, I’d see it. I checked the angle three times before bed. Took a photo of the setup. 
 
-He paused for a moment, before his jaw went slack, and his body collapsed.
+Locked my door. Hid the key in my sock drawer.
 
-I felt a surge of energy as the essence he stole from me rushed back into me.
+Then I laid down, fully clothed, staring at the ceiling like I was waiting to be abducted.
 
-Reginald went flying as I saw fire surrounding Cassara’s hands.
+&nbsp;
 
-“What the fuck!” Cassara said, turning to me, “Oh… Holy shit that actually worked?!” Cassara narrowed her eyes on me, “And I’m down to nine bottles!?”
+**Recording 1**
 
-I rushed over to Reginald, dabbing my finger with the rum, making a cross on his forehead with the blessed rum.
+Size: 1.8MB.
 
-Reginald’s eyes lost their glassy appearance as he blinked, looking at me, “...Uh.”
+The next morning, the file was exactly 2 seconds long.
 
-“I blessed the rum, it kills the… whatever they are!” I explained.
+Video: black and white still of the room.
 
-“My num-nums!” The blond shouted, stomping her foot, “I can’t believe that worked!” she paused, “Well.. Actually the sacrament is alcohol too, I guess.  But that’s wine!  This bites!” 
+No audio. No movement.
 
-Reginald sat up, and took hold of the bottle, “I got this…” 
+And I wasn’t in the bed.
 
-“Huh?” I said as he took a swig of the bottle as the other undead creatures moved towards us.
+Just an empty frame.
 
-Reginald looked to Cassara’s hands which still had flames and made a motion with his mouth full of rum.
+Covers untouched.
 
-Cassara shrugged, and moved her hand close to his mouth.
+Pillow hasn't been laid on..
 
-I stood back and Reginald spewed out a mist of rum, the undead gardener rushing at him engulfed in flames before it collapsed to the floor.
+Like I hadn’t been there at all.
 
-Reginald took another swing, and repeated this, knocking the remaining three or four undead creatures to the ground.
+I checked the timecode, 11:11pm.
 
-I closed my eyes, seeing that each corpse now was lifeless, yet pulsing with soft blue energy.
+Which is exactly when I turned the camera on.
 
-“Really?  All of my Ghouls?” The woman sighed.  
+I told myself maybe I hit record after I got up to turn off the light. Maybe it glitched. Maybe it corrupted.
 
-I glared at the woman, narrowing my eyes, “Okay, what the hell are you?”
+I told myself a lot of things.
 
-Reginald growled, “Fuck!” he glared at her, “Howie’s dead!”
+&nbsp;
 
-The woman rolled her eyes, “Uh, yeah?  He was the first guy I drained when I got here.”
+**Recording 2**
 
-“Drained?” Reginald asked as the blond woman stood at the doorway, “What the fuck are you?”
+Night two, I tried again.
 
-She rolled her eyes, snapping her fingers, spinning her finger in the air as yellow flames surrounded her.
+Same setup. Double-checked the software.
 
-Now she stood before us, her body matching her spirit far more closely as she smiled wide.
+Triple-checked the angle.
 
-Behind her were large yellow leathery wings, and with her cloven hooves she was a head higher than before.
+Left the lights on again. Left the laptop charging.
 
-Her body was wrapped in a form fitting black top, and jacket with tassels on the shoulders.  Her legs were clad in similar material, almost like black denim, and her hands were gloved.  A whip was at her side, coiled up on her belt and holstered.  
+This time, the recording was seven minutes long.
 
-She looked like a back-up dancer in some kind of 90s pop video, if said dancer were a demon.
+Progress, I thought until I watched it.
 
-I shivered as I saw, well, a demon standing before me.  A full blown demon.
+The footage started normal. Me climbing into bed, adjusting the blanket, grabbing my phone.
 
-She tossed her fingers to the floor, where a strange glowing violet sigil appeared .
+Then, jump cut.
 
-“What did you just do?” Cassara hissed.
+No fade. No glitch. Just an abrupt edit.
 
-“Don’t worry about that,” she said with a grin, “I’d be worried about yourselves right now.  You took out all of my Ghouls, and now I’m going to have to deal with you myself.”
+One second I’m lying there scrolling TikTok, the next bed empty.
 
-“Who or what the fuck are you?” Reginald asked, the rum in his hand still.
+Room quiet.
 
-“Me?” She grinned, revealing elongated canine teeth, “I’m Brittney, Bitch.” 
+Nothing moves.
 
-“N offense,” Cassara scoffed, “Brittney, but we handled your shitty minions just fine, and while you might be a demon, you don’t look like much.”
+The last five minutes of the file were just… stillness.
 
-“Oh, I’m not!” Brittney said as she jumped into the air, landing behind Cassara, “But don’t think I didn’t notice you checkin' me out!”
+But here’s the worst part, I checked my screen time.
 
-“Hey fuck you-” Cassara winced as Brittney’s tail jabbed into Cassara’s fist. “Ah, bitch!  I’m gonna… I’m…” Cassara’s eyes grew glassy again.
+It said I’d been on my phone until 3:27am.
 
-“Reginald, the bottle!” I shouted.
+The video ends at 11:22.
 
-Brittney giggled as Reginald rushed over to us, trying to spill the contents of the bottle on Cassara.
+&nbsp;
 
-Before he could, Brittney kissed Cassara rather deeply before she pulled back, “They’re gonna hurt me baby…”
+**Recording 3**
 
-Cassara’s hand whipped out to Reginald’s throat, knocking the wind out of him, if not damn near breaking his wind pipe.
+I wasn’t the only one trying to catch something.
 
-The bottle rolled to the ground, spilling its contents to the floor.
+Sally came into my room Sunday afternoon, looking pale under her usual Disney hoodie.
 
-“Whoopsie Daisies!" Brittney said with a grin, “butter fingers!”
+“Can you help me check something?” she asked.
 
-I looked to Reginald, “You okay?!”
+She had her phone in her hand. Shaky.
 
-Reginald coughed, catching his breath as he shook his head.
+“I tried filming last night. I used the time-lapse thing on my phone and left it on my shelf. Just to see.”
 
-“Like I said, I’m not much,” Brittney taunted, “But now you gotta deal with the Valkyrie."
+We plugged it into my laptop and watched the 30-second clip.
 
-Cassara kicked Reginald in the mouth, sending him rolling towards me, her eyes slightly glassy and yellowish as she lifted her fists up, both igniting in flames.
+Most of it was static. A few faint shifts as she moved in her sleep. Nothing major.
 
-“Oh and, just a heads up daddios!” Brittney laughed as Cassara started moving towards Reginald and I, “She’s not pulling her punches no [more](https://www.reddit.com/r/The_Guardian_Temple/).”
+Then around 18 seconds in…
 
-[Part 5](https://www.reddit.com/r/nosleep/comments/1mxkgx5/im_a_missionary_and_theres_too_many_demons_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+There was a frame where her blanket was gone.
+
+Then back.
+
+Then gone again.
+
+And for two frames literally two out of hundreds, her body was sitting up.
+
+Not moving.
+
+Not looking around.
+
+Just upright. Head tilted forward, arms limp at her sides.
+
+ Like she’d been dropped into a chair from above.
+
+“I don’t remember that,” she whispered.
+
+We scrolled back, frame by frame. And I shit you not between one blink and the next, she was lying down again. Blanket restored.
+
+Like someone pressed undo.
+
+She made me delete the file after that.
+
+Didn’t even want to keep it on her phone.
+
+She started sleeping with the light on after that. And a knife under her pillow. Not for self-defence, she said.
+
+Just to feel like she was choosing something.
+
+&nbsp;
+
+**Recording 4**
+
+File size: 2.4GB. Duration: 5 hours, 17 minutes.
+
+Night three. I filmed again.
+
+This time I turned the webcam around. Let it point toward me. Just me in bed, eyes closed, still. I wanted to know if I moved. If I got up. If I talked in my sleep.
+
+I hit play.
+
+For the first twenty minutes, nothing happened. Just me, asleep, twitching once or twice.
+
+Then, at 03:33, the image warped.
+
+One frame only.
+
+Just long enough to see a second version of me sitting upright in the chair across the room. Watching me.
+
+
+Next frame, it was gone.
+
+Bed still. Me asleep. No one in the chair.
+
+I paused it. Rewound. Frame-by-frame.
+
+There.
+
+Half lit. Barely visible.
+
+My face. My hoodie.
+
+Sitting still.
+
+Watching me.
+
+And my eyes were open.
+
+&nbsp;
+
+I didn’t sleep much after seeing the footage.
+
+I kept telling myself I’d imagined it. That the lighting was playing tricks. That I was overtired. That maybe it wasn’t me in the chair just a shape that looked like me. A trick of the shadows. A glitch in the pixels.
+
+But the more I rewound that single frame, the more I knew.
+
+It was me.
+
+Or at least… something that wore my face.
+
+Monday afternoon, I showed it to Katy.
+
+She was the only one who didn’t seem completely freaked out by all the weirdness so far. The only one still cracking jokes in the group chat. The only one still using the kitchen bin like it hadn’t been silently mocking us for two weeks.
+
+I found her in the kitchen eating toast off a cutting board like a gremlin.
+
+“Got a sec?” I asked.
+
+“Not if this is another ‘my desk moved 1cm again’ update.”
+
+“Just… look at this.”
+
+I passed her my laptop. Hit pause on the frame. 03:33. There I was, lying in bed. And there, across the room, a second me sitting perfectly still in the chair. Faint, but visible. One frame only.
+
+She squinted at it, then leaned back.
+
+“That’s your reflection,” she said.
+
+“There’s no mirror there.”
+
+“Then it’s a… smudge?”
+
+“You think I glitched my webcam with a smudge?”
+
+She sighed, chewing slowly.
+
+“James, I get it. You’re freaked out. We’re all freaked out. But if you stare at enough frames of grainy footage at 3am, you’re gonna start seeing all kinds of shit. I bet if I looked hard enough, I’d see my nan doing the macarena behind your desk.”
+
+I didn’t laugh.
+
+“This isn’t a joke, Kat.”
+
+She softened a little. But only a little.
+
+“Look… even if that’s you in the chair so what? Sleepwalking? Weird subconscious thing? I once woke up holding a Wagamama’s menu I didn’t remember stealing. Brains are messy.”
+
+I just stared at her.
+
+“You think I sleepwalked across the room, sat in the chair, stared at myself, then vanished without triggering motion blur?”
+
+“You think there’s another explanation?”
+
+I didn’t answer.
+
+She handed the laptop back.
+
+“Maybe don’t keep watching it. You’re just feeding it.”
+
+“Feeding what?”
+
+She didn’t answer that either.
+
+Just scraped the crumbs off the board and left the room.
+
+&nbsp;
+
+[FlatChat @ 14:22] Message from Jen: “Can we all be in the kitchen tonight. not optional. 7pm. This is getting fucking weird.”
+
+Then Sally replied with a thumbs up and a thumbs up emoji, which somehow made it worse.
+
+&nbsp;
+
+By 7:05pm, we were all there.
+
+Katy on the counter, swinging her legs.
+
+Kerry curled into the corner chair like she was part of the furniture.
+
+Jen standing. Pacing. Fuming.
+
+Sally with her hands wrapped around a mug like it contained holy water.
+
+Me, quiet. Watching. Wondering if I should've filmed this too.
+
+“Okay,” Jen said, dragging a hand through her hair, “cards on the table. No jokes, no ghost banter, no TikTok theories.”
+
+“Bold of you to assume I had jokes left,” Katy muttered.
+
+“Kerry,” Jen said sharply, turning to her. “Where did your bedside table go?”
+
+Kerry blinked.
+
+“What?”
+
+“You said last night it was gone. Gone gone. Not moved. Gone. Like it never existed.”
+
+Kerry pulled her sleeves down over her hands. “I thought it was a dream.”
+
+“You still think it was a dream?”
+
+No answer.
+
+Jen turned to Sally next.
+
+“Tell them.”
+
+Sally shifted in her seat. Eyes darted between all of us.
+
+“I, um… I heard music last night. In my room. At like, 4am.”
+
+“Was someone playing it?” Katy asked.
+
+“No. It wasn’t coming from anywhere. It was just… there. Like it was in the air. Not loud. Just this low, slow, really sad music.”
+
+“You’re sure you weren’t dreaming?”
+
+Sally hesitated. Then pulled something out of her pocket.
+
+It was her phone.
+
+On it, a voice memo.
+
+Timestamp: 04:03am.
+
+She hit play.
+
+We listened in silence as faint, tinny audio filled the room. It was hard to describe half lullaby, half funeral march. Echoey. Off-key. Faint chimes and something like breathing underneath.
+
+“I didn’t record that,” she whispered. “I found it this morning.”
+
+No one spoke.
+
+Then Katy broke the silence.
+
+“Look, this is all weird, yeah. But let’s not start acting like we’re in some student house remake of Paranormal Activity. Stuff moves. People forget things. Maybe we’re stressed. Maybe it’s mould. Maybe we’re all just going a bit nuts.”
+
+“You think mould made my calendar jump to 2031?” I asked.
+
+“Yes,” she said. “Time mould. It’s like regular mould but rude.”
+
+Someone laughed. It sounded like a cough.
+
+Jen slammed her hand on the table.
+
+“I woke up outside.”
+
+That got everyone’s attention.
+
+“What?” Kerry asked, voice thin.
+
+“This morning. I woke up outside. Front steps. No shoes. No phone. Just… there.”
+
+“How the fuck…”
+
+“No idea. Door was locked. No one heard anything. And my pillow was still on my bed.”
+
+She looked around, breathing fast.
+
+“And none of you even noticed I was gone.”
+
+“We thought you were at the library,” Katy said weakly.
+
+“I wasn’t,” Jen snapped. “I was sitting in the fucking cold watching the streetlights flicker like I was trapped in a screensaver.”
+
+Everyone went quiet again.
+
+Until Kerry, voice barely audible, said
+
+“...I think my room’s getting smaller.”
+
+“What?”
+
+“I measured the floor last week. Just out of curiosity. It was 2.3 metres wide. Now it’s 2.1.”
+
+“Maybe you measured wrong.”
+
+“Maybe,” she said. “But my bedframe doesn’t fit like it used to. There’s scratch marks where it scraped the wall. New ones.”
+
+Jen finally looked at me.
+“James?”
+
+I met her eyes. Thought about showing them the footage again. Instead, I just said
+
+“I don’t think we’re alone.”
+
+After the meeting, things weirdly got… easier.
+
+No one solved anything, obviously. We didn’t exorcise the bin ghost or discover a haunting clause in our tenancy agreement. But just saying it out loud, all of it, made it feel less 
+suffocating. Less personal. Like whatever was happening, it wasn’t just happening to me.
+
+We started sharing notes.
+
+Literally. We made a Google Doc.
+
+Jen colour-coded every incident green for “minor weirdness,” orange for “concerning,” red for “existential horror.” Kerry added timestamps. Sally tried to include temperature readings and moon phases for some reason. Katy drew a dick in the margins and we left it there because it made us laugh.
+
+For the first time in weeks, I slept without my shoes on.
+
+That Friday, we had dinner together. Like actual dinner. Everyone made a dish. Jen even lit a candle like it was date night. We sat on the floor and talked about anything but the flat. Course deadlines. Gossip. What happened to that one guy from pre drinks who disappeared halfway through first term.
+
+We laughed. Like, proper laughed.
+
+For about three hours, I felt normal.
+
+Later, I went to my room.
+
+Did the usual check the locks, align the desk how I wanted it, plug everything in. No camera tonight. No notes. No tests.
+
+Just sleep.
+
+Or that was the plan.
+
+Until I checked the footage from last week. The one I hadn’t opened yet.
+
+&nbsp;
+
+**Recording 5.**
+
+The night after Jen woke up outside.
+
+I hadn’t touched it because I already knew that night had been fucked but curiosity got me.
+
+File name: REC-2024-10-09-2307.mp4
+Duration: 6 hours, 14 minutes.
+Size: 5.1GB.
+Timecode: 23:07 to 05:21
+I pressed play.
+
+It started the same. Me getting into bed. Lights off. Stillness.
+
+At 00:32, I sat up.
+
+Not suddenly. Not like I was startled awake. Just… rose, slowly, like I was pulled up by a string.
+
+I turned. Swung my legs over the bed. Stood.
+
+Then I walked out of frame.
+
+For the next two hours, the room stayed empty.
+
+At 03:33, the camera glitched.
+
+The screen flashed, just once, like static.
+
+When the image returned, I was back.
+
+Sitting at the desk. Facing the camera.
+
+Awake. Still. Staring straight into the lens.
+
+And then…
+
+I spoke.
+
+There was no sound. No audio at all. But my mouth moved. Slowly. Precisely.
+
+Five words.
+
+I replayed it.
+
+Lip-read. Frame by frame.
+
+“You’re not watching this live.”
+
+Then I smiled.
+
+A cold, dead smile.
+
+And leaned forward, as if to get closer to the lens.
+
+Then the feed cut to black.
+
+I sat frozen.
+
+Then hit replay.
+
+This time, there was no glitch.
+
+No desk.
+
+No movement.
+
+No smile.
+
+Just me, asleep in bed, perfectly still the whole time.
+
+I checked the file size.
+
+It had changed.
+
+3.8GB now.
+
+Shorter runtime.
+
+Different checksum.
+
+Like it had been overwritten.
+
+But I remembered it.
+
+I knew what I’d seen.
+
+I still felt the eyes on me.
+
+I went back to the Google Doc.
+
+Scrolled to the entry for that night.
+
+Green. “Nothing happened. All good.”
+
+I changed it to red.
+
+Then I deleted the entire spreadsheet.
+
+&nbsp;
+______
+&nbsp;
+
+I don’t know what’s real anymore.
+
+I don’t trust the footage.
+
+I don’t trust the mirrors.
+
+I don’t trust myself.
+
+I’ve deleted the files, reinstalled the software, tried to scrub my hard drive like I could erase whatever’s gotten into it or into me. But the videos keep coming back.
+
+Sometimes they’re already waiting on my desktop when I wake up.
+
+Perfectly titled. Perfectly cut.
+
+Edited down to only the moments I don’t remember.
+
+I don’t remember writing this.
+
+But it’s here. In the drafts folder of my Reddit account.
+
+Dated a week ago.
+
+Titled exactly what I would’ve named it.
+
+Everything spelled right. Everything accurate.
+
+Including this line I haven’t typed yet:
+
+“You’re not watching this live.”
+
+(Edit: thank you for the comments. I tried logging out and deleting the draft, but it keeps restoring itself. Even after a full wipe. I'm going to leave my laptop in the kitchen tonight. If it follows me... then I guess I’ll know.)
