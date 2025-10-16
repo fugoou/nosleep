@@ -1,127 +1,166 @@
-# I was born with the ability to see thoughts. There’s something living in my coworkers mind.
-I’ve never told this to anyone. Not even my family. But I feel it necessary to write this after what I saw a few days ago.
+# I was hired as a substitute teacher. I’m not sure what I’m teaching.
+I lost my job last year, after the divorce.  
 
+My ex wife’s father owned the company. He let me go with a modest severance package. 
 
+It was a dark time. For about six months, I drank. Morning until night.  A slow, pathetic suicide. 
 
-People like to think that their thoughts are private, never to be seen by anyone but themselves. But to me, minds are like open windows. Easy to be peered into and invaded.
+It’s harder than it seems. Killing yourself, I mean. Every morning, I’d wake up, like some malfunctioning phoenix. I just wanted it to be over. To descend into sweet  darkness and feel … nothing. 
 
+Then, in September, my debit card was declined.  
 
+That sound, that scratch the machine made, indicating I had no money, that even here, amongst my derelict peers, I was on the bottom. 
 
-It’s sort of like tuning a radio. I can choose whose thoughts I want to listen in on and when to reach in.
+I begin to look for jobs. Any jobs.  
 
+I found it on Craigslist.  
 
+“Substitute teacher.  Gifted/Special Education.”  
 
-I was just sort of born with this ability. I’m not really sure why.
+I’ve never been a kid-person. Don’t like them- don’t hate them.  But, I was desperate.  
 
+Driving through the long, winding road to the school was like being transported in time.  Jeffersonian buildings evoked a Virginian antebellum aesthetic.  
 
+Tall, majestic oaks lent their shadows in the summer heat.  
 
-I’ve learned to glide through life without drawing that much attention. Smile when people expect it, nod when they need reassurance. It’s easy when you already know what they expect to hear.
+Everyone in the area knew the school. Private. Elite.  Graduates went to Yale, Harvard, Wharton.  
 
+Two vice presidents and one speaker of the house were alumni.  
 
+My Camry felt out of place in the parking lot.  But, like I said, I was desperate.  
 
-But of course, not all gifts come without downsides.
+When I walked in, the receptionist looked at me. Knowing. 
 
+“You’re here for the substitute teaching job?”
 
+I nodded.  
 
-Some thoughts best go unseen. I’ve heard things I truly wish I hadn't. Not just painful truths or depressing regrets. No. I’ve seen things far darker than that. The most sick and twisted of sexual fantasies. The burning sadistic desire to kill and inflict suffering. Festering, writhing hatred for all of humanity. You’d be surprised what some people hide behind a calm exterior.
+“Come with me” she walked down a long hall. 
 
+I followed.  
 
+We stopped at a large, industrial door with a keypad.  The numbers beeped, echoing down the hall, as she typed in a code.  
 
-What I’m trying to say is that I thought I’d seen it all. I thought I knew what the darkest, most sinister things on this planet were. That all changed a few days ago.
+An airlock whooshed as the door opened, and steps down into an underground area. 
 
+She stopped at the top of the stairs.   Motioned for me to continue down.  
 
+“This is as far as I go”.  
 
-I’ve worked in retail for a couple months as of writing this. The closing shift at a cheap grocery store. The kind with bright lights, loud pop music and dried up plants by the entrance. It was about as uninteresting as it sounds. That was until he showed up.
+I hesitated.  Something wasn’t right; this didn’t add up.  She sensed it. 
 
+“We pay in cash. Daily.”
 
+I’m not proud of it. But, like I said, I was desperate. 
 
-He just appeared on the schedule one day as "Jack". Corporate said he was a transfer. The first shift I had with him was three days ago, stocking the back shelves together. He didn’t talk much. Didn’t ask questions. Didn’t seem confused by anything. He just knew where everything went.
+“What..?” I began. 
 
+“Instructions are on the table.”  She turned around and walked out, the door humming as it closed, settling into place with a clank. The air compressors kicked in, sealing the door. 
 
+My footsteps were muted as I went down, like something was absorbing the sound. 
 
-That was the first red flag.
+At the bottom, a small hallway stretched out to another door. Round. Like a hobbit door. 
 
+Curious now, I walked towards it.  My hands caressed it.  Thick, rich wood. Warm to the touch. It felt alive. 
 
+To the left of the door was a small cubby, with a  paper. 
 
-The second was the silence.
+It simply read “RULES”.
 
+Underneath “These children are special children, scholarship students who board at Westlake. For their success and your safety, the following rules must be followed.”
 
+1. When the children start whispering, do not turn your back on them. 
+2.  The nurse will take them out sometimes.  When they come back, do not make eye contact for fifteen minutes. 
+3. Do not try and help them after their nurses visits. 
+4.  Insubordination must be immediately punished by pressing THE BUTTON.  
+5. Your payment is in the envelope.  Do not take it until the day is DONE.  
 
-No matter how meditative someone is, nobody can truly stop thinking. The human mind simply doesn’t work that way. Even when you’re sleeping your brain is still creating thoughts. Minds can be quiet, sure, but they can never be silent. 
+Failure to adhere will absolve management of responsibility for harm. 
 
+Weird. But there was an envelope under the en sheet with seven crisp $100 bills.  
 
+The lure of quick cash override any misgivings I had.  Just then the bell rang.  
 
-Jack’s was dead silent.
+I walked to the hobbit door, which was now cracked open. 
 
+Inside was a classroom. Oddly enough, the children filed in from another entrance. 
 
+27 of them.  Second graders. 
 
-His mind was like a black hole. Almost suffocatingly quiet. No thoughts, no feelings, not the slightest peep. Just a cold empty pit where a person should have been.
+They seemed normal, just a little quiet.  A folder on the desk had my lesson plans for the day. 
 
+I began teaching.  At around ten AM, the children had recess.  
 
+They exited their door.  I watched through the window as they ran outside, onto a lawn, and began running back and forth. 
 
-I can’t possibly describe to you how shocking it felt reading his thoughts for the first time only to be met with nothing. It was just so unnatural, so impossible. It felt like my entire perception of the universe was being thrown away.
+Suddenly it struck me.  We were underground. Or so I thought.  How was this level with the ground outside? 
 
+Maybe the rear of the school went downhill, and I just hadn’t noticed it as I came in. 
 
+When they came back in, their energy was lower.  
 
-I focused harder, straining myself to dig deeper into his mind, desperate to find something. Anything.
+I was writing on the chalkboard when it started.  A faint whispering, like the rustling of fall leaves.  
 
+My hand froze on the chalkboard.  I tried to turn but I was stuck.  
 
+The whispering grew.  Like bees, angry, humming.  
 
-And I did find something. At least a trace of something.
+Swarming. 
 
+The lights dimmed, taking on a late evening glow.  
 
+Heart hammering, I summoned all my will and moved my head about a quarter of an inch. 
 
-I could just barely pick up on it underneath all the silence. It was like a faint rancid odor from something far away, festering in the distance. It felt sinister. It felt vile. It felt disgusting. It felt like it was staring back at me. Like I was looking down at a black, murky ocean with a massive inhuman face just barely visible a few dozen meters below the surface, gleefully smiling up at me.
+On the edge of my vision, a shadowy form loomed where the first desk was.  As I looked, it coalesced into one of the students. 
 
+The whispering grew angry, but I felt its grip on me loosen.  I moved my head further, and more shadowy forms congealed into young children.
 
+I wrenched my neck, facing the class.  The sound shattered, and everything came to normal. 
 
-And then. For a brief moment. I caught a glimpse of something. Not just a trace. Not just a feeling. I saw it. Only a glimpse, and a blurred one at that. But for a few seconds, I saw it.
+The lights brightened.  After a long moment, one of the boys raised his hand. 
 
+“Um… yes … uh…? “ i didn’t know his name. 
 
+“Johnny” he said.  
 
-It wasn’t a thought. It wasn’t like anything else I’ve seen in someone's mind. I’m not really sure how to describe it, but I’ll do my best.
+“Yes, Johnny” I replied.  
 
+“The answer is seven” he said. 
 
+It took me a moment, then it struck me. He was solving the problem I had written on the board. 
 
-From what I could make out: A massive labyrinth larger than a planet, constructed from rancid, rotting, moldy red meat. All of it swarming with trillions of maggots, flies, and other hellish insects, some of them mutated to freakish proportions. There were a few thousand people in the labyrinth, each horribly maimed in their own gruesome way. They were ravenously eating away at the rotting meat, their stomachs bloating to ridiculous sizes, only to eventually shit it all out. That was their eternity. I don’t think they were allowed to die. I don’t think the labyrinth would let them.
+Like nothing had ever happened.  
 
+“Thats’s … correct” I stammered.  
 
+Just then, then bell rang. I looked at the clock. Somehow it was 2:45.  Dismissal time.  
 
-And then, I could no longer see it. The glimpse was over. It was less than five seconds, but it felt like hours. I had seen so much, and yet somehow I could tell that I only scratched the surface. that labyrinth was only the tip of the iceberg, and if I kept digging deeper I would find things far far far worse.
+Two and a half hours had just… disappeared. 
 
- 
+I watched as these children, who had just moments ago been … something else … as they stood up and ran out the door.  
 
-I remember standing there for several minutes, completely paralyzed, sweat coating me from head to toe. I don’t think I’d ever been more scared in my life.
+I felt lucky to be alive. Grabbed the envelope. Ran up the stairs. 
 
+Through the compression of the doors. 
 
+As I walked out, I saw her.  She looked surprised.  
 
-I felt like my mind was unravelling. I had seen something I wasn’t supposed to. Something that was never meant to be seen. And the worst part is, it saw me back. It knew I was looking at it. I’m one hundred percent sure about it. I don’t know how I know. But I do. Maybe it’s a sixth sense or maybe it wanted me to know. It doesn’t really matter. All that matters is that it saw me.
+“You’re alive”.  
 
+I nodded. Yes.  
 
+“Ok. See you tomorrow?” She asked.  
 
-Jack didn’t pay any attention to me. He was still silently stocking the shelves, acting like I wasn’t even there, a blank expression on his face.
+I touched the wad of cash in my pocket. Thought about the party I’d be throwing to night. 
 
+“Yes.” I said, walking out into the afternoon. 
 
+The sun was warm, but as I looked at the school, my heart skipped in my chest. 
 
-He wasn’t human. That wasn’t even a debate. He… No… ***It*** was just wearing a lifeless human body, like a cheap disguise.
+Behind it, hills rose into the Blur Ridge Mountains.  
 
+The wind blew, the rustle of the leaves like a whisper. My blood ran cold.
 
+I needed a drink. 
 
-I ran out of the building as fast as I could, making sure I got as far away as possible before calling my boss. I told him I had a family emergency, that I probably wouldn’t be able to come to work for a few days. He was a reasonable guy so he understood.
-
-
-
-It’s been three days since then and I can’t stop thinking about it. What I saw. That labyrinth. The people inside it. The details are still burned into my mind, and I don’t think I’ll ever be able to rid myself of them.
-
-
-
-My hands won't stop shaking, and I can feel my sanity slowly slipping away. But what scares me the most, is that what I saw wasn’t the worst of it. The labyrinth was just the thing on the surface, the thing I saw first. I could tell there was more. A lot more. The rabbit hole went far far deeper down.
-
-
-
-And now, I can’t shake the horrible feeling of being watched. I don’t know what to do. I don’t think there’s much I can do. I caught a glimpse of something I wasn’t supposed to see. And now I’m going to be punished.
-
-
-
-There are fates worse than death in this world. I can only pray I am not to meet with one.
-
+ 
