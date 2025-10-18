@@ -1,182 +1,107 @@
-# I have been harassed all my life by shadow entities!
-My mom always said our house carried bad energy. It was her catchphrase whenever something weird happened:*"That's why what happens… happens. It's not normal."*She said it like someone who knows something they shouldn’t. At first, I didn’t believe her.  
-I thought it was just superstition… motherly tales to explain the unexplainable. I was wrong.  
-Terribly wrong. I was very young when it all started.
+# My mom vanished in the woods 8 years ago. I just got a letter from her.
 
-Mom tells me that as a kid, I would constantly talk about a man in a hat.  
-I told her he was always watching me from the shadows of the room.  
-A tall figure… motionless… with a wide-brimmed hat hiding his face. I don’t remember any of it.  
-Maybe it’s better that way.
 
-Years later, my sister, Vechi, started having night terrors.  
-But these weren’t normal nightmares. She’d scream, cry… and most disturbingly… vomit.  
-Not a little. An unnatural amount for her tiny body. Mom tried to wake her, splashing water, shouting… but nothing.  
-The next day, Vechi remembered nothing. This… happened. Every. Damn. Night.
+I woke up hungover that day in my college dorm. I had drunk way too much at a bar the night before, celebrating until sunrise what would be my twentieth birthday.
 
-Day, my wife, once confessed that she saw a shadow moving in the room while awake.  
-Not a flicker, not an illusion… a slow, deliberate shift, as if it wanted her to notice. Later, during sleep paralysis… it appeared again.  
-Much closer this time.  
-So close… she could feel its breath. 
+When I checked my mailbox around noon, there was a white envelope with handwriting on it and no sender.
 
-But one night, Mom decided to sleep over.  
-Everything got worse. She woke up to the sensation of something climbing onto the bed.  
-The mattress sank beneath it.  
-It was moving toward her feet. And then she saw it.  
-A short, hairy figure… silently advancing. Vechi’s dog, small but fierce, raised its hackles and growled with a rage I had never seen before.  
-Teeth bared, gaze fixed on the same spot Mom had seen… that thing.
+"*Happy birthday, carrot. I’m still waiting for you at the same place. Come here tomorrow at dawn, and look for my blue coat. Signed, Mom.*"
 
-Days later, Day told me another unsettling story.  
-Vechi’s dog was barking, growling, whining… staring under Dad’s bed.  
-Nothing there.  
-Nothing any of us could see. Recently, I decided to test myself.  
-I entered Dad’s room, switched off all the lights, and stood in silence. The air felt heavy… charged… like the walls were pressing against me. At first, I told myself it was just my imagination.  
-A trick of the mind, influenced by all the stories I’d grown up hearing. I wasn’t afraid.  
-Or at least… that’s what I thought. Later, I got into an argument with my sister.  
-It wasn’t just a fight.  
-It felt like someone—or something—was pushing me to say the cruelest words.  
-To scream in a rage that didn’t feel like my own.  
-Like my voice wasn’t mine, and the sentences were already planted in my mouth before I spoke.
+Reading those words sent chills all over my body.
 
-When it was over, I felt… empty.  
-Guilty.  
-As if those minutes, I hadn’t been myself. That night, trying to sleep, I remembered something Mom always said when we were alone: *"Never stare into the mirror… alone… and in the dark."* I never asked why.  
-That night… I did. I stood in front of the hall mirror.  
-Lights off.  
-My reflection barely visible in the dimness. At first, I only saw myself.  
-Then… I realized my breathing wasn’t in sync with the reflection’s.  
-When I inhaled… it exhaled.  
-Its shoulders… rose a fraction of a second after mine. I couldn’t take it anymore.  
-I turned on the light.  
-I was alone.  
-Or at least… that’s what I wanted to believe. What we didn’t know…  
-was that this was only day one. 
+Since my mom vanished eight years earlier, my family had gotten dozens of fake letters and false leads. But that word, carrot, told me this one was different.
 
-The night after the argument with Vechi, the house fell into a different kind of silence. Not the normal silence of everyone asleep… but that heavy, almost physical silence that presses against you. The kind that doesn’t feel empty… like it’s waiting. A silence born not from absence of noise… but from something listening. I told myself it was all in my head. Autosuggestion. The mind, alone in the dark, inventing shapes to fill the emptiness. But when I switched off the lights and stood still… the air changed. It got thick. Sticky. Breathing felt wrong, like I wasn’t inhaling air… but something heavier, older, rotten. And then… I remembered everything I’d always tried to ignore: The man in the hat Mom said I saw as a kid… the one I don’t remember. The suffocating, labored breathing I felt over me at three in the morning, alone. The static noise Mom and I heard, even when the TVs were off. Footsteps in the hallway, always at the same time, same place. Vechi’s night terrors… the impossible vomiting… the shadow looming over her. The pale woman chasing me in a dream… and the sudden fall of clothes from the closet when I woke. The shadow Day saw moving while awake. Her sleep paralysis, with something watching from the corner. The crouching animal Mom saw climbing on her bed. The dog growling at something we couldn’t see.
+It was our inside joke. She started calling me that after I once scarfed down a whole plate of carrots just so she’d let me go play at the arcade. Nobody else could have known.
 
-All of it… didn’t fit any ghost story.  
-This wasn’t a spirit. It was older. Smarter.  
-Something that should not exist. My eyes, almost instinctively, drifted to the dark hallway.  
-I saw nothing.  
-But I felt it. A pressure, like my head was underwater.  
-And a smell.  
-Not normal rot. Metallic. Like old blood, damp earth… and something else that made my stomach churn and sweat break out cold. Then… the house changed. The walls… moved. A few inches. Literally.  
-Shadows thickened in corners, like they had weight. And the darkest shadow… moved. First, the outline of the hat.  
-Perfect, black, cutting against nothing. Then the shoulders.  
-A tall silhouette… taller than the ceiling. It didn’t move like a human. Slithered, jerked, impossible angles. I didn’t blink.  
-I knew if I did… it would be closer. And it was. In an instant… a meter from my face. No eyes… but I felt it watching.  
-No mouth… but it smiled.  
-A smile inside my head, damp… slipping into my thoughts.
+***
 
-I saw memories that weren’t mine: Vechi vomiting, shadow over her chest. Day lying with Cielo, watched from the corner.The dog growling under the bed at something dark and furry.Myself arguing with Vechi… but now I knew it wasn’t me.
+My mom disappeared on a trail near town. We used to hike it almost every Sunday as a family. It was about two miles, ending at a pond where locals liked to fish.
 
-The light flickered.  
-Not failing… but being consumed.  
-The clock ticked… slowly. Time bending. It touched my shoulder.  
-Its skin cold, but not ice. Dry chill… like touching darkness itself. And then I heard it. Not with my ears… but inside my skull: *Never be alone again… in the dark."* It wasn’t a warning.  
-It was a condemnation.
+That day, my dad was sick, so it was just me and her. We laughed and walked until I had to pee. She told me to go ahead, and stayed behind, maybe twenty feet away.
 
-I don’t remember falling.  
-Only waking during the day… with black marks on my arm, like fingers. Since that night… I’m never alone.  
-Even when I am.
+Nothing seemed unusual while I was peeing in that tree, except for the sound of a branch snapping, which I brushed off as nothing. I finished, turned around to call her, and she was gone.
 
-It all started shortly before 3:00 a.m. I remember looking at the kitchen clock: 2:58. Or maybe it was 3:15. No… I was sure it was 2:58. Although now that I think about it… I don’t even remember ever owning that clock. That’s when I heard it. The first noise. A buzzing sound. Like TV static searching for a signal… Except every TV was off.  
-I think. It wasn’t steady.  
-It came from everywhere at once: walls, floor… my own chest. It felt like it was waiting for me to close my eyes. Then… footsteps. Heavy footsteps. Made of old wood. The house floor is ceramic. Always has been. Yet that night… it creaked. Like rotten wood. Damp. Alive. Vechi screamed. I ran to her room. I remember entering… but I also remember standing in the doorway. In both moments… she was vomiting. Only in one, she was asleep.  
-In the other… she was staring at me. Dry smile. The corner of her room… wasn’t where it should have been.  
-It sloped inward. Like a tunnel. Day came out of the bathroom.  
-Her skin damp, but not from water. She said something had breathed on her neck. No… not breathed.  
-It was warm. Icy.  
-Both at once. As if the air couldn’t decide.
+I waited half an hour, thinking maybe she’d stepped off the trail too. Then I ran to the pond. Then I sprinted back to the parking lot, and the car was still there. Locked.
 
-The dogs started barking. But they weren’t barking at me.  
-Or anything visible. They were staring at… air. Or what looked like air. Something stuck to the wall. A shadow darker than darkness… and it seemed to smile. The kitchen was farther away than it should have been.  
-The hallway… longer.  
-Doors curved inward, like gaping mouths.  
-Door frames crooked, damp… alive.
+She had vanished into thin air.
 
-And then I saw him. The man in the hat. My man in the hat. From my childhood. Only this time… there were more.  
-Many more. Tall, motionless figures, hats hiding faces. They didn’t move.  
-But every time I blinked… they were closer. *"I told you,"* my mother whispered behind me.  
-*"He’s always been here."* I didn’t remember her coming in.  
-Or speaking in that deep… almost masculine tone. I turned.  
-She was standing. Her feet… weren’t touching the floor. The lights flickered. Every flash… something in the room changed: A crooked painting. A door that wasn’t there before. A crack in the ceiling… like an eye. The clocks… they were turning backward.  
-The hands stretched, bent… one pierced through the glass like flesh.
+One of the local fishermen called my dad and the cops, and soon they combed every inch of that forest. Everyone was looking for her blue jacket, something that would stand out against the trees, but they never found a trace.
 
-Day screamed.  
-Hands over her face. When she pulled them away… her eyes were gone.  
-No blood.  
-Only two black holes, skin grown around them. The smell of iron filled the house.  
-It came from the walls, oozing thick, black liquid… bubbling like boiling tar. Vechi appeared again.  
-Behind me… no, in front of me… no, the corner. Her face kept changing.  
-Sometimes hers.  
-Sometimes mine.  
-Sometimes… nothing at all.
+Pretty soon the whole state knew about it: The kid that lost his mom. It usually went the other way around.
 
-The dog barked at the hallway mirror. I went closer.  
-Saw my reflection… but it wasn’t mine. Me… with a hat.  
-And the shadow behind it, smiling. I didn’t blink.  
-The reflection did. Then… all the doors opened.  
-Even the ones that weren’t there before. *"Don’t look,"* a voice said. But I looked. And I saw… what I shouldn’t have seen.
+Then came the TV reports, the YouTube channels, the podcasts. Theories stacked up.
 
-I woke up in my room. It was daytime. No… nighttime. No… the sun was out, but the shadows were wrong—too long, stretched like it was already midnight. The dogs were barking. All of them, at once. In the other room, staring at a wall. No… looking *inside* the wall. The shadow had no shape. Until it began to stretch. And then… the outlines appeared. Hats. Hats that shouldn’t be there.
+First, people said she left due to an affair with a coworker, a known womanizer, that had suspiciously moved out of state. Second, that she was killed by the so-called Pickaxe Maniac, a serial killer who’d murdered three women in the region a few years earlier and usually leaves the murder weapon at the spot. Third, the cops considered my dad might’ve done it for the life insurance money.
 
-One.  
-Two.  
-Four.  
-Twelve.  
-Forty-three.
+No proof ever surfaced, and her case faded into silence.
 
-I don’t know why that number made my head hurt. It wasn’t just one.  
-It wasn’t just them.  
-There were too many.  
-Too many for the walls to contain. Some crawled.  
-Some stayed still.  
-All of them… knew I was watching. Then… they stopped. Absolute silence. I could hear my heart. I could hear yours. Yes… yours. Then… everything fell. I didn’t hear a bang.  
-The ground tilted, as if the house had dropped from infinity. The colors shifted.  
-The air tasted wrong.  
-The walls stretched upward, disappearing into a blackness with no ceiling. Alien memories invaded me. Cities that never existed, under red skies, bells ringing underwater.  
-Seas full of motionless bodies… but their shadows moved.
+Right after I got the letter, I called my dad telling him about the carrot thing. His reaction was hard to read.
 
-And then I understood. They weren’t ghosts.  
-They weren’t demons.  
-They were a swarm.  
-An extradimensional parasite.  
-A collective consciousness that has lived in all worlds, for eons… until it consumed them.
+We hadn’t spoken in months after some stupid fights, but he insisted the letter was a prank. He practically begged me not to go, said I should call the police immediately. His desperation ticked me off, so I hung up on him, same as last time we argued.
 
-And now… us. We were the food. I turned. My family was there. Or what was left of them.
+I decided I’d go back to that trail. Even if it was a joke, I needed to know if there was any hope left of seeing my mother.
 
-Vechi’s eyes… black, pupil-less.  
-Day smiled… but it wasn’t his smile. A cheap imitation. Behind each of them… a shadow copy. A living negative. When I blinked… the copies were closer.  
-When I stopped… still closer. I heard footsteps on the roof. The house doesn’t have an attic.  
-It doesn’t have an attic.  
-It doesn’t have an attic. (Yes… it does.)
+***
 
-The hairy thing crawled down the hall.  
-Beside it… the man in the hat. Only now… it wasn’t a man.  
-It was a mass, stretching beyond walls, touching places that shouldn’t exist. I knew I’d seen it before I was born.  
-In that place where you don’t dream… where you don’t breathe.
+I drove all night and got there at dawn, parking near a pickup with some fishing equipment in it, the only other vehicle there.
 
-The clocks stopped at 3:03 a.m.  
-And also… 2:59 p.m.  
-And also… had no hands.
+The trail was burned into my memory from all those childhood walks, even if I hadn’t set foot on it since the day she disappeared. 
 
-A child’s voice whispered: *"Time doesn’t live here."* I didn’t know him.  
-Except… he called my real name. The walls folded in on themselves.  
-The doors led to the same room, over and over.  
-You could go out… and end up deeper inside. I blinked. And I saw them. More hats.  
-More smiles.  
-They didn’t hide.  
-They multiplied. And then I understood: There is no escape.  
-There never was. What I call “my life” is just a small room inside their world.  
-We are not being invaded.  
-We have always been inside them.
+I walked for a few minutes and stopped at the same spot where I’d stepped off years ago to pee. Standing there again felt unreal, and not in a good way.
 
-The light went out.
+I reached the same tree I had peed on, and froze, staring at the trunk like it owned me something. 
 
-And before it did… I saw my reflection in the window.
+Then I heard a crack behind me, like a branch snapping. Just like I remembered from that day. I spun around, and saw nothing unusual. Just the wind pushing leaves. 
 
-Me.  
-With a hat.  
-Smiling.
+Then I noticed it. A flash of blue in the distance.
+I followed it excitedly, to find a tree with a tight blue coat wrapped around the trunk. I touched it and knew it was the same one she wore that day. Tears fell off my eyes almost automatically.
 
-(Not me.)
+Tucked under it was another envelope. I pulled it out, and it had the same handwriting.
+
+"*Glad you came, carrot. I’m right beneath you.*"
+
+I looked down, and the ground nearby looked freshly disturbed, like it had been dug up not long ago. 
+
+My hands shook as I started digging, fast, frantic. Whatever truth was buried there, I needed it. Or I thought I needed it.
+
+Soon I hit something solid. I clawed the dirt until I lifted out a small wooden box, maybe ten inches wide.
+
+It was sealed, before I tore it open.
+
+Inside were only two objects. 
+
+One of them was a human skull with a massive fracture on top. 
+
+The other one was an old pickaxe where a dark red stain had long dried.
+
+Terror ran through every vein in my body when I saw it,  and then I heard it again. The branch snapping behind me.
+
+I whipped around, panic in my throat. Now I could hear the steps coming my way. Whoever had killed her was here to finish the job with me.
+
+More snapping, closer this time. My eyes darted between trees, desperate to catch movement.
+
+Then I saw it. A figure in black, wearing a hat.
+
+And behind him, three more shapes. Police officers.
+
+***
+
+Turned out my dad had called half the town's police department, begging them to stop me. That’s what saved my life.
+
+They told me the pickup I’d seen earlier probably belonged to the Pickaxe Maniac. When they searched it, they found hair, scraps of skin, even a severed finger.
+
+Inside were dozens of letters, all written the same way as the ones I’d gotten.
+
+For some twisted reason, he seemed obsessed with me. Like he wanted to finish what he’d started with my mom years later.
+
+He wasn’t caught that day. He must’ve bolted into the woods on foot the second he spotted the cops.
+
+The only good thing that came of it was this: just a few yards away, they found another box with my mom’s remains. We could finally give her a real burial.
+
+But I can’t shake the feeling that nothing’s really over.
+
+I still don’t know what that monster wanted with me.
+
+I still don’t know how he knew about the nickname carrot.
+
+And most important of all, I still don’t know where he is. [He still out there.](https://www.reddit.com/u/Accomplished_Low7889/s/cGzGF91mgc)
