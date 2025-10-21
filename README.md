@@ -1,95 +1,29 @@
-# I made a deal to feed whatever’s in the swamp every month.  He’s demanding more.
-Part I: https://www.reddit.com/r/nosleep/s/7br6DjZb3x
-———————————————————————
+# Bright White
 
-I promised I’d keep writing, so here I am again.
+Please bear with me while I explain some of the background first. I promise, it’s relevant. I’m posting this with the hope that there’s someone out there who can help. 
 
-I went to the swamp for the third time last night. I did something I can’t take back. No matter how hard I scrub, the smell of swamp and blood won’t come off my hands. I don’t think I can ever be the same person after what I did.
+Bianca always pointed out that this is truly the old world. We met on the yachts, years back, and she she’d been staying with me while she looks for a job here. She’s from a different, “newer” country and the age of things around here fascinated her. Like many of our generation, I too like old stuff, antiques, historic buildings, heirlooms. Or used to. But I have come to realize that there are dangers to old places. 
 
-But I can’t talk about that yet. I said I’d write this down as it happened, and I need to start where I left off.
+There’s a square around here that’s nicknamed bright white. The name refers to an old tale about the lake in the middle of the square. 
 
+According to this tale, the lake used to connect the realm of the living, Midgard, with the realm of the dead, Hel. On it’s shores stood a sacrificial altar, dedicated to the the goddess Hel is named after. A druid watched over the altar, bringing Hel sacrifices at all the major holidays. In return, Hel sent a black Ox to the Druid twice a year, at Ostara and at Mabon, to help him plough his fields and bring in the harvest. When the Druid died, he was replaced by a Christian priest, who stopped the worship to the old gods and with it the sacrifices to Hel. When Ostara came around, Hel sent her black Ox. But instead of helping the priest plough his fields, the Ox killed the priest and dragged him down the lake. 
 
-I got four hours of sleep that night, if that. I tossed and turned, unable to get comfortable. My body felt heavy when I dragged myself out of bed and fumbled into my clothes. By the time I stepped outside, the morning air felt thin and unreal.
+Years later, the government commissioned an Ox statue to stand at the shores of the lake. According to the artist’s descendants, it‘s hollow belly contains a box with list of people who opposed the regime that had commissioned the statue. 
 
-That’s when I saw it—a $100 bill lying on the mat in front of my door. Crisp. Clean. Except for a dark green smear on one corner.
+Mike, who grew up around here, tells a different story, the one the locals believe. According to him, the artist, who designed and build the Ox statue, was of the old religion. He built it as a new altar to Hel. And ever since it was finished, Hel has been demanding her dues again. The locals, still familiar with the old ways, and aware of the legend, started leaving gifts again. 
 
-I rubbed my thumb across it. The smear peeled away in a single clump, cold and soft, and hit the floor with a dull little thump. For a moment I swore the smell of swamp water rose up around me.
+Obviously, I had my doubts. But then he showed me the articles. It wasn’t every year, but it was always on Ostara or Mabon, and no body has ever been found. Suspected drownings, unexplained disappearances. Which would be understandable if this was a decent sized lake or had currents or anything really, but I’ve seen pools bigger than that! As for why the government doesn’t remove the ox: not only would that require them to believe the legend, they are simply not allowed to. At some point, the park, the statue and the lake became protected monuments. 
 
-It didn’t take me long to connect the dots. His words from last night echoed in my head, sticky and putrid as the swamp air: Gold in your pockets, luck on your back.
+It took me a while to be able to write the next part, but I need help. Mabon is coming up and we‘re no closer to finding a solution. 
 
-A shiver ran down my spine, and the bill suddenly felt heavier in my hand, like it was trying to anchor me to the spot. My chest tightened and my heart thumped as I turned it over and over, searching for something—anything—to prove it was just coincidence. But besides the green smear, the paper looked as crisp and innocent as if it had come straight from a bank.
+Mike’s tale had made us curious, but Bianca and I were never religious or superstitious, so we didn’t really believe him. This year, the weather on Ostara was beautiful and after sharing a bottle of wine, we had the brilliant idea to not just get another one, but to drink it at the lake and see if we could spot anything supernatural. We got there about an hour before sunset and set up on the opposite shore of the statue, in the grass just above the tiny beach section. As we were drinking our wine and nibbling some olives, the sun slowly started setting behind the houses on our right. 
 
-I slid the bill into my wallet without thinking and walked to my car. My hand went to my chest as I sank into the driver’s seat, lungs struggling to pull in air that felt far too thick.
+Just as the last rays started disappearing behind the buildings, we heard laughter from the other side. A group of kids approached the statue, giggling, clearly daring each other to take the gifts that had been left there. I looked at Bianca: “I’m not sure this is a good idea. Should we say something? Maybe we should leave.” Laughingly, she shook her head: “Really? Do you believe that stuff now? Besides, even if it were true, it wasn’t us. Chill. We will leave when it gets cold.” She was right, of course. I didn’t really believe in any gods, old or new. And while kids messing with things wasn’t cool, it was also harmless. Still, I couldn’t shake the feeling of unease as I watched the biggest kid take whatever had been left at the foot of the statue and run off, his friends chasing after him. 
 
-“It’s okay. Come on, Kyle, get a hold of yourself.” My voice sounded too thin in the small space of the car. I gripped the wheel until my knuckles turned white and then forced myself to breathe, slow and shaky.
+And then everything shifted. Do you know that purple, hazy glow you sometimes see from the corner of your eyes? The one you immediately forget about it? The one that tells you something isn’t quite right? Yes, that one. The houses were gone, we were surrounded by fields and trees and everything was glowing in that hazy purple shade. The grass around us seemed taller. And there was no ox statue. I turned my head to look at Bianca, to ask her if she could see it too. But she wouldn’t look at me and just kept staring at the black ox walking towards her through the silvery water. I opened my mouth to scream, I tried to grab her, but found I couldn’ move at all. I still don’t know what paralyzed me, if it was something supernatural or simply fear, but I just stood there unmoving, not even blinking, while I watched as the Ox dragged her into the lake. 
 
-I started the engine and shifted into reverse. For a split second, in the mirror, I thought I saw ripples run across the puddle at the edge of the street, like something had just slipped beneath the surface.
+When I came back to my senses, lying on the grass, everything was as it had been before. No purple glow, no fields, just houses. A large stone ox on the opposite shore. But no Bianca.
 
-On my way to work the dollar bill gnawed at me like a splinter you can’t quite get out. By the time I got to work though, things started to change.
+Obviously, I tried to tell myself it had been a prank or a hallucination. But when Bianca didn’t come home the next day, I had to inform the police and her parents. I didn’t tell them about the purple glow or any of the things I had seen. I said I must have fallen asleep and when I woke up, she was gone. No one would have believed me anyway. Officially, she’s a simply another missing person, one of many in this city. The only person who knows the truth is Mike, but in the five months since, we have failed to come up with a way to bring her back. 
 
-It was a weekday—meant it was slow, or it usually did. But my section stayed nearly packed all day. Every table tipped like they had money to burn: twenties, fifties. One guy even left a crisp hundred under his water glass. Too clean. Too sharp. Just like the one waiting on my doorstep. My hands shook when I pocketed it—reminding me it was tainted money.
-
-My manager caught me before my shift ended, clapping me on the back. “Kyle, I’ve heard a lot of good things about you lately. The customers love you, and I think it’s time we start discussing a lead position with a raise.” He sounded like he’d been reading off a script—but his eyes held something new. Respect. Maybe even pride.
-
-My coworkers were different too. A couple of them who’d never said more than a word laughed at my jokes. And when I stopped at my last table, the blonde in the corner leaned in closer than she needed to and slid her receipt into my shirt pocket. A number scrawled on the back. A sharp smile on her lips.
-
-By the end of my shift my pockets felt heavy, dragging with me as I walked out. I should have been ecstatic. Instead, a quiet dread settled deeper in my chest. Every bill smelled faintly of fish, like they were left too long in a tackle box. When I stacked them in my hand, they felt cold. Damp. No one else seemed to notice—or if they did, they didn’t care.
-
-When I got back to my apartment I threw my wallet and keys on the counter before collapsing onto my bed. The fact that I got no sleep the night prior was finally catching up to me. I laid on my bed listening to the rhythmic tick of the clock while I sorted my thoughts about the day out. 
-
-My manager promoting me, the girl giving me her number, and an insane amount of tips too. It felt like a once-in-a-lifetime kind of day. I took a deep breath as I took my phone out and texted the girl from the restaurant. I stared at the screen for a couple seconds waiting for a reply before putting my phone down and taking a shower.
-
-About halfway through my shower, my foot slid out from under me. I went down hard, tailbone cracking against the porcelain as water sprayed over me. A raw curse tore out of my throat as I scrambled upright, skin stinging.
-
-That’s when I saw it. The drain burbled like something alive, and a thick clump of algae pushed its way up against the stream of water. Slimy strands spread across the floor of the tub, slick and green, sticking to my skin. The smell hit a second later—stagnant, swampy, impossible to ignore.
-
-My chest locked up, and for a moment all I could hear was water pattering against the mess, sounded like voices gurgling just beneath the surface. I reached for the handle and shut the shower off. Silence dropped heavy around me, broken only by the faint slurp of the drain pulling itself clean again.
-
-When it was over, there was nothing left but water pooling around my feet. Clear. Harmless. Like it had never been there. I staggered out of the shower before bracing myself against the wall and taking deep breaths—trying to stop my pounding chest. 
-
-I wrapped a towel around my waist and pressed the heels of my hand against my eyes. Black spots dotted my vision as I tried to calm myself down and regain composure. 
-
-The smell of swamp clung to me no matter how hard I tried to get rid of it. No matter how hard I tried to shake it off, the thought persisted, did he know where I lived? Could he find me anywhere?
-
-My phone buzzed, and I held onto the sound like a rope pulling me out of mud. It was the girl from work. “Nice talking to you today. Maybe we can do it again sometime?”
-
-I typed back quickly, hands still trembling. “Yeah. I’d love that.”
-
-The swamp smell faded as I set my phone down. For the first time that day, I almost felt normal.
-
-I won’t bore you with the details of the following weeks. Nothing important happened—at least, nothing tied to him. Life after that didn’t change much. Not like the first day. But it was better. Subtly better. My wallet was never empty, people seemed to treat me with more respect, and little strokes of luck followed me. Not miracles or lottery wins—just enough for him to remind me he was keeping up his end of the bargain. And every time it happened, no matter how small, I felt his eyes on me.
-
-Eventually, the day I was dreading came. It was time for me to do what I had to. I went to the store in the morning and picked up a few roaster chickens per his request for white meat. I set the chicken in my fridge before I left for work. The day played as the ones beforehand, slight improvements here and there, until it was dusk.
-
-By the time the sun slipped away I was putting all the chickens into heavy duty trash bags to make them easier to carry. As I walked out my back door and stared into the swamp my heart wouldn’t stop pounding. Every step brought the thump of my heart along with it. Cicadas screamed as I stepped on the trail—handles on the trashbag drawn so tight my fingers fell numb. 
-
-The cicadas went silent when the trail turned to water. My breath caught in my throat. The swamp looked the same as it always had—dark water, mossy vines, moss hanging in heavy clumps—air too thick to breathe, but it wasn’t the same, not now. I sat the bag on the wet muddy ground and wiped the sweat from my forehead with a shaky hand. The silence deepened, no wind, no animals, just waiting.
-
-“Mmm, look at you, boy. Learnin’ proper. White meat, just how I like it.”
-
-He shifted closer, whiskers dripping black. “Easy, ain’t it? Feed a friend, and that friend feeds you. Folks smilin’ atcha, pockets fat with bills… das me. All me. My gift, from my swamp to you.”
-
-He pressed his hand to the bag, bones snapping wet beneath it. His grin widened. “But white meat don’t fill a belly long, non. Das a snack. A nibble. You keep walkin’ dis trail, you gon’ see what a real meal looks like. Next time, bring me somethin’ breathing, won’t ya? And while you’re at it, I’m gettin’ hungrier. Come back in two weeks.”
-
-I froze at what he said. Something breathing. Two weeks. I had no clue what I was going to do.
-
-Grease ran down his chin as he chewed, humming low. “Mm. Das good. Das real good. You gon’ make me proud yet.”
-
-I swallowed hard, my voice catching before my question finally came out. “Was that you… in my apartment? The shower. The algae in the drain.”
-
-For a moment, the swamp was still. Then his whiskers twitched, dripping inky strands that curled down his chest.
-
-He grinned, too many teeth showing flat in the dark. “Heh. Dat was me, cher. Jus’ tappin’ on the glass. Remindin’ ya who holdin’ the ropes. Don’t want ya gettin’ cozy.”
-
-The air thickened, hot and wet in my lungs. My chest hurt just standing there, hearing him say it like it was nothing.
-
-He leaned close, breath rolling out sour and sweet at once. “A man gotta know his place. You know yours now, don’tcha?”
-
-I nodded, because I couldn’t make my mouth work.
-Satisfied, he straightened and slid backward into the water. As he sank beneath the surface, a low humming rose up—wet and warbling, a tune without words. It sounded older than language, older than the swamp itself.
-
-It vibrated through the mud, through my ribs, until it was shaking something deeper than bone. My knees buckled, and I clutched at the trees just to stay standing while the ripples swallowed him whole.
-
-Even after the water went still, the humming lingered in my head.
-
-It hasn’t stopped since.
+I need help. Is there a way to bargain with the goddess Hel? Is there a way to bring back people from the place Hel? Mabon is approaching, the veil will be thin and this will be our best chance. Please, if there’s someone out there who has experienced something similar or is more familiar with Hel, what can I do? I need to get my best friend back! 
