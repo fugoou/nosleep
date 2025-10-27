@@ -1,517 +1,460 @@
-# I saw the sky smile at me
-The sky smiled at me. I can’t say it was a dream. Dreams dissolve with dawn, but day after day, I still remember. That night, the clouds parted as though drawn back by invisible hands, and behind them was a grin stretched across the heavens, filled with teeth. It opened wide, comets drooling from its lips. From that abyss came a voice. A girl’s voice. Quiet, sorrowful, calling to me as if she had always known me. She called my name.
+# Sometimes the Road Signs Lie
+A few weeks ago, my wife and I went on a road trip for a family reunion in El Paso, Texas.  I am now sitting in the hospital waiting room, desperately wishing we hadn't...
 
-Since then, nothing has held me. Not the walls of my apartment, not the routines of waking life. I return here each night, climbing the iron stairs to this rooftop, to stare upward until my neck stiffens and my eyes blur. The world below decays, peeling paint, dripping pipes, stale air, but I don’t care. I eat when my body makes me. I sleep only when exhaustion takes over me.
 
-I try to write it down, to capture her voice before it slips from me, but I’m not an author, and I can’t write words like I can think thoughts. She spoke as if she carried every sorrow I have ever known. As if she were not a stranger at all, but the answer to a question I never knew I had been asking. The sound of her lingers, like a thread pulled taut inside my skull.
 
-I have walked this rooftop until my shoes wore thin. Gripped the railing until my palms split. Whispered to the sky until my throat bled dry. Some nights I laugh, some nights I weep, and some nights I do both until dawn stains the buildings with light. I never hear her, but always, I am listening.
+“How much longer?” Melanie asked, leaning her seat back and putting her hand into the small of her back in a feeble attempt to find a more comfortable position.
 
-Was it a vision? A hallucination? I don’t know. I am certain of this: if the mouth opens again, if her voice calls to me, I will follow without hesitation. Let the teeth close around me, let the darkness swallow me whole. When she called, I was no longer alone. I would surrender everything just to feel that belonging again.
+“Google says we’ve got a few more hours to go,” I said, glancing quickly at my phone sitting in the cup holder then putting my eyes back to the road.  “Do we need to stop again?”
 
-Tonight I wait yet again. The rooftop is cold beneath me, gravel and broken glass pressing into my legs as I sit by the edge. The air is damp, heavy with the smell of rain yet to fall. The city hums faintly below, a distant sea of machines and muted voices. A lone streetlight flickers on the corner, its glow weak and dying, painting the brick walls around me in sickly yellow. The railing is rusted, streaked with years of weather and neglect, but I clutch it as though it anchors me to this place. My fingers are trembling. My chest feels hollow, stretched thin like paper that might tear at any moment. The night wind whispers against my skin, but it does not cool me; I am consumed by a hunger I cannot name.
+Melanie shifted in her seat a bit, removed her hand from behind her, then sat it back up to its original vertical position.  At seven months pregnant, her options for “comfort” were quickly dwindling, and none of them involved the front seat of a car.  “No, let’s just go.  If we stop again I’m not going to want to get back into the car.”
 
-I tilt my head back and stare until my eyes water, searching the black ceiling above for the smile that once opened there. Every flicker of lightning, every shifting cloud, sets my heart racing as though I might hear her again. My whole being waits, aching, desperate, for a voice that may never return. Still, I cannot leave. 
+*“SIGNAL LOST”* my phone’s robotic female voice announced.  
 
-The night gives me nothing. Hours pass in silence, measured only by the red blink of a radio tower in the distance and the ache growing in my spine. My eyes sting from the strain of searching, but I cannot look away, not until the first pale smear of light seeps across the horizon. Dawn comes reluctantly. The sky does not open. The sky does not smile. She does not call.
+“God dammit…” I sighed.  The phone had been doing that for the past couple of hours at increasing intervals.  There had apparently been an accident or something on the main highway which would have backed us up by at least an hour according to the all-knowing Google.  In order to avoid that, we’d taken a detour that snaked around the accident through the desert on a two-lane highway.  That had been three hours ago, maybe more - it was hard to keep track of when it had happened because even before the phone had alerted us of the accident the whole trip had been little more than a pallet of browns and grays broken up only by the regular bathroom break.  As I saw it, the New Mexico desert was the skid mark on the underpants of America, and if I never had the pleasure of driving through it again it would be too soon.
 
-At last, the city exhales. Cars groan in the streets below, doors slam, footsteps echo across cracked pavement. Their world resumes as if nothing had happened. I know what I heard, I know what I saw. I linger at the railing until the sun is fully risen, washing the teeth of the skyline in dull fire. A deep, muted pain spreads through my chest. Hope curdles into shame, weariness, the quiet dread that perhaps tonight will be no different, nor the night after, nor the night after that.
+The sun had set about an hour ago, not long before the signal started getting more spotty, and the highway hypnosis had really started to get to me.  There was nothing but desert on either side of us, and even with the high beams on the darkness covered us like a thick blanket.
 
-I descend. The fire escape groans under my weight, cold and damp with dew. I count the steps like a prayer, each one heavier than the last, until my feet meet the rotted landing of my floor. The hallway smells of rust and mildew, the wallpaper curled back like old scabs. My apartment waits behind a warped door, still and suffocating.
+“Got any more RedBull?” I asked.  “If we’re gonna go for a few more hours, I need some wings.”
 
-Inside, the air is stale, thick with the odor of dust, damp fabric, and long-unwashed clothes. Light struggles through the blinds, pale stripes across the floor littered with notebooks and loose pages. My writing clings to every surface. Rambling lines, frantic sketches of mouths and teeth. I step carefully between them, as though they are relics, sacred fragments of what I am trying to hold on to.
+Melanie reached into the back seat for a second, grunting with discomfort, then returned with a can of RedBull.  “Last one,” she said.  “This was sitting on the seat, so the sun warmed it up for you.”
 
-I sink into the mattress, lying crooked on the floor. The sheets are tangled, damp with old sweat. I close my eyes, though I know sleep will not come easily. The silence of the room presses on me, louder than the city outside. I wait for her voice to follow me into dreams. I pray that it does.
+“Great,” I said, taking the can, cracking the seal, and swallowing three large gulps.  “This will sit well with all the other junk I’ve been eating for the past two days.”
 
+Without a baby on the way, Mel and I could have driven the stretch between Bozeman and El Paso in two days without a problem, but with her being as pregnant as she was, we had to carve out almost double the time and she was still miserable.
 
+I let out a burp that tasted like all the atrocious snacks and truck-stop food from that day mixed with the warm energy drink I was layering on top and solemnly promised myself I would eat nothing but salad and water for the rest of my life.
 
-The silence does not break. It is heavy, a black liquid pouring into the room until it fills my ears, my lungs, my skull. I haven’t moved. The same stripes of sunlight lay across the floor, painting the scattered notebooks and loose pages in a faded, grotesque light. The stale air tastes of dust and decay, a flavor I’ve come to know better than anything else.
+TURN LEFT HERE FOR THE CHURCH OF CHRIST
 
-​My mind is a maelstrom of disappointment and rage. The memory of what happened is a brand on my soul, a reminder of a hope that was nothing but a hallucination. I fell for it. I fell for it with a desperation that now sickens me. My voice, when I finally use it, is quiet, almost tender.
+“I thought the Church of Christ was back there,” Mel said, reading the dilapidated sign as we passed it.
 
-​“You see this?” I say to the empty air, the space I imagine she inhabits. “This is where I live.”
+“No, that was the church of *Jesus* Christ,” I said.  “Big difference, apparently.”
 
-​I get up and walk to the small television in the corner, its screen black and dusty. “This is my TV. It’s busted, but it works.” I grab a flash drive from a tangled pile of wires and plug it in. “It’s got all my favorite movies on here. I downloaded them, so we don’t need an internet connection. See?” I turn it on. The screen flickers to life, a familiar title card appearing.
+All through the drive  we’d seen a wide variety of local churches, mostly generic, but after passing one called “The Church of Liberty” over a backdrop of a poorly-drawn confederate flag, we had turned it into a sort of game to see who could find the most outlandish one.
 
-​My mind is screaming. It was a lie. A lie told to a man already on the edge. I want to smash the TV, tear the notebooks, scream until my throat bleeds. I don’t. I point to the notebooks scattered on the floor.
+We sat in silence for a while, listening to the hum of the engine and the intermittent *Signal Lost* notification from my phone.  I had looked at the phone earlier when the signal was stronger and saw that we just needed to go to the end of this road, turn right, and we’d find ourselves getting back onto the freeway, so although the intermittent announcement from the cupholder was annoying, I wasn’t particularly concerned.
 
-​“Those are for you,” I say, my voice a soft murmur. “I’ve been writing it all down. So you’ll know everything about me.” My voice catches. “I’m sorry they didn’t turn out better. It’s hard to draw from memory.”
+That was until we saw a sign that said “*Freeway Entrance - Left - 1 Mile*.”
 
-​A new energy courses through me, cold and final. I’ve wasted weeks, months, rambling in my filthy apartment. I can’t keep doing this. I have abandoned everything. I lost my job, my few friends, and my sanity. No one is here to help me. Everything I have ever cared for is gone. I don’t know what day it is today, or how long this has been going on. Long enough for the apartment to mold over, long enough for me to become completely isolated from the outside world, physically and emotionally. The air in this dusty apartment is choking me. I have to go back outside.
+“I thought you said it was a right at the end of the road,” Melanie said, sitting up and grabbing the phone.
 
-​I climb the fire escape, the iron groaning under my weight. The sun is a pale, cold orb, washing out the city's colors. The roof is exactly as I left it: gritty, stained with grime. I don’t clutch the railing. I walk past it, to the very edge, to the low parapet wall. I stare down at the street below, the cars, the people like tiny, oblivious ants, the world moving on. It's so far down.
+“That’s what it said,” I insisted.  “I checked it last time we had service like half an hour ago.  We had about sixty or so miles to go and then it was a right.”
 
-​I talk to the darkness. "You know, this is it,” I say, my voice still gentle. "This is the end of the wait.”
+“How sure are you?” she asked, putting the phone back into the cup holder.  “Cause your phone is still saying it has no service so it’s not going to be any help.”
 
-​My mind whispers. Just lean forward. Let go. This time, there will be no false hope, no smiling sky, no voice that whispers lies. Just an end to the waiting. A final silence.
+“Pretty damn…” I said.  Just then we passed another sign *‘Freeway Entrance - Left - .5 Mile.’*’  
 
-​I step onto the low stone wall. The wind rushes against my face, pulling at my hair, but I feel nothing. My hands are steady. My heart is a stone. ​I close my eyes. I can almost feel the air rushing past my body, the moment just before impact. The end is so close. I just have to fall. One step, and it could all be over for good.
+“At least, I think so…”
 
-Are there things to live for? Sure. I have my own house, food to eat, and television to watch. I can make new friends. What I can not do, however, is forget. Forget about that night, forget about staring into the mouth of something bigger than myself. Bigger than anything I have ever known. Something cosmic. It drives every waking moment of my life, and terrorizes me while I sleep. I need to get this over with. I can’t grow. I can’t change. Nobody is going to save me.
+“I think we should follow the signs,” Mel said.  “I don’t wanna get lost out here and the phone hasn’t had consistent service in a while.  It could have reset and changed routes or something to have us avoid the highway - remember last time?”
 
-​I hear a whisper. Not in the sky, but from my own head. Faint, but clear. A girl’s voice. A single, impossible word, the sound of my name. It says, “Ren.”
+I DID remember last time - a Vegas trip that ended up being four hours longer than it should have been because my phone reset and had us taking frontage roads and city streets.  It would have been longer had Mel not thought to check the route on her phone.  
 
-The sound unravels me. I stagger back from the ledge, nearly tripping over the gravel. My lungs are heaving as though I’ve been underwater for hours and only now broken the surface. Her voice is thin as silk, quivering at the edges, but it is real. Real in the way nothing else has been for months.
+I was sure that I had seen it was taking us back to the highway, and that the next turn was a right in about thirty minutes or so given our current speed, but with the evidence to the contrary quickly approaching me in the darkness, illuminated by my headlights, I made the single most critical mistake that I would regret for the rest of my life.
 
-“It’s you,” I whisper, though the word claws my throat. “You’re real.”
+I followed the street sign and turned left.
 
-“Yes.”
+Mel leaned back in her seat, embarking again on her quest for a comfortable position, and I continued to stare at the lines in the road as we passed.
 
-That single word anchors me harder than the railing ever could. My knees give, and I drop against the cracked stone, pressing my forehead to it. I laugh, broken, humorless.
+Time begins to lose meaning when you’ve been on the road in the dark for as long as we were that night.  It could have been hours that we spent speeding straight down the desert road, or it could have been days.  With no focal point, it was really up to the clock alone to tell us how long we’d been there, and the clock on the dashboard had inexplicably reset at some point - something it did on occasion for most of the time I’d owned the car - another bullet for Melanie to fire at me whenever we got into our marital spats.  I didn’t care, and she really didn’t either, but it was another straw to load up on the camel’s back nonetheless.
 
-Silence follows, and I think I’ve scared her off, or worse, that I’ve imagined it again. Then she says, low and steady, “You must keep going.”
+My faith in the phone had begun to waver even further, as I was becoming sure even that clock was running slow somehow.  We’d go for five or six miles according to the odometer, and the clock would read only a minute or two had passed.
 
-That's all I wanted to hear. The idea of somebody wanting me to continue was enough for me to break through my clouded thoughts. “Just don’t leave me alone again. Please.”
+I drained the last bit of RedBull down my throat, again promising myself nothing but clean eating after this trip was over.  Moments later I felt a dull pressure in my bowels - the last drop of liquid must have been the last straw for my bladder.  Mel slept quietly next to me, having finally crashed a while back, and I made the second decision I would come to regret.
 
-Her voice comes softer this time. “I won’t.”
+Although we hadn’t seen another car for miles, I flipped my hazard lights on and pulled over to the side of the road.  I turned off the car and stepped out of the car and relieved myself, relishing one of the finer points of being a man and having the ability to take a leak in the middle of the road without much fanfare and returned to the car.
 
-…
+Mel stirred then and asked if we were there yet.  “Not yet. Just a bit further - had to take a leak.”
 
-The next morning, I wake in a pile of crumpled notebooks and stale air. For a brief, perfect instant, I think the rooftop was a dream.
+She rolled her eyes and closed them again.
 
-“Ren.”
+I turned the key to start the car back up and heard a sound that sunk my heart into my stomach.
 
-Her voice cuts through the silence, low and toneless, but it seizes me like a hand around the ribs. I sit upright, hair sticking to my forehead, eyes burning.
+*Click Click Click Click.*
 
-“You’re still here.”
+“Aww shit,” I said under my breath.  “Please don’t do this.”
 
-“Yes.” A pause. Then, as plainly as if she’s commenting on the weather: “Your room smells like rot.”
+I turned the key again and once more heard the series of clicks telling me that my car didn’t have enough power to start back up.
 
-I glance around at the battlefield of instant noodle cups, mummified shirts in the corner, and a streak of something unidentifiable on the wall. “That’s what you woke me up for?”
+“Fuck…” I sighed, resting my head against the steering wheel in defeat.
 
-“It is unhealthy,” she replies. “Clean it.”
+“What’s wrong?” Mel asked, opening one eye.
 
-I blink. “What?”
+“Battery’s dead.”
 
-“Clean your room.”
+“What?” There was a hint of panic in her voice and she sat back up, totally awake now.  “But the car was just running.”
 
-For a moment, I just stare upward at the cracked ceiling as if her voice is carved into it. “This is what I was waiting for? Chores?”
+“Yeah, it was running off of the alternator.  The battery needs just enough power to start, then the car can run off of the power generated by the alternator.  All we need is a jump and we should be able to get the rest of the way, as long as we don’t turn the car off.”
 
-“Yes.”
+“But who’s gonna jump us?” Mel asked.  “When was the last time you saw a car?”
 
-“Right,” I mutter, dragging myself to my feet. My joints ache like they’ve aged decades overnight. “Fine.”
+“It’s been a while,” I admitted.  “Definitely not since we made that turn back there.”
 
-So I begin.
+“Fuck,” Mel spat.  “Fuck fuck *fuck*.”
 
-I start with the cups. They collapse when I touch them, brittle styrofoam shells flaking apart, leaving greasy rings on the floor. I bag them, one by one. The air grows clearer. A patch of floor reveals itself beneath the detritus, pale linoleum I’d half-forgotten existed.
+“Stay here,” I said, unbuckling my seatbelt.
 
-Every so often, I glance toward the window, where sunlight sneaks in between the blinds. I half expect her to disappear. But each time I falter, her voice is calm, cool, and insistent.
+“Where are you going?” she asked, the panic in her voice rising.
 
-“Keep going.”
+“Just up there,” I said, pointing down the road.  “I think I see a sign maybe a hundred yards out there.  It might give us an idea of which direction we need to go or if we need to just wait until the sun comes up.”
 
-“You missed one.”
+I could tell she didn’t like it, but she didn’t say anything.
 
-“Now, fold the clothes.”
+“I’ll keep my flashlight on so you can see where I am.  I’ll just go there, then straight back.”
 
-She doesn’t laugh. She doesn’t sigh. She just guides me. In the strangest way, that’s worse than silence.
+She nodded.
 
-By evening, I’m standing amid piles of laundry, sweat streaking my face, my throat itching from muttering commentary to myself. I lift my arms toward the ceiling, triumphant. “All done!”
+“Unless I see a Denny’s, then you’re on your own.”
 
-A pause. Then, almost imperceptibly, “Better.”
+She flipped me off, I kissed her cheek, and stepped out into the night.
 
-For the first time in months, I smile. That night, I sat on the mattress with an open notebook, staring at the half-cleaned room. I feel something I haven’t in a long time. A pulse. A flicker. The beginning of a life that means something. It all started because a voice in the sky told me to clean my room.
+The air was brisk, despite having been downright hot during the day, and I remembered learning in science class as a kid that desert wildlife had to be tough enough to endure not only the heat during the day, but the cold, sometimes freezing temperatures at night as well.  I shivered and hugged my arms around my torso and made my way down the road to where I thought I’d seen a road sign.
 
-The next morning, her voice wakes me again.
+As I approached, I realized it wasn’t the kind of sign I was hoping for.  It was made of cracked wood that looked just a little better than the sign for the church we’d seen a while back and on it painted in white letters it read: “Gomper’s Farm” above a crudely drawn arrow pointing down a dirt path to the right.  My gaze followed the arrow and I thought I could see a light far off in the distance.
 
-“Ren.”
+A scream broke through the darkness that turned my blood to ice.
 
-It’s strange how fast I’ve grown used to it. I roll over on the mattress, groaning into the sheets. “You’re becoming an alarm clock.”
+“Mel?” I called, wheeling around and bolting back the way I came.  “Melanie!”
 
-“You need money,” she says.
+I could see the shape of the car in the distance, but it was too far away for my flashlight to do much good.  I sprinted down the road screaming my wife’s name in a hot panic.
 
-I look up at the ceiling. “Money?”
+“What? What?” Melanie called back, alarmed.
 
-“Yes.”
+I slowed when I heard her voice and held the light up again.  She was standing on the passenger’s side of the car with the door open.
 
-I rub my face. My palm comes away gritty. “The apartment is abandoned. I don’t really have any bills to pay.”
+“I thought I heard you screaming,” I said through heaving breaths.
 
-“You need food. Not just noodles. Real food.”
+She looked around, confused.  “No…”
 
-“Fine dining?”
+“You didn’t hear that?” I asked.
 
-“Might seem that way to you. Do food deliveries.”
+She shook her head.  “No, I don’t think so.  I was in the car until I heard you yelling though.  Where did it come from?”
 
-I stare at the notebooks scattered across the floor. A long, brittle moment passes. “You’re telling me to get a job.”
+“I don’t know,” I said, shaking my head and spitting the bitter flavor of adrenaline into the dirt.
 
-“Yes.”
+“Maybe it was an animal or something,” she suggested.  “What did the sign say?”
 
-“Do you even know what a job is?”
+“There’s a farmhouse or something about a mile down the road I think,” I explained.  “It’s not exactly ideal, but if I jog it I could make it in about ten minutes or so.  If anyone’s there, all they’d have to do is give me a ride back and help us jump the car.  If nobody’s there, we’ll probably have to wait till morning unless a car happens to pass by.”
 
-“Yes.”
+She mulled it over for a moment, then I saw the resolve on her face and I knew what was coming next.
 
-“Uh-huh.” I drag myself upright, hair sticking to my forehead. “And you picked the most humiliating one possible.”
+“I’m going with you then.”
 
-“Well, you have to eat,” she says.
+I didn’t like it, but I could tell that arguing wasn’t going to get me anywhere but the dog house, and considering the scream I heard, or thought I heard anyway, I preferred having her close.  “Fine,” I agreed.  “Grab your jacket though.  I’m gonna grab mine and a couple of water bottles from the back.”
 
-Today, she doesn’t sound so cold. Even if just slightly, it seems she is concerned about me.
+A moment later we were hiking down the road, our silhouettes illuminated intermittently by the orange hazard lights we’d elected to leave on.  I doubted the battery would last if those lights were on too long, but if someone was driving past I would hate for them to miss it.  Mel had thought to leave a note on the windshield telling whomever found it that we’d gone to the farmhouse and would be back shortly.  If anyone was kind enough to stop, they’d hopefully see the letter and stick around long enough to help - that or they’d know where to look for us coming back so they could take whatever they wanted out of the car before we returned.
 
-That afternoon, I borrowed an old bike from a neighbor who’s too drunk to remember owning it. The tires hiss against the wet sidewalk, the chain shrieks with every turn. I opened a delivery app on my phone and set out.
+There was a cool breeze that played with our hair as we walked; not uncomfortable, but enough to make me zip my jacked up just a bit more.  Mel held the only flashlight we had and the beam bounced up and down in the darkness like a buoy.
 
-The city air tastes like exhaust and rain. My legs burn before I’ve even gone a block. Every car horn feels like a personal attack. By the third delivery, I’m dripping sweat, trying to balance a bag of curry on one handlebar while trying not to die in traffic. A car brushes too close. I scream a curse so shrill that a flock of pigeons erupts overhead.
+The car was barely visible when Mel shrieked so suddenly I nearly tripped on my own foot.
 
-That night, back on the roof, I told her everything.
+“What? What?” I asked, suddenly panicked.
 
-“I did it,” I announce, collapsing against the railing, chest still aching. “I made seventy dollars today.”
+“Look,” she said, extending her finger past the head of the flashlight.
 
-There’s silence, and for a terrifying moment, I think she won’t respond. Finally:
+“What?”
 
-“Did you eat?”
+“It’s gone now.  You didn’t see it?”
 
-I groan, dragging a hand down my face. “Yeah, I stopped and got a burger on the way home. So really, I only made fifty dollars. ”
+“No, I was too busy asking myself why I’m hiking with a pregnant banshee.”
 
-“That’s okay. As long as you made something.”
+“There’s something out there,” she said, ignoring my jab.  “Just past that rock.  I saw a pair of golden eyes.”
 
-“Yeah, I did. Not much, but it’s better than nothing.”
+“Probably a coyote,” I said, starting to walk again.  “They’re cowards.  If we keep walking and talking, nothing should bug us, especially if we stick to the road here.”
 
-Another pause. Then, softer: “I'm proud of you.”
+Mel nodded then caught up to me.  “How much longer do you think it’ll be till we get to the farm?”
 
-The words hit harder than a punch. My throat closes. My eyes sting. I tip my head back and let the night spin above me. “Thank you,” I whisper. 
+“Dunno,” I shrugged.  “Ten or fifteen minutes maybe.”
 
-Weeks went on like this. The time I spent with her was both healing and heartbreaking. I felt like she knew me, watching everything I did. I know nothing about her. She doesn’t remember. Any time I ask her questions, her name, where she's from, how she even got eaten in the first place, she doesn’t remember. Despite this, slowly, her personality has started to peek through all the gloom.
+Just then I saw the eyes she was talking about.  Out in the distance, next to a large boulder on the side of the road, sat a pair of curious golden eyes.
 
-“Ren.”
+“Definitely a coyote,” I said, pointing at it.  “You can see its shape a bit - all fours, low to the ground.  It looks like it might be a little bit bigger than the ones I’ve seen, but there’s not much else out here that looks like that.  That’s probably what I heard earlier too - one of these guys catching a rabbit or something.”  I wasn’t sure I believed it, but it felt good to get some sort of explanation on the record.
 
-I groan and roll over, pressing my face into the mattress like I was trying to fuse with the sheets. “Yes?”
+We kept talking as we walked down the path, closer to the eyes, and when they disappeared I was a bit disappointed, but not surprised.  Part of me wanted to see the coyote up close, but if we got close enough to see it, that probably meant we were close to a den, which is the last place we’d want to find ourselves.
 
-“You should go to the gym.”
+We talked about what we’d do when we finally got home and how soon we’d find ourselves laughing about the whole ordeal when Mel stopped suddenly in the middle of the road.  “Shit.”
 
-I sit up. “Go to the gym?” I echo. “Why?”
+“What is it now?” I asked, looking around another pair of eyes.
 
-“I think you would feel better, and probably make food deliveries a lot easier in the long run.”
+“I have to pee.”
 
-I glare at the ceiling, or rather the space where I imagine her observing me. “Yeah, that's true. I just don’t want to.”
+“No chance you can hold it?” I asked, holding back a chuckle at the poor timing.
 
-“You have to.”
+“Not unless you can talk this kid out of using my bladder as a water bed,” she replied, handing me the flashlight.  “Where should I go?”
 
-“I have to?” I whisper, dreading the whole idea.
+“Why not right here?”
 
-“Get your stuff and go,” she says. Flat. Precise.
+“Are you kidding?”
 
-I drag myself upright, brushing crumbs off my shoulder. “Of course. The gym.”
+“Not even a little bit,” I said.  “You probably shouldn’t wander too far off the trail, and it’s not like anyone’s around to see you anyway.  Hell, if someone showed up and the universe decided NOW was the time to embarrass you, I’d still take that over the rest of the walk.”
 
-“Get going”
+“Fine,” she sighed, pulling her maternity pants down and squatting.
 
-I rub my face. “Fine”
+As she did her business, I took the opportunity to scan the surroundings with the flashlight.  I found a few more pairs of golden eyes on either side of the road, which quickened my pulse just a little.  I didn’t like being outnumbered, and I liked being surrounded even less.
 
-By noon, I’m standing outside a gym that reeks of hand sanitizer, sweat, and chlorine. I pay the membership fee, spending almost a whole day's worth of deliveries. I complain, she doesn’t comment.
+Melanie finished her business and with some assistance from me to get back up to a vertical position, we were off again, our feet crunching against the dirt as we walked.
 
-The locker room is loud with echoing grunts, shrieks, and old men showering. I pick a locker and drop my bag inside.
+I thought I heard something then, and this time it was my turn to stop.
 
-“Where do I start?” I mutter to myself, voice bouncing off the tall ceilings.
+“What?” Mel asked.
 
-“First, stretch, then lift something.”
+“Shhh,” I said.  
 
-I glance around. Everyone here looks capable, alive in a way that feels like a personal indictment. I don’t know what I'm doing here. I pick up a dumbbell, testing its weight with the finesse of someone who has never touched anything heavier than a grocery bag of instant noodles. It tilts awkwardly in my grip.
+I started again, then stopped.
 
-“This is going well,” I whisper. The dumbbell wobbles.
+“What is it?” Mel whispered.  “Another scream?”
 
-“Do not speak to it. Focus.”
+“Nothing,” I lied, picking the pace back up.  “Thought I heard a car.”
 
-I set it down. Focus. I tried a bench press. The bar seems to weigh as much as a car. One, two, three reps. My arms tremble violently. I look up. She’s silent. She is judging.
+We walked again in silence, Mel forgetting to keep the conversation going to keep the coyotes back, and me listening too intently to think about topics to discuss.
 
-“This is embarrassing,” she finally says.
+I knew I’d heard something behind us.  I hadn’t noticed it at first, or maybe it hadn’t been there at first, but after we stopped I could make out the faint sound of footsteps on dirt that stopped almost as soon as we did, and picked up, or so I thought, as soon as we had.  I’d also heard a strange lapping sound just after we started walking again, like something licking the urine off the dirt road.
 
-I lie on the bench and stare at the ceiling tiles. “Do you lift many weights up there?”
+When the farmhouse came into view the relief between us was palpable.  We had both been too preoccupied with the growing number of eyes on either side of the road that we hadn’t noticed that the light I’d seen from the road had shut off.
 
-Minutes pass. Sweat gathers in places I didn’t know existed. My lungs feel like they’re filled with wet sand. I continue because she will not stop making fun of me if I quit.
+It was a small house, but I hadn’t expected much more than what it was given the location.  If it had four walls and a roof I would have been happy, but from the outside I would have guessed that it had at least a few bedrooms, and behind it stood a structure that looked like it may be a detached garage or large shed of some sort.
 
-“You got this,” she says.
+We approached the house and I was just about to walk up the wooden porch steps when Melanie grabbed my hand.  “Hold on.”
 
-I look at the bar. It is a threat. “Right.”
+I turned to look at her.  Her eyes were wide and the pupils were so dilated from the darkness they were nearly black.
 
-Half an hour later, my muscles are screaming in a language I understand as anger and betrayal. I stagger to the treadmill, pretending I know what I’m doing. I set it at a speed that feels reasonable and instantly regret it. My legs pound like they’ve been replaced by lead pipes.
+“What’s wrong?”
 
-“You run weird,” she comments.
+“Do you think this is a good idea?”
 
-I glare at the ceiling. “It’s harder when someone is watching.”
+I rolled my eyes.  “If it wasn’t, you could have said something twenty minutes ago.”
 
-“I’ve already looked away.”
+“I know, I mean…” she paused for a second.  “Do you think these people will help us?  We’re strangers in the middle of nowhere and it’s the middle of the night.”
 
-The rest of the session is a blur of flailing limbs, misjudged weights, and an argument with a jump rope that insists on tangling around my ankles. By the time I collapse onto a bench near the exit, soaked through, I whisper, “Well. That wasn’t so bad.”
+I shrugged.  “I think the worst that can happen is they tell us to leave.  They’ll probably answer the door with a shotgun in hand, but who wouldn’t?”
 
-“I had a good time. I think that is enough.”
+Melanie nodded and I saw her throat work up and down in a dry, nervous swallow.
 
-I press my palms to my face, feeling the grease and sweat cling. “Enough for what?”
+I walked up the few steps, the wood creaking beneath my feet, leaving Melanie at the bottom.
 
-“To reward yourself,” she says.
+I held up my fist and rapped three times on the storm door.
 
-I lift my head. “Reward?”
+We waited, listening intently for sounds inside the house, but heard nothing.  Instead, I heard what sounded like the soft, padded feet of a coyote in the dirt behind us, but I brushed that away - they were known for being incredibly quiet.
 
-“Something fun. You have earned it.”
+That thought didn’t make me feel much better.
 
-I stare at the ceiling, at the stark white lights buzzing overhead. “What’s this reward?”
+I opened the storm door and knocked again, this time on the wooden door.  The sound carried far better, but again we heard nothing but silence.
 
-“How about a movie?” she says.
+“I think we should go,” Melanie said.  “Something isn’t right.”
 
-“Movie?”
+The knot in my stomach agreed and I turned to leave just as the door opened.
 
-“Yeah. There’s always something to watch.”
+“Who’s there?” a man’s voice said.  He hadn’t turned the light on in the house, so when I turned back around all I could see was a silhouette in the dark, illuminated only by the ambient glow of Melanie’s flashlight that was pointed directly at my back.
 
-“I haven’t been to the movies in a while. People look at you funny when you go alone.”
+“I’m sorry to bother you sir,” I said.  “My name is Matthew Howell and this is my wife Melanie.  Our car died down the road and we were hoping you could give us a jump.”
 
-“You’re not.”
+“No,” the man said under his breath.  “No no no no no.”
 
-Later, we sat in the theater, the room swallowing us whole. The darkness is almost tangible, pooling around my shoulders and settling in the pit of my stomach. The faint scent of buttered popcorn hits my senses with an alarming sharpness, reminding me that life’s best pleasures are usually very simple.
+“Sorry?” I said, thinking I misheard him.
 
-I glance at her, the presence above, the impossible voice that seems to float somewhere just beyond my perception. She is quiet, observing with the same certainty she always carries, and I realize I’ve stopped bracing for her judgment.
+“Sorry, no, we cannot jump your car tonight, it’ll have to wait until morning.”
 
-The movie begins. Shadows move across the screen, faces contorted, laughter and terror blurred together. I try to focus, but the exhaustion from the gym weighs in my chest, presses against my ribs like a slow, deliberate hand.
+“Sir, I’m sorry to impose, but we really can’t-”
 
-“You are silent,” she says.
+A twig snapped behind me - very quiet, but clear nonetheless.
 
-“People don’t talk in movies, especially to themselves,” I reply. “Also, I’m full of popcorn.”
+“Please, come inside,” the man said.  “You’ll stay here tonight.”
 
-She does not respond, but I feel her attention like a weight beside me. Not threatening. Warm, comfortable.
+I turned to look at Melanie, who was already walking up the steps.
 
-The film ends. We sit in the thick, slow exhale of air-conditioned darkness. The credits roll, white letters sliding across the black screen. My legs ache, my arms tremble. Beneath it all, I feel a pulse of warmth, a fragile thread that has nothing to do with the theater and everything to do with her presence.
+The man opened the door wider to let us in and clicked on a light in the hallway, bathing us in a glow that immediately made me feel better.
 
-“Did you like the movie?” I ask.
+The farmhouse looked on the inside just as I would have guessed.  It was modestly furnished with what looked like hand-crafted furniture. Paintings of flowers and landscapes adorned striped wallpaper-covered walls that looked like they were most recently renovated in the 70s, and faded area rugs covered wood floors that creaked beneath our feet even with the slightest weight.  
 
-“I had fun,” she replies.
+The man who stood before me now looked just like the kind of person who would live in a house like this.  He had thin white hair and a large beard with yellow tobacco stains around his mouth, and he wore a set of beige long johns under a pair of pants held up with suspenders - the outfit of a man who had been disturbed in his bed.  I guessed he was somewhere in his 60s - still reasonably muscular from working on the farm, but well past his prime and settling into the atrophy of old age.  He had been holding a shotgun in one hand and just then put it down and leaned it up against the door frame.
 
-I tilt my head back, staring at the pitch black ceiling I know is above the theater, but somehow feels infinite. “That sounds like you didn’t.”
+The man turned and called to someone inside the house.  “Ma!  Put a kettle on, would ya?  We’ve got two here for the night!”
 
-The lights come on. The theater exits around us. I rise, stiff and groaning, and for the first time, I imagine her voice beside me, not as an echo in the sky, but as a tether keeping me from falling.
+“Really,” I said, “I don’t think we can-”
 
-The next morning, my muscles complain before my eyes even open. Every joint feels like it’s been sanded down to bare bone. I lift my head from the mattress, grimace at the pale lines of sunlight cutting across the room, and immediately hear it:
+“I insist,” the man said, turning back to me.  “The roads aren’t safe at night.  It’s too easy to get turned around.”
 
-“Good morning”
+“Yeah, I can see that,” I admitted.  “I thought we were doing well until we saw that sign for the highway back there.”
 
-“Good morning,” I groan, dragging myself upright, hair sticking to my face in greasy strands. My arms ache so badly that holding them up to rub my eyes is a minor feat of endurance.	
+The man looked at me, and for a brief moment I thought I saw something in his eyes, but before I could make out what it was, it was gone.  “The sign,” was all he said, and gave an understanding nod.
 
-“You should cook something,” she says.
+“Do you have a restroom I could use?” Melanie asked, cutting in.
 
-I freeze. “I don't really know how to do that.”
+“Yes, down the hall and-” the man stopped when he saw her, and again there was something in his expression I didn’t like, but again I couldn’t make it out before it was gone.  “To the right,” he finished.
 
-“I'll help you. Let's make Alfredo”
+Melanie thanked him and made her way to the bathroom.
 
-“Alfredo?”
+“We’ll be just around the corner in the kitchen,” the man told her.
 
-“Yes.”
+He turned and led me around the corner where I now heard someone else bustling about, presumably putting a kettle on.
 
-I let my head fall back against the wall. “I don't have any ingredients for that”
+“My name is Arthur,” the man said, sitting down at the kitchen table.  “This here is Ruthy,” he said, gesturing to a small woman in a white nightgown who was just then lighting the gas stove.
 
-“Then we will go to the store,” she says.
+Ruthy turned around and offered me a smile.  “Hello,” she said.  “Did I hear your name is Matthew?”
 
-I groan and rub at my face. “Alright, let's do it.”
+I nodded.  “Yes, and my wife’s name is Melanie.”
 
-Later, we leave the apartment, the city yawning before us, gray and wet with the remnants of last night’s rain. I push the bike through streets that smell of diesel, wet asphalt, and garbage, and she guides me in her quiet, insistent way. She names the ingredients: heavy cream, parmesan, butter, garlic, a particular brand of pasta I wouldn’t have found in a hundred lifetimes.
+“They’re in the family way,” Arthur told Ruthy.
 
-I carry the basket like a man lugging a body bag. Every passing pedestrian is an accusation. Somewhere beneath it all, I feel the pulse of absurdity, shopping with a voice in the sky.
+“Oh dear,” Ruthy said pleasantly.  “How exciting.  How far along is she?”
 
-Back at the apartment, I set up in the kitchen.
+“Not the word I’d use,” Arthur said under his breath.
 
-“Do you stir clockwise or counterclockwise?” I ask, joking.
+“Seven months,” I told her.
 
-“Just stir it.”
+“Seven months!” she exclaimed, beaming.  “And where is she now?”
 
-I laugh dryly, the sound hollow but real. “Helpful as always.”
+“She’s in the restroom,” I said.
 
-Minutes pass in a rhythm of chopping, boiling, stirring. I curse under my breath when cream splashes, when the pasta threatens to boil over, when I misjudge the heat and the sauce clings to the bottom of the pan.
+“Oh I’ve got some things for her, let me run and get them,” Ruthy said pleasantly, then disappeared around the corner.
 
-Finally, the pasta is done. The sauce is creamy, glistening under the harsh kitchen light. I taste it, expecting ruin. It is perfect. The garlic bites just enough, the parmesan melts into a frightening richness.
+Arthur and I sat in silence for a moment, then I said “are you sure you can’t just give us a jump?  Or do you have a phone I could use?”
 
-I carry a plate to the living room and sit down on the couch. “Eat.”
+He shook his head.  “Sorry, but no.  Ruthy and I don’t go out after dark, and we haven’t had use for a phone in twenty years or more.  We’ll be happy to give you a ride back to your car and get you on your way as soon as the sun’s up.”
 
-I sit below her, fork trembling in my hand. The first bite was the best thing I had tasted in a long time. I swallow. Then another bite. Then another, slower this time, as though prolonging the act could extend the happiness the meal gives me.
+“What if we-”
 
-“I like it,” I say finally, the words almost awkward in the quiet apartment. “I like it a lot.”
+“Listen,” Arthur said seriously, leaning forward.  He again wore the expression I’d seen earlier.  It was one I didn’t understand, but looking back at it now I think my father, who had served in Desert Storm and had seen the expression worn by men as they stood on the other side of a loaded gun but were determined to show courage in the face of fear, would have picked it up in an instant.  “You were with your lady the whole time, right?”
 
-Her reply is softer than usual. “Good.”
+“Ever since the car broke down, yeah,” I said.  “And even before that we’ve been elbow-to-elbow for just about every second for the past two days.”
 
-I smile, pasta sauce all over my lips. “Let’s watch a movie. We earned it.”
+“Alright, good.”  He leaned back in his chair.  “That’s good.”
 
-I grab the old flash drive, turn the TV on, and sit back. The screen turns on, flashing light fills the room. The smell of cream and butter lingers. Outside, the city hums. For the first time in months, I feel the quiet weight of normalcy, a small tether holding me to the world.
+“What’s this about?” I asked, and perhaps he would have told me then, although looking back I doubted that he could have, not then, but the tea kettle began to whistle and Ruthy returned quickly to shut it off and poured the contents into four mugs.  Melanie came around the other corner and took a seat next to me.
 
-“Ren,”
+Ruthy asked us if we took cream or sugar in our tea, which neither of us did, then she brought mugs over with chamomile tea bags steeping in each of them and took a seat next to Arthur.
 
-“Yes?” I say, fork in hand, eyes on the flickering screen.
+“We have a guest bedroom at the end of the hall you can use until the morning,” Ruthy said.  “I’m glad you found your way here safely.”
 
-“How are you holding up?”
+“Yeah,” Melanie said, bobbing her tea bag up and down in the water by the string it was attached to.  “Those coyotes were really giving me the creeps.”
 
-I take a moment to think. “Better. I appreciate you being here for me.”
+“Coyotes?” Ruthy asked.
 
-She does not answer. I sense her presence closer, almost approving. I take another bite of Alfredo and sink into the darkness of the living room.
+“Yeah Ma, coyotes,” Arthur said in a tone that sounded like they’d had the conversation a thousand times.  “I gotta chase ‘em away from the chickens at least a few times a week, you know that.”
 
-For now, this is enough. I sit on the edge of the couch, a half-eaten plate of Alfredo at my side. The rich, creamy smell swirls around the room. The air is thick with dust, lit by the fading afternoon sunlight streaking through the cracked blinds. The apartment feels smaller than ever, even though it is the cleanest it’s ever been.
+She nodded.  “Yes, I just meant I hadn’t seen any tonight was all.”
 
-“Ren,” she says, her voice low, insistent, hovering somewhere above the peeling plaster of the ceiling.
+“Probably because they were all with us,” I said.  “There were about a dozen sets of eyes following us up the road.”
 
-“Yes?” My voice is hoarse, swallowed by the stale air.
+“A dozen you say?” Ruthy asked, surprised.
 
-“You need to stay inside tonight.”
+“Yeah, that’d make sense,” Arthur said.  “They didn’t try to get at ya though, did they?”
 
-I lift my head. “Inside? Why?”
+“No,” Melanie said, taking a small exploratory sip of her tea, then another larger one, satisfied that it wasn’t too hot.  “They stayed off the road.”
 
-“He’s looking for you,” she says simply. “the god above. It will wake. It will stir. It will seek to swallow you.”
+“I think one of them was behind us though, so I don’t think they all stayed off the road,” I said.
 
-I blink at the ceiling, at the cracked plaster, at the faint shadow of sunlight on the floor. My stomach twists. “Swallow me?”
+Melanie looked at me reproachfully.  “And when did you plan on telling me?”
 
-“Yes.”
+“As soon as we didn’t have one behind us anymore,” I told her, shrugging.
 
-I choke on the noodles. “I always come out to talk to you at night.”
+“They didn’t get too close though?” Arthur asked.
 
-Her voice, flat and certain, fills the apartment. “Not tonight. You need to stay inside until I know for sure He is gone.”
+“No, they kept their distance,” I told him.  “I’m pretty sure the closest one was the one behind us, and that was still a ways back I think.”
 
-I stand abruptly, knocking the plate to the floor. Alfredo spills, noodles sliding across the worn linoleum like pale worms writhing in slow motion. The smell of butter mixes with dust. “What about you? Maybe I can see you if he does swallow me.” My voice breaks. “Or maybe you can come down here.”
+He nodded and sipped his own mug.  “That’s good.  Those coyotes are serious business.”
 
-“Maybe,” she says. “But it's too big of a risk.”
+“Do you get many of them out here?” Melanie asked.
 
-My hands shake. The city beyond the blinds murmurs faintly: distant traffic, the hum of neon signs, the occasional wailing siren. “Too big of a risk?” I whisper. “You’ve spent so much time with me here, helping me get on my feet. I’m not too worried about the risks.”
+Arthur ran a hand through his thin silver hair.  “You could say that, I suppose.  More than most, but less than some.  I think they like the chickens we keep in the back - not much else to eat around here that isn’t burrowed away somewhere, so it’s an easy meal if they can get at them before I hear the commotion and fire off a round of two.”
 
-“I’d rather you be safe than have this all be for nothing” she says. “Besides, I’ve been trapped here for a while, I’ve gotten used to it.”
+Melanie shivered.  “I’m glad I don’t have to worry about that sort of thing.”
 
-My eyes fix on a splatter of cream glistening on the floor. My chest heaves. “I can’t,” I whisper, voice cracking. “I can’t stay in here knowing that there's a chance you could be saved.”
+“Where are you folks from?” Arthur asked, sipping at his own mug now.
 
-The room is heavy. Dust clings to my hair and skin. The wallpaper peels in curling, brittle strips. The light from the fading sun slashes across the floorboards like knives. I feel the weight of months of isolation, of hope built from broken scraps, slip away.
+“Montana,” I said.  “We have coyotes up our way too, but they mostly stay in the more rural parts, and we don’t have chickens or anything to worry about.  I found one rooting around in the garbage though when I was a kid.  I told everyone I thought I saw a wolf.”
 
-“I want you to be safe” she says quietly, her voice threading through the stale air.
+“The boy who cried wolf,” Melanie teased, jabbing my side with her elbow.  “That’s Matt alright.”
 
-“No,” I reply, bitter. “I'm not going to stay in and hide.”
+I rolled my eyes and fiddled with my own tea bag.  I wasn’t one for tea, especially chamomile because it reminded me of being sick as a kid.  My mother swore by her herbal “remedies,” especially those that came in the form of tea.
 
-I close my eyes. The oppressive silence of the apartment presses against me, mingling with the distant hum of the city outside. The smell of butter and garlic, the grime, the cracked floor, it all feels like a trap, a world built to remind me of my own fragility. Beneath the fear, beneath the despair, a spark ignites. Not hope. Not comfort. Something sharper, desperate, unrelenting.
+“Are we really staying the night?” Melanie asked, turning to me.
 
-I rise, trembling at the shadows gathering in corners, at the faint smear of sunlight on the ceiling. Her silence fills the room like a pressure pressing down on my skull. “Ren,” she says finally, almost pleading. “You need to stay inside.”
+I looked at Arthur, who gave me a clear, solemn nod.
 
-I grip the edge of the couch, knuckles white, eyes darting to the city beyond the blinds, gray, cold, indifferent. Neon signs flicker in puddles on the street. Trash drifts past the curb, carried on wind that smells of rust. “I can’t,” I say, voice hollow but resolute. “I can’t wait anymore. I’m going to you.”
+“Um,” I said.  “Yeah, I guess we are.  It’s late and Arthur and Ruthy say they have a guest room we can stay in for the night.”
 
-I feel the weight of my decision pressing down, heavy and inevitable. The mouth waits. Somewhere above, she waits too. I step toward the door. The latch clicks. The swollen door drags against the frame as I pull it open, releasing a stale gust of hallway air. The apartment exhales behind me.
+“Are you sure?” Melanie asked, turning to Ruthy.  “It won’t be too much trouble?”
 
-The stairwell feels colder than the street outside, as though the building itself resents my departure. Each step groans, wooden ribs shifting under my weight. Wallpaper curls in strips from the plaster, peeling like sunburned skin. The handrail is sticky, coated with grime from decades of unwashed hands.
+Ruthy waved the idea off like a fly.  “None at all.  We haven’t had visitors in… ten years or better.  Not since the Pruitts came for Christmas.  And aside from my boys, you’re the first to come to our door in just about as long.”
 
-Halfway down, I pause. My heart is hammering already, my body urging me to turn back, to sink into the chair by the cold Alfredo and wait like a coward.
+“Oh, you have children?” Melanie asked.  
 
-Then I hear it, the faintest sound in the distance, too low to be the wind, too deep to be the hum of pipes. A vibration in my bones, like something vast rolling over in its sleep.
+“Long grown now,” Arthur said, nodding and staring into his mug.
 
-The mouth is stirring.
+“Twins,” Ruthy said, beaming.  “They’re about your age I’d guess.  I’ve got most of their old clothes and things in the back room if you’d like to take a look before you go to bed.  I pulled the chest out of the closet already.”
 
-I keep walking.
+Melanie looked at me and I gave her a shrug, then she returned Ruthy’s smile and together they made their way further into the house.
 
-The city greets me with silence at first. A false silence, full of weight and watching. The air is heavy, damp, metallic, like standing too close to a storm drain. Streetlamps flicker, their halos dimmed to weak rings. Neon signs flare and gutter in the distance, their letters scrambled into nonsense. The pavement beneath my bare feet is slick, warm in places, as though pulsing faintly with something alive beneath. Trash drifts in the gutter, plastic bags, cigarette cartons, the bloated carcass of something unidentifiable. Above, the clouds writhe.
+“You two are lucky,” Arthur said when the women had left.
 
-They do not move like clouds should. They don’t drift or scatter. They churn inward, folding over themselves, dragging light down into their spiral. They are the skin of something larger, pressed thin against the atmosphere. Veins bulge faintly in their darkness. At times I think I see the twitch of a lip behind them, as if the entire sky is a mask stretched too tight over a waiting grin.
+“How do you figure?” I asked.
 
-My chest feels hollow. The air is hard to breathe.
+“When the coyotes are hungry, they’ll try to get at just about anything that moves.  If you really had as many watchin’ you as you say, you could have been walking to your own graves.”
 
-“Ren.”
+I wasn’t sure I believed him, but the shiver that crawled down my spine certainly did.
 
-Her voice threads itself into the neon buzz of the storefront beside me, into the rattling of a loose sign above the abandoned bus stop. It is everywhere, and it is pleading.
+We sat in silence for a while, listening to the distant voices of our wives talking about children and the tick of an old grandfather clock somewhere in the house when I heard the scream again.  It was coming from outside - somewhere close to the house, but it was hard to tell.  I sat up in my chair, but Arthur didn’t move.
 
-“Go back.”
+“Birds,” he said flatly.
 
-I shake my head. My throat feels tight. “I can’t.”
+“Sorry?” I asked.
 
-The air trembles, though whether from her sigh or the shift of the sky I can’t tell.
+“We’ve got birds out here that sound like that sometimes,” he said.  “Sound like a lady shriekin’, or sometimes a child cryin’, but it’s just the birds callin’ to each other.”
 
-I take another step forward.
+“Birds? “ 
 
-The further I walk, the worse the city becomes.
+He nodded.
 
-Storefronts gape with shattered windows, their displays left to decay, mannequins collapsed like corpses, fruit black with mold, shoes curling and stiff with mildew. A bus sits crumpled at the corner, its frame bent as though squeezed by an unseen hand. Inside, the seats glisten wetly with something dark.
+“What kind of bird sounds like that?”
 
-The air thickens with each block. The hum in my bones grows louder. My skin prickles. The lamps overhead sputter and die one by one, leaving me in stretches of blind dark broken only by flickers of neon. I keep moving, though my legs ache, every step feels like walking into the open throat of something waiting to devour me. All the while, I feel her, closer, nearer, her voice brushing against my ear though her body is nowhere in sight.
+He shrugged.  “I don’t know.  I heard them called liar birds once, not sure if that was the name or just a fitting description of the things.”
 
-“You do not understand what it will do to you.”
+“Yeah,” I said, feeling the name scratch away something on the surface of my brain - a fact buried under the dust and cobwebs in my mind.  “I’ve heard of those, I think.  They can copy other noises like parrots can, right?  I thought they lived in Australia or something.”
 
-“I don’t care,” I whisper, the words torn raw from my lungs. “If it swallows me, fine. At least I’ll be closer to you.”
+Arthur shrugged again.  “Couldn’t say.  I don’t even know if that’s what they are for certain, but I know that the sound we just heard was one of them birds.”
 
-Her silence stabs sharper than any answer.
+I settled back in my seat, feeling better about the scream I’d heard earlier.  It would have made sense if it came from the air - that could explain why I wasn’t sure where it had come from.
 
-Then the sky splits.
+“That reminds me of something that happened to me as a kid.  Nothing like cryin’ wolf, but it was an important lesson I think,” Arthur said, his words careful somehow.
 
-At first, only a seam, a thin fissure running from one horizon to the other. It glows faintly, a flesh membrane stretched to breaking. Then it tears, lips peeling back, gums ridged and slick with spit.	
+I took a sip of the tea between my palms - not because I wanted it, but because it felt impolite to leave the whole mug full.
 
-The mouth yawns open.
+“You ever heard of a…” Arthur searched for the word.  “A brood parasite?  I think that’s what they call it.”
 
-I cannot move.
+I shook my head.
 
-It is not sky anymore, not clouds or stars. It is flesh, it is darkness, it is teeth, mile-high towers of ivory, each ridged and wet, catching the glint of lightning that flares within. Spittle falls in long cords, hissing into vapor before it strikes the ground. The air rushes inward, dragging the world with it.
+“It’s a kind of bird that leaves its eggs in another bird’s nest.  Sometimes it’ll push the other eggs out, but usually it just leaves their egg there for the other bird to care for.  I heard about these when I was a little boy - maybe eight or so - and I found a robin’s nest with a bunch of little blue eggs and one single black and white speckled one.  I thought I’d found something really special, so every day that spring I would climb that tree to see if it hatched.
 
-The sound is worse than the sight. It is the groan of continents shifting, the gurgle of oceans emptied, the whisper of ten thousand voices at once threading themselves into my skull. My knees buckle. My palms slap wet pavement as my vision swims. My stomach heaves.
+“A couple weeks went by and eventually the egg hatched - it was the first one - and I was so excited to see the little black chick inside.
 
-Somewhere within the cacophony, her voice rises, thin, trembling, almost breaking.
+“Not long after the others hatched, and each of them was a little robin that looked nothing like this black bird, which was now twice the size of these other ones.
 
-“Ren. Stop. Please.”
+“The days went by and one day, as I was about to climb the tree, I found one of the baby robins laying in the grass.  I picked it up and climbed back up the tree to find that of the four robins that had started in the tree, there was only one left, and of course my big black bird that was now far larger than the others.  It had started to knock the other birds out of the nest.  I put the chick that I had saved in the grass back into the nest, and do you know what that black bird did?”
 
-I rise to my feet. I lift my head into the storm, into the pull that claws at my hair, my clothes, my skin. “I won’t stop.” My throat tears around the words. “I’d rather be torn apart with you than stay behind without you.”
+I shook my head.
 
-The mouth widens. Its breath surges, and my body begins to lift. My feet skid against the pavement, then leave it altogether. The city tilts below me.
+“It killed it right before my eyes.  Tore it apart like it was nothin’.  I ran to tell my father, and that’s when I learned about birds that impose their eggs in others’ nests so that the other birds will raise them.  I thought that-”
 
-I reach upward. The first pull is subtle. My hair lifts, my shirt clings to my ribs, and I feel the lurch in my stomach like a sudden elevator drop. I claw at the pavement, fingers scraping against wet stone, but the street is already sliding away beneath me.
+A voice outside interrupted us.  It was a cry that almost sounded like it had words this time, but the words were indistinguishable despite the fact that it sounded like it was coming from right outside the window.
 
-The air howls inward. Trash barrels tumble past, lids rattling like drums. Newspapers spiral up, pages flapping like the wings of frantic birds before they vanish into the black seam above. A stop sign wrenches loose from its bolts, metal squealing as it lifts past me, spinning end over end into the sky.
+Arthur sat bolt upright and turned his head quickly to the window.
 
-I rise.
+He stood from his seat and crossed the room with three large steps.  “I was just tellin’ a story!  Leave us be!”
 
-Below, the city convulses. Whole blocks buckle, torn loose at their roots. Windows shatter outward, spilling glass like showers of stars. Buildings tilt into each other, their skeletons groaning as bricks rain down. The streets split, asphalt peeled upward like the rind of an overripe fruit.
+I couldn’t be certain, but I thought I heard something scurry away in the dirt.
 
-All of it, every stone, every wire, every body, surges upward, drawn into the grin above. My ears ring with pressure. My eyes stream. My lungs heave as though the air itself has turned against me. I thrash against it, though there’s nothing to hold, nothing to fight.
+“What was that?” I asked, trying not to sound as nervous as I now felt.
 
-Her voice.
+“Them damn coyotes,” Arthur said.
 
-“Ren.”
+“I thought you said the cries were the birds,” I said.
 
-The syllable is fragile, trembling, but it steadies me. I twist upward, blinking against the torrent of wind and dust. There she is. Suspended in the darkness, just beyond the jagged line of teeth.
+“Them too,” Arthur said, his tone coming off more annoyed than anything, although there was something else as well.  “The coyotes get curious and the birds get agitated and before I know it this house is the busiest place in all of New Mexico.”
 
-Her body floats, a figure carved from pale light, her hair drifting in slow motion as though underwater. Her arms are limp at her sides. Her eyes are wide, unblinking, fixed on me. She is close enough to see but impossibly far, as though the Mouth itself stretches the space between us. The sight of her guts me. A sob claws out of my throat, ripped away by the wind before it can reach her. I scream, though my voice is shredded.
+He walked around the house and I heard the door knob shake.  Was he checking the lock?  Then he returned.  “I think it’s best if we call it a night.  Ruthy’ll be up early to make y’all breakfast, but feel free to sleep in as late as you’d like.  In the morning we’ll take the truck down to the road and I’ll jump it for you and you’ll be on your way.”
 
-Her lips part, barely moving, but the sound blooms inside my skull: Stop.
+I took another gulp of tea, trying to get the mug down at least halfway, and agreed.
 
-The word is soft, but it cuts deeper than the tearing of the world around me. The pull strengthens. My spine wrenches, my body whipped like a rag. Blood floods my mouth from somewhere deep in my chest. My fingernails split against nothing as I claw at the air.
-
-The city breaks beneath me. I see the bus that once sat at the corner wrenched skyward, its seats spilling loose like teeth from a jaw. A fire hydrant spins past me, its broken pipe spraying a ribbon of water that arcs upward until it dissolves. A building shears away from its foundation, concrete groaning, and the people inside, some alive, some limp, are pulled screaming from its windows, their bodies snapping and flailing as they vanish above.
-
-The smell is unbearable. Burnt wires, ruptured sewage, gasoline split open and atomized. The air tastes like metal and garbage, heavy with the perfume of things that should never mix. My stomach lurches violently. Bile scorches my throat.
-
-Still, I rise. Something tears inside me. Not flesh. Not bone. Deeper. It begins as a hot thread pulling taut behind my sternum. Then another. Then dozens. My breath catches; my chest spasms. I feel myself unraveling, not in skin, not in blood, but in essence. My soul is being dragged out.
-
-Each strand of it burns as it’s pulled free, white-hot threads tugged loose from marrow and nerve. My body convulses, choking on the absence. My vision fractures, flickering in and out of clarity. My heartbeat stumbles, erratic, useless. I scream, though no sound escapes. Only the tearing does. My arms thrash, reaching for her silhouette as she hovers in the air beyond the teeth. Her eyes widen, her lips shaping words I cannot hear over the roar of the Mouth.
-
-You will break.
-
-The phrase bursts in my mind, not spoken but carved directly into it.
-
-The mouth groans wider.
-
-The sound is unbearable, mountains splitting, oceans boiled dry, the shriek of worlds torn from orbit. My skin ripples against it, every hair bristling. The city shrinks below. Buildings are no longer towers but toys, spiraling upward in chunks to vanish into the black. The streets are gone, swallowed. Only a patchwork of flames remains, trembling like a dying hearth.
-
-She moves. Her arms rise, slow and weightless, drifting toward me. Her face, pale and strained, softens. My ribs ache as another strand of myself tears loose, the pain so sharp I nearly black out. I force my eyes open, force myself to see her. She is close now, so close I can make out the faint cracks in her lips, the thin shadows beneath her eyes, the tremble of her fingers as she reaches. I reach back, my arm shaking violently, every tendon screaming. My chest convulses with another soul-thread ripped free, but I push through it. My hand stretches.
-
-Impossibly, we touch. Her skin is cold. Colder than stone, colder than death, but it is real beneath my fingers. I seize her wrist. She flinches at the contact, startled by the force of it, then clutches me back, her grip trembling but desperate. The relief is shattering. My throat breaks on a sob, tears streaming upward from my eyes into the wind. “I found you,” I rasp, though my voice is nothing but air. Her face crumples. Her grip tightens.
-
-It is not done. 
-
-The pull grows violent, a storm beyond storms. My body whips sideways, spine twisting, bones creaking with the strain. I cry out, clinging to her arm, terrified I’ll lose her again.
-
-My body is no longer mine. It jerks downward, limp, dragged like a corpse into the maw. My head snaps back; my jaw unhinges. My skin pales as color drains from it. I watch, horrified, as the shell of myself, my husk, falls away, dangling lifeless as it’s swallowed.
-
-I am no longer in it. I am the pain, the unraveling, the scream stretched thin into nothing. I am the threads torn loose, spilling into her grip, into her arms. Still, she holds me.
-
-Her other arm winds around me, fragile but unyielding. She pulls me against her chest, clutching me as if her frail body could shield me from the god above. Her hair lashes across my face, tasting of ash and rain. I bury my face into her shoulder, sobbing with no breath, burning with no body. 
-
-Around us, the mouth closes. The world shrinks to teeth. They rise on all sides, walls of bone and enamel stretching higher than skyscrapers, ridged with veins of spit and shadow. The jaws close inch by inch, grinding together with a noise so vast it pierces marrow. Sparks fall between the teeth like shooting stars, sizzling against the black.
-
-The void swells between them, blacker than any night I’ve known. It swallows distance, sound, the memory of streets and buildings. Even my own body feels like a rumor in this place, something half-believed.
-
-Her arms are the only thing holding me in shape. Even they tremble. Even she flickers, as though this darkness is trying to erase her too. Her hair floats upward, strands unraveling into smoke at the edges. When I look at her face too long, the outlines waver, collapsing into ash before snapping back again. The pull grows worse. It isn’t just physical anymore. It tugs at what I am.
-
-At first it feels like a bruise pressed too hard. Then like a seam splitting. Then like my ribs opening from the inside, pried apart with invisible hands. Something warm, luminous, and unspeakably fragile peels out of me, thin threads of light, snapping free one after the other. I convulse against her. My jaw locks. Her grip hardens. For a second, I feel her nails break my skin. Not cruelly. Desperately.
-
-The next tear rips free. It is not bone. Not muscle. It is the tether that kept me together all these years, the hidden line no surgeon can see. When it unravels, heat floods out of me in a river. My body goes slack, sagging against her like an emptied husk. The world tilts. My vision warps. Neon ghosts flicker in the void. Streets I once walked, nights I once wasted, faces long buried. They bleed into one another like paint on wet canvas, melting, erased.
-
-In the center of it all, her eyes remain. Despite me being in her arms, she still radiates loneliness. The same loneliness that carved holes in me, that left me staring at ceilings until dawn, that drove me into her voice the first time I heard it. She is hollow in the same way. Hollow enough to need someone, even if it destroys them both. I press my forehead to hers. My lips crack, blood running into my mouth. The words splinter in the dark. “You’re not alone anymore.”
-
-The void trembles. Each strand that tears loose from me bleeds into her. I feel it, a seepage, a transfer, sparks burrowing into her chest where our bodies meet. Her shoulders jerk with each one. Her lips part in sharp gasps. She shakes her head weakly, her arms tighten. She won’t release me.
-
-The last thread breaks. It is not pain. It is absence. A silence so vast I nearly dissolve into it. My chest caves inward, hollow. My eyes roll back. My body sags uselessly in her embrace. I am not gone. I am with her.
-
-I hear the small, shaking whisper:
-
-You found me.
-
-The mouth fully closes, sealing us inside bone and black. As far as I am concerned, the city is already gone. The world with it. There is nothing left but this embrace, this terrible union inside the jaws of an unknown being. For the first time, the dark feels almost warm.
-
-We break from each other's arms. Sitting with our backs against the teeth, we stare inward. Deep down the throat, something stirs. We look at each other, unable to speak. We hear a deep, booming voice shatter through the dark. One voice, spoken by two. Man and woman speak together. It says,
-
-“It is time for the digestion of the soul.”
-
+[Part 2](https://www.reddit.com/r/nosleep/s/ZOkXRuBPXG)
