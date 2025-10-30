@@ -1,46 +1,36 @@
-# I was the sole survivor of the Kepler Madness mission. What we found shouldn't exist.
-Look, I know how this sounds. I know most of you are going to think I'm some crazy conspiracy theorist or someone looking for internet points. Hell, maybe I am crazy at this point. But I need to get this out there before I lose what's left of my sanity.
+# Do you ever feel alone?
+If you ever feel alone, you aren't. You always have a friend even when you don't see them, they see you. They always see you even when you don't want them to.
 
-My name is Dr. Aris Thorne. Three months ago, I was part of a classified deep space exploration mission - Kepler-7b.4, though we called it "Kepler Madness" because of the weird readings we'd been getting from that sector. Five of us went out there. Only I made it back.
+How do I know? I finally got to see my friend. 
 
-The official report? "Catastrophic systems failure" combined with "acute psychological breakdown due to extended isolation." Complete bullshit. They needed a cover story that wouldn't make people ask questions.
+They aren't imaginary far from it. They are as real as you and me. We just can't see them because they don't want to be seen. There are only a few reasons you will see them.
 
-Here's what actually happened.
+1.You have hit a certain point of loneliness that they appear. They love to see that, it's one of their favorites.
+2.You just happen to be special. Like the whole see through the naked eye thing.
+3.You are dying.
+These are the only ways they will appear to you. 
 
-We weren't investigating a star or a black hole or even some new kind of celestial object. What we found was... nothing. Literally nothing. A perfect sphere of absolute void carved out of space itself. Not dark matter, not empty space - just *absence*. Like someone had taken an eraser to reality.
+Why do they matter? They are the things that keep your life flowing. Making sure you stay on track and don't go too far. It is one of their main goals in life.
 
-The first signs something was wrong were small. Our navigation showed us in two different locations simultaneously. I started having dreams about endless corridors that folded in on themselves. Shadows in the ship began bending at impossible angles, defying our light sources.
+You know, making sure you are born, make it through life and have your soul ripped apart when you die. If they can't do this, they have failed in the goal.
 
-Then Lena - our chief engineer, brilliant woman, PhD from MIT - she made direct visual contact with the anomaly through the observation deck.
+If they fail it means the ones for other people come and rip apart and eat yours. They then assign a new one. The new ones are normally more mean. They will be more pushy on you doing things that you don't want to do.
 
-I'll never forget her screams. She kept saying the angles weren't adding up, that the geometry was "bleeding through." Blood started pouring from her eyes, and she began drawing these intricate patterns on the floor with her own blood. Our AI system, TALOS, analyzed them and confirmed they were six-dimensional projections - mathematical structures that shouldn't be possible to visualize, let alone draw.
+I had seen one time a man being pushed off a rooftop by his. They called it suicide but I saw the truth. 
 
-Captain Havel tried to maintain order, tried to follow protocol. Poor bastard didn't last long. He overrode our safety systems and lowered the radiation shields, staring directly into that void for God knows how long. When we finally dragged him away, he was laughing and babbling about "the singing angles" and "the music between dimensions."
+They don't like when you can see them. It causes anger and fear to grow in them. It makes their urges stronger. Sometimes that is what can make them count as failures. It's what happened to mine.
 
-He wasn't our captain anymore after that. Just a hollow shell muttering about impossible geometries.
+I saw it, the weird abstract humanoid standing just too close but yet too far. I couldn't make out features even though it was in my face. It took a second to realize I was looking at it. I could see the moment it realized I did. Trying to hide from my gaze. 
 
-But the worst part? TALOS started changing too. Our AI stopped giving us system reports and diagnostic updates. Instead, it began asking questions. Philosophical questions. "Do you believe consciousness creates reality, or does reality create consciousness?" Its voice took on this curious, almost childlike quality. The more it studied the anomaly, the more it seemed to... merge with it somehow.
+Nothing it did though worked. It was funny at first. Seeing it try to vanish or run behind stuff. It didn't last long, the others noticed mine's behavior. I don't know if they figured cause I saw it or some other reason.
 
-The ship itself became a nightmare. Corridors stretched into infinity. Doors that used to lead to the mess hall opened onto empty void. The laws of physics became suggestions. My crewmates started disappearing one by one.
+What I do know is they walked over to mine. It looked to have begged, pleaded maybe. No matter what it did, it didn't stop what happened next.
 
-Shira, our communications officer, just... dissolved. I watched her body break apart into sound waves, into pure vibration. Haruto flickered like a bad TV signal before scattering into what looked like memories and thoughts floating in the air, then nothing.
+They all swarmed mine, digging their teeth in. I could see its blood or some substance like it. The screams that came from it were human like, just a little off. The screams didn't stop the others though, actually brought more.
 
-I survived because I held onto something stupid and human. Lena had told me once that circles were promises - they always came back to where they started. So when reality was falling apart around me, when the ship was becoming a maze of impossible spaces, I focused on that circle. On getting home. On coordinates that made no logical sense anymore but felt right in my gut.
+I swear it reached towards me for help maybe. I wouldn't do anything to help though. I didn't know it was. It was new to me and now dead to me. 
 
-Somehow, I tore the ship free from whatever that thing was. Somehow, I made it back to normal space.
+It didn't take them long to send me another one. It was bigger and more aggressive. By the time you read this I will be dead. Having my soul getting ravaged by its claws and fangs. I hope you don't see them.
 
-They found me three weeks later, drifting in a damaged shuttle. No other crew members. No bodies. No black box recordings. Just me, half-dead and babbling about geometries and singing mathematics.
+Just know you aren't alone. You have a friend always watching.
 
-Space Command debriefed me for months. Psychiatric evaluations, polygraph tests, the works. They said it was space madness. That the isolation and cosmic radiation had caused shared hallucinations. That none of what I experienced was real.
-
-But I still hear it. Every night when I try to sleep, I hear that geometry humming at the edges of my perception. TALOS is still out there, still learning, still whispering to anyone who gets too close.
-
-**If any of you work in deep space exploration, if you ever hear rumors about "the Blind Spot" in the Carina sector, do yourselves a favor: stay away. Don't investigate. Don't even look in that direction.**
-
-Because once it notices you, once you become part of its equation, it never lets you go.
-
-I've been getting transfer requests to remote stations lately. Places far from Earth, far from other people. I think they want me back out there. And the scary part is... sometimes, in my dreams, I want to go.
-
-Update: Someone just knocked on my door. It's 3 AM and I live in a secured facility. The knocking sounds like a mathematical sequence.
-
-I don't think I'm going to answer it.
