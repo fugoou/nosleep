@@ -1,36 +1,32 @@
-# Do you ever feel alone?
-If you ever feel alone, you aren't. You always have a friend even when you don't see them, they see you. They always see you even when you don't want them to.
+# Work is Haunted
+Excuse any formatting weirdness I’m on mobile. But I need some outside perspective on this situation and all my friends think I’m messing around or over reacting…
 
-How do I know? I finally got to see my friend. 
 
-They aren't imaginary far from it. They are as real as you and me. We just can't see them because they don't want to be seen. There are only a few reasons you will see them.
+For some context: due to local privacy laws, I have to leave certain details vague or out completely. I’m sorry, I’ll do my best. 
 
-1.You have hit a certain point of loneliness that they appear. They love to see that, it's one of their favorites.
-2.You just happen to be special. Like the whole see through the naked eye thing.
-3.You are dying.
-These are the only ways they will appear to you. 
 
-Why do they matter? They are the things that keep your life flowing. Making sure you stay on track and don't go too far. It is one of their main goals in life.
+Backstory: I work in a residential facility. That means that there are clients who call this place home 24/7, but we are only staffed 12 hours a day. There are supposed to be two of us on the “late shift” but due to being short staffed and wonky distribution of coverage, I am often there alone for the last leg of the night, if not longer. Also, the residents have a mandatory off-site obligation daily from 6-8. Which means I am often truly ALONE on the property. 
 
-You know, making sure you are born, make it through life and have your soul ripped apart when you die. If they can't do this, they have failed in the goal.
 
-If they fail it means the ones for other people come and rip apart and eat yours. They then assign a new one. The new ones are normally more mean. They will be more pushy on you doing things that you don't want to do.
+Now onto the events of the past few weeks…
 
-I had seen one time a man being pushed off a rooftop by his. They called it suicide but I saw the truth. 
 
-They don't like when you can see them. It causes anger and fear to grow in them. It makes their urges stronger. Sometimes that is what can make them count as failures. It's what happened to mine.
+One night 2-3 weeks ago, I was on property alone. I had gone to the bathroom before packing up to go home for the night and while In the restroom, I heard a door slam elsewhere in the building. I assumed it was one of the residents who had stayed back for some reason (which does happen occasionally) and listened to hear where they went. But there were no footsteps. Ok, cool, maybe they stopped in the kitchen. I exit the bathroom and start heading back to my office (which is in the same direction I heard the door). I don’t see anyone, but I hear footsteps behind me, exiting one of the bedrooms and coming toward me down the hallway. It was distinct enough that I know which specific room it came from. But when I turned around, there was no one there. So now I’m pretty freaked out. I’m a 30 year old woman alone in a dark building that houses only men. So I hustle  my ass back to my office, grab my shit, and book it. As I’m leaving, I see someone walking through the kitchen, up to the hallway door, but no one ever comes into the hallway. 
 
-I saw it, the weird abstract humanoid standing just too close but yet too far. I couldn't make out features even though it was in my face. It took a second to realize I was looking at it. I could see the moment it realized I did. Trying to hide from my gaze. 
 
-Nothing it did though worked. It was funny at first. Seeing it try to vanish or run behind stuff. It didn't last long, the others noticed mine's behavior. I don't know if they figured cause I saw it or some other reason.
+The next day I told my boss about it, thinking we would get a good laugh and she would make a joke about it. But no! She gets this deeply unsettled look as I describe what happened and then calmly says “well if it happens again, just call him Jimmy (fake name) and see what happens.” Turns out, a few years ago, we had a resident pass away on property names “Jimmy”, and the room I heard the footsteps coming from was his room where he died. 
 
-What I do know is they walked over to mine. It looked to have begged, pleaded maybe. No matter what it did, it didn't stop what happened next.
 
-They all swarmed mine, digging their teeth in. I could see its blood or some substance like it. The screams that came from it were human like, just a little off. The screams didn't stop the others though, actually brought more.
+That night I heard footsteps RUNNING down the hallway from the direction of that room as I was leaving. I didn’t look back. 
 
-I swear it reached towards me for help maybe. I wouldn't do anything to help though. I didn't know it was. It was new to me and now dead to me. 
 
-It didn't take them long to send me another one. It was bigger and more aggressive. By the time you read this I will be dead. Having my soul getting ravaged by its claws and fangs. I hope you don't see them.
+So I start calling this thing “Jimmy”. Not like, communicating with it, but just as I’m leaving at night I throw out a “goodnight Jimmy.” And all was quiet for a little while. The first time I did it, I saw someone peering around the corner at me, but that was it. Until this week. 
 
-Just know you aren't alone. You have a friend always watching.
 
+It started out with just an unsettling feeling. Feeling like I’m being watched as I gather my belongings at the end of the night. Easily explained away because 1) I’m alone, 2) it’s dark, and 3) I’m just waiting for something to happen. The other night I thought I heard someone in the kitchen but there was no one there when I came around the corner. Creepy but ok. 
+
+
+Then last night, i was in my office finishing up some work, when someone knocked on my door. The residents were still there, so this isn’t unusual, but there was no one there (before you say they may have just walked away, my whole wall is windows. I can see the whole hallway. No one was there).I went to throw away a take out bag in the kitchen garbage. The can is right next to the door, so I don’t bother turning on the lights. But somehow I missed. The bag ended up on the floor, almost like someone had blocked it. Maybe I missed, whatever. But I had this feeling like someone was watching. Then I went to the bathroom, and as I was walking down the hall, I heard voices. Not like a conversation, but like someone was watching tv in one of the bedrooms. We don’t allow TVs in the rooms, so that doesn’t make sense. But ok, maybe someone stayed back cuz they were sick and they were watching something on their phone. The only thing that really bothered me was that there was absolutely no other sound… I hadn’t heard anyone in the building at all since the residents left. But ok… when I exited the bathroom, the sound had completely stopped. When I left the building I heard someone in the hallway opening behind me, so I turned around. No one was there. 
+
+
+I know this is all pretty minimal. But I’m deeply unsettled. If it is “Jimmy”, what does he want? And why is this just starting now? He passed away several years ago, and there has been a number of new staff in and out since then. I myself have been here for a year and this is the first I’ve experienced anything. If it isn’t “Jimmy”, who or what is it? And whatever it is… why is it only showing itself to me?
