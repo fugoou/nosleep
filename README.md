@@ -1,32 +1,74 @@
-# Work is Haunted
-Excuse any formatting weirdness I’m on mobile. But I need some outside perspective on this situation and all my friends think I’m messing around or over reacting…
+# I used to be a journalist with my school newspaper. I tried investigating a disappearance. I really wish I hadn’t.
+Let me first preface this story with the fact that the ensuing names of people and places are fake stand-ins for their real counterparts. Please, please, under no circumstances try to find the real places or get in contact with the real people. You would only be putting their lives at risk.
 
+ I won’t drag out the preamble, all I’ll say is I was young, and I did a lot of stupid and reckless things that I will now, never be able to recover from. This is not your typical mystery story where the good guys solve the mystery, catch the bad guys, and everybody goes home in the end. You may think that information is redundant, but I deeply wish I had heard that warning myself, and you’ll soon see why.
 
-For some context: due to local privacy laws, I have to leave certain details vague or out completely. I’m sorry, I’ll do my best. 
+I started high school in 2019, at this point I was still pretty overweight and coming off of my socially awkward faze in middle school. Needless to say, I didn’t have many friends. Now, having said this, while I was bullied pretty severely in middle school for being a bit of a loser, I had learned from this experience that people generally won’t make fun of you if you make yourself easy to ignore. In the end this did work, and I wasn’t really considered a loser back in high school, though the byproduct of this is that I really wasn’t considered much of anything. People didn’t know who I was. This made it so that I felt like I was experiencing high school and the students within, the supposed “prime of our lives”, from a third person perspective despite being a part of it myself.
 
+ This, as you can imagine, was pretty depressing, though I dealt with it by pretending like I was around to be some grand narrator for everybody else’s story. And it was this complex that plays right into how this story starts. You see as I’ve already told you, I was pretty overweight, though being 6’1”, 240 at 15 it was more in an intimidating way than a revolting way. Still enough to the point that no girl on campus wanted a single thing to do with me though.
 
-Backstory: I work in a residential facility. That means that there are clients who call this place home 24/7, but we are only staffed 12 hours a day. There are supposed to be two of us on the “late shift” but due to being short staffed and wonky distribution of coverage, I am often there alone for the last leg of the night, if not longer. Also, the residents have a mandatory off-site obligation daily from 6-8. Which means I am often truly ALONE on the property. 
+ In hindsight, it may have been for this reason that one of my only friends, Jay, told me to join the weight training class. He was the star football player and quarterback of our high school, and he was always trying to get me to join the football team. Though due to my whole “narrator” complex, I was never interested.
 
+Funnily enough, I had viewed myself as a side character of his story but now I’m righting him in as a side character in mine. So, I suppose, in some small way, I’ve grown (it only took me a half a decade to do it).
 
-Now onto the events of the past few weeks…
+That aside Jay was a football player so due to it being mandatory for him we naturally had class together. Now in spite being a prospective five-star recruit going into college, Jay was an academic freak, with a big emphasis on being well rounded. Essentially everything I wasn’t. One day as we were working out together Jay came to me with an idea, “Let’s start a Newspaper club, I already asked Kei and she said she would join but we need five people so I’m asking you Emily, and Owen.” 
 
+“Ok, but why me?”
 
-One night 2-3 weeks ago, I was on property alone. I had gone to the bathroom before packing up to go home for the night and while In the restroom, I heard a door slam elsewhere in the building. I assumed it was one of the residents who had stayed back for some reason (which does happen occasionally) and listened to hear where they went. But there were no footsteps. Ok, cool, maybe they stopped in the kitchen. I exit the bathroom and start heading back to my office (which is in the same direction I heard the door). I don’t see anyone, but I hear footsteps behind me, exiting one of the bedrooms and coming toward me down the hallway. It was distinct enough that I know which specific room it came from. But when I turned around, there was no one there. So now I’m pretty freaked out. I’m a 30 year old woman alone in a dark building that houses only men. So I hustle  my ass back to my office, grab my shit, and book it. As I’m leaving, I see someone walking through the kitchen, up to the hallway door, but no one ever comes into the hallway. 
+Me and the word club didn’t really go together, I didn’t know any of the people he had listed off that well except Kei who was his girlfriend and prospective class valedictorian, and me and Jay weren’t even good enough friends for me to be the first person he comes to after his girlfriend. We may have been friends, sure, but we hardly ever even talked outside of school.
 
+“Because you’re my friend, and Ms. F gave you the only A out of our whole class on that last writing assignment.”
 
-The next day I told my boss about it, thinking we would get a good laugh and she would make a joke about it. But no! She gets this deeply unsettled look as I describe what happened and then calmly says “well if it happens again, just call him Jimmy (fake name) and see what happens.” Turns out, a few years ago, we had a resident pass away on property names “Jimmy”, and the room I heard the footsteps coming from was his room where he died. 
+Well, that explained it. You know thinking back on it I can almost smile at how somewhere deep down inside me I almost felt pride at how I had been the one he was so quick to ask. I can remember word for word what I said next though.
 
+“Um, sure, I guess if you need me.”
 
-That night I heard footsteps RUNNING down the hallway from the direction of that room as I was leaving. I didn’t look back. 
+“Really thanks man I knew you would help! I got Mr. M to sign off on it assuming we have all our members our first meeting is going to be on September 1^(st).”
 
+“Assuming” that terminology is hilarious to me, “assuming” he was the one asking them there wasn’t a single person who would turn him down at that time. He told me the date because we both knew this meeting was already inevitable.
 
-So I start calling this thing “Jimmy”. Not like, communicating with it, but just as I’m leaving at night I throw out a “goodnight Jimmy.” And all was quiet for a little while. The first time I did it, I saw someone peering around the corner at me, but that was it. Until this week. 
+Now taking a few steps back you may be wondering why an established high school wouldn’t have a newspaper already. The answer to that is that we did, in fact we had multiple, but all of those came and went long before our class got there. You see the newspaper was known as a sort of “cursed club” at our school.
 
+Now nobody actually believed that but every few years a group of kids would get together, form the club, and fall apart after chasing a massive story. Moreover, it would always be the same one, a cult that would kidnap students from our high school and brainwash or kill them or do whatever else. But the problem with that story was the kids who they said were being “kidnapped” almost always had very documented reasons for their deaths, they weren’t mysteries at all. Drunk driving, drug overdose, or even straight up suicide, all very sad but again all very well documented. So, when a bunch of kids come along get together and chalk it up to some crazy cult ritual you can imagine that the bereaved wouldn’t be to happy about that. Then infighting occurs or maybe the club is just outright disbanded by the school due to backlash. Either way a new club comes along, and the cycle continues.
 
-It started out with just an unsettling feeling. Feeling like I’m being watched as I gather my belongings at the end of the night. Easily explained away because 1) I’m alone, 2) it’s dark, and 3) I’m just waiting for something to happen. The other night I thought I heard someone in the kitchen but there was no one there when I came around the corner. Creepy but ok. 
+Well eventually the promised day had come, September 1^(st). I found that I had that odd feeling of half nervousness half anticipation. That you get when you know something could go really wrong but also really well at the same time.
 
+When I got to the door I found myself thinking maybe this was the place where things changed for me. Maybe here was the place where I start my typical high school movie self-discovery arc. It wouldn’t be though, and if I could I would do anything to stop my former self from going through those doors. But you can’t change the past, you can only try to move on, or dwell on it for the rest of your life. I wonder which I’m doing now.
 
-Then last night, i was in my office finishing up some work, when someone knocked on my door. The residents were still there, so this isn’t unusual, but there was no one there (before you say they may have just walked away, my whole wall is windows. I can see the whole hallway. No one was there).I went to throw away a take out bag in the kitchen garbage. The can is right next to the door, so I don’t bother turning on the lights. But somehow I missed. The bag ended up on the floor, almost like someone had blocked it. Maybe I missed, whatever. But I had this feeling like someone was watching. Then I went to the bathroom, and as I was walking down the hall, I heard voices. Not like a conversation, but like someone was watching tv in one of the bedrooms. We don’t allow TVs in the rooms, so that doesn’t make sense. But ok, maybe someone stayed back cuz they were sick and they were watching something on their phone. The only thing that really bothered me was that there was absolutely no other sound… I hadn’t heard anyone in the building at all since the residents left. But ok… when I exited the bathroom, the sound had completely stopped. When I left the building I heard someone in the hallway opening behind me, so I turned around. No one was there. 
+“Oh, uh, hey there, um, Ian.”
 
+“Wassup.”
 
-I know this is all pretty minimal. But I’m deeply unsettled. If it is “Jimmy”, what does he want? And why is this just starting now? He passed away several years ago, and there has been a number of new staff in and out since then. I myself have been here for a year and this is the first I’ve experienced anything. If it isn’t “Jimmy”, who or what is it? And whatever it is… why is it only showing itself to me?
+Inside waiting for me were the aforementioned people. Kei tossed me a casual greeting due to us having already been acquainted through Jay.
+
+“Yo.”
+
+“Hi.”
+
+The other two Owen and Emily also threw me brief greetings when they saw me enter.
+
+“Ian, good to see you’re here man!”
+
+As soon as Jay said that everyone in the room looked to him as if to question him about my presence. Of course, I wasn’t really all that offended by this seeing as how if I signed up to do a seemingly fun activity with my core group of friends (assuming I had one) and some random guy showed up to join in, I would be pretty confused too.
+
+“Guys, this is Ian, he is going to be our main writer. Ian this is Owen he is going to be your editor, Emily here is our photographer, Kei is our secondary writer, and since I’m not good at any of that stuff I’ll coordinate meetings and be our go between for teachers and the student council.”
+
+Some of our roles here were questionable though not to the extent that I would mind personally. Jay and Kei in particular were involved in almost every club the school had; this was my first one.
+
+Owen and Emily were good people. Owen in particular was the only one I knew at the time who liked souls-borne games as much as I did, knew what Megadeth was and still cheered for the Atlanta Falcons (I am a pretty big football fan).
+
+I’d like to say that this being the case we became fast friends but being as socially inept as I was any attempt I made at getting close to him was clumsy at best. Luckily though he picked up on the fact that I wanted to get closer to him and closed the distance in no time at all.
+
+It’s getting pretty hard for me to reminisce on this stuff because I would just spend the whole time talking about all good times I had enjoying high school for the first time. And we both know that’d just be stalling. That’s not why you’re reading this.
+
+It was around the end of the first semester. Me and Jay were back in weight training class, except neither of us were lifting weights. We were talking about the usual. That being the newspaper club.
+
+The thing was that even though Jay was technically the “president” of our club the truth was he was far too busy between football, other clubs and academics to even show up to our meetings. So, I would usually update him on the goings on during class and he would pass this on to the student council.
+
+On this particular day I was instead joking with him about something Owen had told me. It was something about how he had downloaded TikTok cause he had heard it was supposed to be the new Musically/ Vine and within 2 scrolls his new Chinese overlords decided to show him a video of a 60-year-old man dueting a twerk competition to further his cultivation.
+
+I still find that joke hilarious to this day. When I think about it, it makes me realize how close I had come to a normal high school life for a brief moment. But for whatever reason that was all bound to be ruined that day, during that very period.
+
+On that day as me and Jay were laughing, we would receive a text from an unknown number. In fact, the whole school would. It read: “Congrats we have cracked every textbook and answer sheet in the school. Everybody just earned a free graduation. Hit us up for more details.”
+
+And there it was. We had our story.
