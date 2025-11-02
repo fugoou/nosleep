@@ -1,74 +1,94 @@
-# I used to be a journalist with my school newspaper. I tried investigating a disappearance. I really wish I hadn’t.
-Let me first preface this story with the fact that the ensuing names of people and places are fake stand-ins for their real counterparts. Please, please, under no circumstances try to find the real places or get in contact with the real people. You would only be putting their lives at risk.
+# I took a job as a night pool manager, but the rules are getting me killed.
+The day the eviction notice came down, I knew—that was my death sentence.
 
- I won’t drag out the preamble, all I’ll say is I was young, and I did a lot of stupid and reckless things that I will now, never be able to recover from. This is not your typical mystery story where the good guys solve the mystery, catch the bad guys, and everybody goes home in the end. You may think that information is redundant, but I deeply wish I had heard that warning myself, and you’ll soon see why.
+The landlord threw all my junk onto the sidewalk. I was at the point where I genuinely wondered what the hell the meaning of life was. I slept in my broken-down old car for three days, surviving on convenience store discount bread.
 
-I started high school in 2019, at this point I was still pretty overweight and coming off of my socially awkward faze in middle school. Needless to say, I didn’t have many friends. Now, having said this, while I was bullied pretty severely in middle school for being a bit of a loser, I had learned from this experience that people generally won’t make fun of you if you make yourself easy to ignore. In the end this did work, and I wasn’t really considered a loser back in high school, though the byproduct of this is that I really wasn’t considered much of anything. People didn’t know who I was. This made it so that I felt like I was experiencing high school and the students within, the supposed “prime of our lives”, from a third person perspective despite being a part of it myself.
+Then, one night, I saw the ad. "Community Pool Night Manager. Free on-site housing."
 
- This, as you can imagine, was pretty depressing, though I dealt with it by pretending like I was around to be some grand narrator for everybody else’s story. And it was this complex that plays right into how this story starts. You see as I’ve already told you, I was pretty overweight, though being 6’1”, 240 at 15 it was more in an intimidating way than a revolting way. Still enough to the point that no girl on campus wanted a single thing to do with me though.
+I thought: this wasn't a job, it was a lifeline.
 
- In hindsight, it may have been for this reason that one of my only friends, Jay, told me to join the weight training class. He was the star football player and quarterback of our high school, and he was always trying to get me to join the football team. Though due to my whole “narrator” complex, I was never interested.
+The manager was a skeletal old man with skin so pale he looked drained. He showed me the "dorm," a small room right next to the pump house. It reeked of chlorine. But it had a bed. A roof. To me, it was a five-star hotel.
 
-Funnily enough, I had viewed myself as a side character of his story but now I’m righting him in as a side character in mine. So, I suppose, in some small way, I’ve grown (it only took me a half a decade to do it).
+Before signing, he handed me a stained, crumpled piece of paper.
 
-That aside Jay was a football player so due to it being mandatory for him we naturally had class together. Now in spite being a prospective five-star recruit going into college, Jay was an academic freak, with a big emphasis on being well rounded. Essentially everything I wasn’t. One day as we were working out together Jay came to me with an idea, “Let’s start a Newspaper club, I already asked Kei and she said she would join but we need five people so I’m asking you Emily, and Owen.” 
+"These are the rules for the night shift," he coughed, his eyes cold as ice.
 
-“Ok, but why me?”
+"You follow them. That's the condition for you staying here." I didn't care about the rules then. Just let me sleep.
 
-Me and the word club didn’t really go together, I didn’t know any of the people he had listed off that well except Kei who was his girlfriend and prospective class valedictorian, and me and Jay weren’t even good enough friends for me to be the first person he comes to after his girlfriend. We may have been friends, sure, but we hardly ever even talked outside of school.
+I quickly glanced over them. It read:
 
-“Because you’re my friend, and Ms. F gave you the only A out of our whole class on that last writing assignment.”
+Rules for the Pool After Dark
 
-Well, that explained it. You know thinking back on it I can almost smile at how somewhere deep down inside me I almost felt pride at how I had been the one he was so quick to ask. I can remember word for word what I said next though.
+1. At 10:03 PM, no matter what you hear — splashing, voices, anything — stay away from the deep end.
+2. If you see your reflection acting strange (like… not copying you), kill the lights and leave immediately. Don’t come back for at least three minutes.
+3. At 11:00 PM, the lights will cut out for one minute. That’s “system maintenance.” If you feel anything move, freeze. Don’t breathe. Don’t make a sound.
+4. If the PA system plays children’s laughter when it shouldn’t, run. Don’t look back. Don’t stop until it’s silent.
+5. If you fall into the water, never let your head go under. Keep your mouth and nose above the surface no matter what.
 
-“Um, sure, I guess if you need me.”
+I pocketed the list, thinking, Is this old dude messing with me? But I didn't say it aloud. I just smiled and nodded.
 
-“Really thanks man I knew you would help! I got Mr. M to sign off on it assuming we have all our members our first meeting is going to be on September 1^(st).”
+"Any problems?" the manager asked stonily. "No, none! I'm grateful to be here." "Good. You start tonight. You can rest now." The pallor and coldness never left his face. For a second, I wondered if I was even talking to a human.
 
-“Assuming” that terminology is hilarious to me, “assuming” he was the one asking them there wasn’t a single person who would turn him down at that time. He told me the date because we both knew this meeting was already inevitable.
+The first week was smooth. The night pool was quiet, the pump hum was a lullaby. I truly thought I’d struck gold.
 
-Now taking a few steps back you may be wondering why an established high school wouldn’t have a newspaper already. The answer to that is that we did, in fact we had multiple, but all of those came and went long before our class got there. You see the newspaper was known as a sort of “cursed club” at our school.
+Until Wednesday night. I was doing the shock chlorination. I was near the deep end when I heard a splash. My heart nearly exploded. I checked the wall clock—10:03 PM. I immediately backed away, scrambling to my room. Nothing happened that night. I told myself it was just old pipes. I have to believe that. Where else can I go?
 
-Now nobody actually believed that but every few years a group of kids would get together, form the club, and fall apart after chasing a massive story. Moreover, it would always be the same one, a cult that would kidnap students from our high school and brainwash or kill them or do whatever else. But the problem with that story was the kids who they said were being “kidnapped” almost always had very documented reasons for their deaths, they weren’t mysteries at all. Drunk driving, drug overdose, or even straight up suicide, all very sad but again all very well documented. So, when a bunch of kids come along get together and chalk it up to some crazy cult ritual you can imagine that the bereaved wouldn’t be to happy about that. Then infighting occurs or maybe the club is just outright disbanded by the school due to backlash. Either way a new club comes along, and the cycle continues.
+I became obsessive. I watched the clock and stayed far from the deep end. But one night, while skimming the surface, the reflection changed.
 
-Well eventually the promised day had come, September 1^(st). I found that I had that odd feeling of half nervousness half anticipation. That you get when you know something could go really wrong but also really well at the same time.
+It wasn't just me.
 
-When I got to the door I found myself thinking maybe this was the place where things changed for me. Maybe here was the place where I start my typical high school movie self-discovery arc. It wouldn’t be though, and if I could I would do anything to stop my former self from going through those doors. But you can’t change the past, you can only try to move on, or dwell on it for the rest of your life. I wonder which I’m doing now.
+Next to my shadow, two extra arms slowly split away from my sides. They crept up my reflection... up my chest, up my neck—stopping right at my throat, poised to squeeze. I screamed, stumbled backward, killed all the lights, and sprinted back to my room.
 
-“Oh, uh, hey there, um, Ian.”
+I checked my reflection in a glass of water. Just me. No extra hands.
 
-“Wassup.”
+The next day I went to the manager. He listened, then replied with the same dead tone: "The rules are clear, aren't they?" "You just have to follow them. Otherwise, pay the contract breach fee, and you can walk away."
 
-Inside waiting for me were the aforementioned people. Kei tossed me a casual greeting due to us having already been acquainted through Jay.
+Leaving flashed through my mind, but the fee was a joke. I pictured freezing in my car. No. I can't leave. I just have to follow the rules.
 
-“Yo.”
+But the terror kept escalating. At 11 PM, the lights cut out. I stood still, pressed against the wall. But I heard footsteps.
 
-“Hi.”
+Slosh... Slosh...
 
-The other two Owen and Emily also threw me brief greetings when they saw me enter.
+Wet, bare feet on the tiles. The sound came from the other end, slowly walking towards me. One step. Another step. I couldn't bear it. I flinched, retreating one step along the wall. In that instant, whatever it was broke its pace. It charged. Just as I was about to run, the minute was up. The lights came on. The pool was empty. No footprints. The whole thing felt like a horrible dream.
 
-“Ian, good to see you’re here man!”
+I was breaking. I knew then: no amount of money was worth another second here.
 
-As soon as Jay said that everyone in the room looked to him as if to question him about my presence. Of course, I wasn’t really all that offended by this seeing as how if I signed up to do a seemingly fun activity with my core group of friends (assuming I had one) and some random guy showed up to join in, I would be pretty confused too.
+I decided to leave that night, quietly. To hell with the fee. I packed my bag.
 
-“Guys, this is Ian, he is going to be our main writer. Ian this is Owen he is going to be your editor, Emily here is our photographer, Kei is our secondary writer, and since I’m not good at any of that stuff I’ll coordinate meetings and be our go between for teachers and the student council.”
+Suddenly, my phone rang. Not a call. The radio app. The sound of children laughing and splashing.
 
-Some of our roles here were questionable though not to the extent that I would mind personally. Jay and Kei in particular were involved in almost every club the school had; this was my first one.
+I have never installed a radio app.
 
-Owen and Emily were good people. Owen in particular was the only one I knew at the time who liked souls-borne games as much as I did, knew what Megadeth was and still cheered for the Atlanta Falcons (I am a pretty big football fan).
+Rule four smashed into my head. "...run out of the building..."
 
-I’d like to say that this being the case we became fast friends but being as socially inept as I was any attempt I made at getting close to him was clumsy at best. Luckily though he picked up on the fact that I wanted to get closer to him and closed the distance in no time at all.
+I jumped up, but it was too late. The laughter wasn't just coming from my phone. It was coming from the walls, the floor, the ceiling. The whole room was filled with the echoing, distorted sound of children playing underwater.
 
-It’s getting pretty hard for me to reminisce on this stuff because I would just spend the whole time talking about all good times I had enjoying high school for the first time. And we both know that’d just be stalling. That’s not why you’re reading this.
+I slammed the door open. The main hall was flooding. No... not water.
 
-It was around the end of the first semester. Me and Jay were back in weight training class, except neither of us were lifting weights. We were talking about the usual. That being the newspaper club.
+It was a black, thick, stinking liquid. It was already at my ankles. No time to think. I ran along the slippery tiles towards the exit.
 
-The thing was that even though Jay was technically the “president” of our club the truth was he was far too busy between football, other clubs and academics to even show up to our meetings. So, I would usually update him on the goings on during class and he would pass this on to the student council.
+My foot slid.
 
-On this particular day I was instead joking with him about something Owen had told me. It was something about how he had downloaded TikTok cause he had heard it was supposed to be the new Musically/ Vine and within 2 scrolls his new Chinese overlords decided to show him a video of a 60-year-old man dueting a twerk competition to further his cultivation.
+I screamed, falling sideways into the shallow end of the pool.
 
-I still find that joke hilarious to this day. When I think about it, it makes me realize how close I had come to a normal high school life for a brief moment. But for whatever reason that was all bound to be ruined that day, during that very period.
+The black, stinking liquid instantly enveloped me. An ice-cold, malicious will seeped into my skin. Rule five. The final warning. I kicked and fought, using every ounce of strength to keep my head up.
 
-On that day as me and Jay were laughing, we would receive a text from an unknown number. In fact, the whole school would. It read: “Congrats we have cracked every textbook and answer sheet in the school. Everybody just earned a free graduation. Hit us up for more details.”
+Just as my face was about to go under, I saw it.
 
-And there it was. We had our story.
+Beneath the surface, it wasn't water. It was a black ocean of writhing arms and open eyes, all reaching for me. Malicious whispers overlapped, trying to claw into my mind.
+
+I let out a primal howl, scrambled out of the pool, and covered myself in the disgusting slime. I had followed the last rule. I had made it.
+
+I stumbled to the glass doors and threw them open. The liquid miraculously stopped, not spilling past the threshold. I ran out.
+
+The community was dead silent. A security guard saw me, covered in black slime. His expression...
+
+Was he shocked by my state? Or by the fact that I actually got out?
+
+Did I really escape?
+
+I can feel that something came out with me. I'm curled up in my old car now, typing this on my last few phone battery bars.
+
+But I can still smell the rot. And all around me, I hear the continuous... laughter of children.
+
+It’s 3:17 AM, and I just hope I can see the warm sunlight tomorrow.
