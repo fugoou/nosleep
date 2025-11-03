@@ -1,94 +1,92 @@
-# I took a job as a night pool manager, but the rules are getting me killed.
-The day the eviction notice came down, I knew—that was my death sentence.
+# Remember those creepy chain emails from the early-mid 2000's? UPDATE 2.
+Context: [https://www.reddit.com/r/nosleep/comments/1n7574p/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1n7574p/remember_those_creepy_chain_emails_from_the/)
 
-The landlord threw all my junk onto the sidewalk. I was at the point where I genuinely wondered what the hell the meaning of life was. I slept in my broken-down old car for three days, surviving on convenience store discount bread.
+Last night I ended up passing out on the motel couch. I woke up maybe about an hour ago with a dry throat, a sharp headache, feeling nauseous. Which actually wasn’t so bad. Because at least it managed to draw focus away from everything else.
 
-Then, one night, I saw the ad. "Community Pool Night Manager. Free on-site housing."
+My immediate instinct was to head for the shower. But then I stopped before entering the bathroom.
 
-I thought: this wasn't a job, it was a lifeline.
+I began arguing with myself in my head. What could really happen? The moment I turned the water on, she’d be right there behind me? It wasn’t possible.
 
-The manager was a skeletal old man with skin so pale he looked drained. He showed me the "dorm," a small room right next to the pump house. It reeked of chlorine. But it had a bed. A roof. To me, it was a five-star hotel.
+But then again, none of this should’ve been possible.
 
-Before signing, he handed me a stained, crumpled piece of paper.
+I decided to text Brito about it. Not sure how I was expecting him to respond, or whether he was going to take it serious.
 
-"These are the rules for the night shift," he coughed, his eyes cold as ice.
+But he told me that he was heading over. To just stay put. And absolutely do not enter the shower.
 
-"You follow them. That's the condition for you staying here." I didn't care about the rules then. Just let me sleep.
+While waiting around for him, I started wondering about the logistics of it all. I’d never entered my room and the woman had never got to me.
 
-I quickly glanced over them. It read:
+So what if I just never took a shower? Would I be alright?
 
-Rules for the Pool After Dark
+At the very least, I should’ve been okay to use the sink. I splashed my face with cold water until the grogginess had become something manageable. Then I made myself some instant coffee and stared out the window, tried to dissociate.
 
-1. At 10:03 PM, no matter what you hear — splashing, voices, anything — stay away from the deep end.
-2. If you see your reflection acting strange (like… not copying you), kill the lights and leave immediately. Don’t come back for at least three minutes.
-3. At 11:00 PM, the lights will cut out for one minute. That’s “system maintenance.” If you feel anything move, freeze. Don’t breathe. Don’t make a sound.
-4. If the PA system plays children’s laughter when it shouldn’t, run. Don’t look back. Don’t stop until it’s silent.
-5. If you fall into the water, never let your head go under. Keep your mouth and nose above the surface no matter what.
+Brito showed up a few minutes later. There were three others with him. One was a middle-aged man wearing a polo shirt, slacks. The other two were hulking SWAT officers outfitted in what looked like full sets of gear.
 
-I pocketed the list, thinking, Is this old dude messing with me? But I didn't say it aloud. I just smiled and nodded.
+The officers stood quietly by the door while the man in the polo shirt flashed an FBI badge, introduced himself as Stephens. His expression was hard to read. He was smiling, but for what reason I couldn’t tell. It certainly wasn’t friendly but it also didn’t seem malicious.
 
-"Any problems?" the manager asked stonily. "No, none! I'm grateful to be here." "Good. You start tonight. You can rest now." The pallor and coldness never left his face. For a second, I wondered if I was even talking to a human.
+Brito asked me if I had taken a shower yet. I told him that I hadn’t. He nodded.
 
-The first week was smooth. The night pool was quiet, the pump hum was a lullaby. I truly thought I’d struck gold.
+Stephens then asked if he could look at both emails. I said sure and then gave him my phone. His expression stiffened for the five or so minutes he spent looking them over. But as he handed the phone back to me, the smile had returned.
 
-Until Wednesday night. I was doing the shock chlorination. I was near the deep end when I heard a splash. My heart nearly exploded. I checked the wall clock—10:03 PM. I immediately backed away, scrambling to my room. Nothing happened that night. I told myself it was just old pipes. I have to believe that. Where else can I go?
+He said it was very important that I co-operate with what he was about to tell me next.
 
-I became obsessive. I watched the clock and stayed far from the deep end. But one night, while skimming the surface, the reflection changed.
+I was going to take a shower while they monitored me. I’d shut the curtains but they’d be there in the room with me.
 
-It wasn't just me.
+This was probably the only situation where I would’ve ever agreed to something like that. Even though I wasn’t fully convinced that anything would happen.
 
-Next to my shadow, two extra arms slowly split away from my sides. They crept up my reflection... up my chest, up my neck—stopping right at my throat, poised to squeeze. I screamed, stumbled backward, killed all the lights, and sprinted back to my room.
+They told me that there shouldn’t have been anything to worry about, since they still had a visual of the woman in my apartment. Apparently she still hadn’t moved. And it was pretty clear that neither of them were really entertaining the possibility of her teleporting over. The prevailing theory was still that the woman had somehow found a way to enter my apartment without me noticing. How she did that, I couldn’t begin to fathom. But I suppose that in the absence of any other explanations, it had to be true. 
 
-I checked my reflection in a glass of water. Just me. No extra hands.
+So I asked them what reason they had to want to monitor me. What were they expecting?
 
-The next day I went to the manager. He listened, then replied with the same dead tone: "The rules are clear, aren't they?" "You just have to follow them. Otherwise, pay the contract breach fee, and you can walk away."
+They told me that they weren’t entirely sure. But the situation was bizarre enough that it had forced the need to confirm certain truths. To test some theories.
 
-Leaving flashed through my mind, but the fee was a joke. I pictured freezing in my car. No. I can't leave. I just have to follow the rules.
+Suddenly there came this gnawing feeling that it wasn’t worth the risk. After all, I could just take a bath.
 
-But the terror kept escalating. At 11 PM, the lights cut out. I stood still, pressed against the wall. But I heard footsteps.
+But was I only going to take baths from now on? What was I actually afraid of? The woman was still in my apartment. I had armed SWAT guarding me. What the fuck could possibly happen?
 
-Slosh... Slosh...
+There was no way in hell I was going to live paranoid, looking over my shoulder for the rest of my life. I needed to confirm something as well. That I wasn’t in danger. That I had nothing to fear.
 
-Wet, bare feet on the tiles. The sound came from the other end, slowly walking towards me. One step. Another step. I couldn't bear it. I flinched, retreating one step along the wall. In that instant, whatever it was broke its pace. It charged. Just as I was about to run, the minute was up. The lights came on. The pool was empty. No footprints. The whole thing felt like a horrible dream.
+The plan was to have one of the officers stand out in the hallway by the front door while the other stationed himself right outside the bathroom.
 
-I was breaking. I knew then: no amount of money was worth another second here.
+Brito and Stephens both turned away as I stripped down, entered the shower. Doing so felt ridiculous enough that it managed to inject a bit of levity to the mood. But then I turned the water on and that disappeared almost immediately. Replaced by dread and uncertainty. It should’ve felt euphoric to scrub the dirt and sweat off of my skin. Instead my heart was beating heavy as I stared down at the drain.
 
-I decided to leave that night, quietly. To hell with the fee. I packed my bag.
+I squeezed some shampoo into my hands and began massaging it into my scalp, though I continued to force my eyes open, keeping them on the drain.
 
-Suddenly, my phone rang. Not a call. The radio app. The sound of children laughing and splashing.
+But soon the stinging became too much and I closed them for just a few seconds as I wiped the shampoo away.
 
-I have never installed a radio app.
+When I opened them back up, it looked like the water had taken on a brownish-green color.
 
-Rule four smashed into my head. "...run out of the building..."
+At first I thought it could’ve been the shampoo. But then I could smell something rotten floating through the steam. Suddenly the spray plate from the showerhead dropped to the floor in front of me. The stench intensified.
 
-I jumped up, but it was too late. The laughter wasn't just coming from my phone. It was coming from the walls, the floor, the ceiling. The whole room was filled with the echoing, distorted sound of children playing underwater.
+It took me a few seconds too long to realize what was happening. I turned the water off and opened the curtains but before I could step out, I could feel something grab my hair. I tried yanking my head away but whatever was holding me had some kind iron grip. I couldn’t move. Both Brito and Stephens seemed frozen in place as they stared somewhere above me. Their eyes were wide and their mouths were slack. They looked shell-shocked.
 
-I slammed the door open. The main hall was flooding. No... not water.
+I asked them to tell me what they were looking at cause I sure as hell didn’t want to turn around and find out for myself. But they didn’t tell me anything. Instead they yelled for the officer outside.
 
-It was a black, thick, stinking liquid. It was already at my ankles. No time to think. I ran along the slippery tiles towards the exit.
+The bathroom door swung open but the officer stopped himself before entering. Though his mask was concealing his expression, his body language was telling enough. He shook his head, backed away. Then he ran out of the room.
 
-My foot slid.
+I could feel whatever was holding my hair beginning to pull me up. As if it were trying to rip my scalp off.
 
-I screamed, falling sideways into the shallow end of the pool.
+Brito and Stephens continued to stand there, looking dumbfounded. I started to scream. But then the officer who had been out in the hallway rushed in. He also stopped at the doorway, hesitating for a moment before grabbing the knife from his belt and lunging towards me. Soon I could feel the pain and pressure alleviate. And the second I did, I leapt out of the tub.
 
-The black, stinking liquid instantly enveloped me. An ice-cold, malicious will seeped into my skin. Rule five. The final warning. I kicked and fought, using every ounce of strength to keep my head up.
+Once I was out the bathroom, I turned around to see a pale arm retracting back into the showerhead.
 
-Just as my face was about to go under, I saw it.
+It’s been a few hours since that happened. A chunk of my hair’s missing from where the officer had cut it off. My scalp’s been bandaged up and I ended up using the sink to scrub away whatever sewer water was left on my skin. Mentally I haven’t begun to recover at all.
 
-Beneath the surface, it wasn't water. It was a black ocean of writhing arms and open eyes, all reaching for me. Malicious whispers overlapped, trying to claw into my mind.
+I’m back at the police station now. I can feel everybody staring at me, though they all turn away whenever I try and look at them. A strange tension hangs in the air. Still no updates on Jackson. He might be out of the country by now. But they did give me an update on Elisa.
 
-I let out a primal howl, scrambled out of the pool, and covered myself in the disgusting slime. I had followed the last rule. I had made it.
+They can’t find her. She hasn’t been into work. Nobody’s seen her.
 
-I stumbled to the glass doors and threw them open. The liquid miraculously stopped, not spilling past the threshold. I ran out.
+I know it’s my fault. I could’ve warned her. But would she have believed me? Would it have been too late anyways? How the fuck could I have seen this coming?
 
-The community was dead silent. A security guard saw me, covered in black slime. His expression...
+I've also learned that the woman is no longer in my apartment. From what I've heard, she disappeared right in front of the cops who had been watching her. They just blinked and she was gone. They think she's still in the motel. Somewhere in the pipes.
 
-Was he shocked by my state? Or by the fact that I actually got out?
+I’ve deleted all my emails. Every single address. The cops insisted I do so and I didn’t fight them on it.
 
-Did I really escape?
+But then I received a text message. From a number I didn’t recognize.
 
-I can feel that something came out with me. I'm curled up in my old car now, typing this on my last few phone battery bars.
+I should’ve paid more attention, been more careful. I shouldn’t have opened it. But I did.
 
-But I can still smell the rot. And all around me, I hear the continuous... laughter of children.
+*THE NEXT TIME YOU FALL ASLEEP, SHE WILL BE STANDING OVER YOU.*
 
-It’s 3:17 AM, and I just hope I can see the warm sunlight tomorrow.
+*SHE WILL TAKE YOU. NO ESCAPE. NO ESCAPE. NO ESCAPE.*
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1netui5/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1netui5/remember_those_creepy_chain_emails_from_the/)
