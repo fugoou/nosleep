@@ -1,124 +1,227 @@
-# I Took a Job as a Containment Team Lead. My First Mission Hit Too Close to Home. (Part 2)
-"We got them all. We got Pigg. We got the console, collars, and bootleg RDC," I said into the headset. We also took hard drives full of *material* that, while not anomalous, made my stomach turn more than feeling my own bones weave themselves back together.
+# It Wasn't Some Animal With Mange
+Look, all I can say for certain is that the thing that tried to kill me six nights ago was not a normal animal.
 
-"Excellent! We're sending trucks in now to bring the subjects into custody. Keep *Pigg* with you, though; probably best not to let him out of sight for too long."
 
-When the last cage hit the street, the witness left his window and sprinted into the yard.
 
-He made it three steps towards us before I stopped him.
+I remember that the night was fairly cold as I went to take out the trash. The rain was pouring, gently but consistent, and I had forgone a jacket for the sake of getting the task over with quicker. It was one of those nights where the neighbors must’ve all needed to get into work, or something, early because the only lights I could see were the streetlamps. I couldn’t make out any lights in any windows, no TV, nothing. It was also unusually quiet too. Bugs normally make noise at all hours of the night here. But I couldn’t hear a damn thing that night. I didn’t pay it any mind. I needed to get to work early the next day, like everyone else.
 
-“That’s your sister, isn't it? Lydia? She's still in there, somewhere." I said, trying my best to console him. "We might be able to bring her back, since she hasn't been like this for very long."
 
-I could see that he doubted my words, so I told him a gentle lie. "This isn't the first time we've dealt with this."
 
-I decided to do my best to make him feel like he had done *something* to save his sister, a truth this time.
+What I did pay mind to, however, was the inexplicable feeling of dread that I got as I walked back to my garage.
 
-"You're the one who tipped off our informant at the PD, by the way. This wouldn't have been possible without you. Sorry about the way he acted towards you, but *we can't have things like this on the public record."*
 
-I felt like an idiot for saying that last part, and started to walk away. That's when I noticed the way she was staring at him. Lydia, a devious grin spread across her face, was staring at Grett and bending the bars on her cage outward in an attempt to get to him.
 
-I spun around on my heel, remembering the card. "If you see her again, and she *isn't* being escorted to your front door by us, *do not let her in*." I tried to hide the fear in my voice as I relayed this information to him, but I think my facial expressions betrayed me.
+It was almost like I was being watched by something, stalked even. The hairs on the back of my neck stood up as I looked around and saw nothing. Nothing among the trees, nothing among the houses. I tried to chalk it up to the heebie-jeebies about the night being unusually quiet or me being particularly cold without a jacket, but I could only shake the feeling when I got back into my garage.
 
-I handed him the card and explained, "Keep this card on you at all times. If she *does* come back for you, she won't be able to touch you as long as you have it.
 
-I walked away, and he meandered back into his own house.
 
-"Aren't you gonna... y'know, *Men In Black* that guy?" Thatcher asked, holding up his wand and imitating clicking a button on the hilt.
+I let out a breath of relief as I made my way to the garage door gizmo. I went to press it and that feeling, that same creeping paranoia that had overcome me outside, came back. I tried to steel myself, tried to convince myself that the feeling would go away when the garage door closed, and pressed the button.
 
-"I don't think it'll be necessary, plus he's more useful to us with his memory intact. I gave him a card... I think his sister might try to seek him out if we don't keep her locked up. The way she was looking at him..." I said.
 
-"We all noticed it too," Miller said, before I could finish the thought. "I think you made the right decision."
 
-We loaded the last container, then, as we were shown in training, four of us stood about 10 meters out at each corner of the house and set our wands to full power before activating the *Burst* function.
+For some reason, this time, I felt the need to watch the door and make sure it closed. I never do that normally, but this creepy feeling was controlling me. The door was mostly closed when…it made it’s presence known.
 
-"The implosions are noiseless and lightless at full power," Holmgren began, "because the density of KF energy at that level surpasses its Schwarzschild radius for less than a tenth of a millisecond. Any matter caught inside is effectively turned into pure KF energy, which the shield function automatically protects us against. It's an in-built safety feature."
 
-After nothing was left of the house, we went around with our wands on the lowest setting of burst, pointed at the ground. Where we pointed, fresh grass sprouted and grew. This was also something that Holmgren taught us on the fly. This explains why he didn't ask very many questions during training. I suppose he already *knew*.
 
-By first light, it looked as if the house had never been there. The rest was up to the *Cleaners,* forging paperwork and swaying bureaucracy to make the masses believe none of this ever happened.
+It tried to scurry underneath, but it got stuck on the garage door. I couldn’t get a good look at it at the moment, all I saw was the mess of animal limbs as it struggled under the weight of the door. At that point, I thought it was just some poor animal that was trying to get out of the rain. The animal managed to wriggle its way into my garage, and that’s when I got a good look at it.
 
-\---
 
-We never got the luxury of a debrief. Lydia went into an isolation bay with the rest of the recovered subjects. Someone upstairs decided to begin “correction” on Tuesday, but come this afternoon, she wasn’t in her bay anymore.
 
-“Containment breach,” Holmgren said over comms. “Tracker's inactive, subject is the sister of the witness.”
+I’m not someone who knows the critters all that well, but whatever it was, it wasn’t any animal I’d seen before.
 
-“The *witness*,” Miller repeated.
 
-“Grett,” I said. “Move.”
 
-We killed the van in the same spot. No police this time, and no sign of Grett. Or, more worryingly, Lydia.
+As it started to get its bearings and “stand up,” I saw that it was big as shit, like deer-sized, way bigger than should’ve been able to squeeze under that gap. Its front limbs were skinny, way too long for its body, and it had five long claws on two paws at the end of each. Its face had a long snout with way too many thin, needle-like teeth that were stained red. It was also missing a goddamn eye. The thing had long jet-black fur that was matted and had a bunch of fleshy scars scattered throughout. This was not any normal animal.
 
-Holmgren dropped the Field Sphere on the grass and flipped it to sensor-only mode. We kept all shields down in hopes that she would be drawn to us *instead* of Grett.
 
-"KF signature, about a kilometer away and closing in. *Fast.*" Holmgren said, pointing due north.
 
-"How fast?" I asked, but the question soon didn't matter. Silently, and before any of us could react, Lydia had appeared and climbed the side of Grett's house, stopping at the second-floor window.
+I was frozen. Just looking at the thing locked me in place like it was holding me with just its presence alone. No matter how much I wanted, my legs just wouldn’t move. I watched it as it shook itself dry like a dog. For a second, I thought it might’ve actually just been trying to escape the rain. The more that I looked at it, the less frightening it became. It started to seem even friendly; its sharp teeth started to look like a nice smile. Poor thing. I felt like I needed to get closer to it. It might’ve needed help or something. My body instinctively took a half-step towards it.
 
-“Up,” I said, motioning for the rest of the team, who hadn't even noticed her there yet. All of us except Holmgren made our way through the front door and were going up the stairs when an ear-piercing screech, mixed with the sound of shattering glass, erupted from the bedroom.
 
-The bedroom was a snow globe of broken glass and dust that had been thrown up in the blast. Grett lay in the corner, knocked unconscious but with no visible sign of *fresh* injury. The black card clenched in his hand so tight that his knuckles had gone white. He was breathing.
 
-"*Smart man.*" I thought to myself.
+But then, it looked at me.
 
-The light had blown. In the window... what was left of the window... Lydia’s face hovered just beyond the frame, smile wide, eyes painted a malicious shade of patience.
 
-“Lydia,” Dwyer said, “It’s okay. We’re here.”
 
-Her head tilted when she heard Dwyer’s words, like she had just heard a joke she didn't understand.
+It took a couple of its own tertiary steps towards me, almost as if it were testing to see whether I’d run away. When I didn’t, its needle smile seemed to grow a little wider.
 
-Thatcher eased to the far side, activating his shield and attempting to block any direct path to Grett. I moved forward, readying my wand.
 
-I clicked Null on a low setting and felt the bubble of silence form around me as well. Lydia’s hand twitched. She reached for the line where the shield ended and recoiled like it burned.
 
-“Edward,” Holmgren said through my earpiece, “we can pin her with the Sphere if you bring her three steps inside the room; any less than that and we risk *frying* her."
+It lunged at me, all limbs and claws and gnashing teeth.
 
-“Lydia,” I said, and for a second she looked at me. “We’re going to bring you home. But you have to step inside.”
 
-Her eyes flicked to me, then the wand in my hand, then to the card in Grett's. The grin widened and trembled.
 
-“*Step,*” she said, or rather the thing inside her said, deep and guttural. The glass on the floor chimed like a chorus of bells in tune with her word.
+In that moment, it was like all of my senses returned. That feeling of dread wasn’t creeping anymore; it was everywhere in my body. I jumped back and into the open door to my basement, slamming it shut and locking it just as the thing landed where I was.
 
-She moved. Fast, but we were faster. Holmgren slammed the Sphere to full power as soon as he saw her move. Lydia winced, screamed, and then she was on the floor, hands raking at the floorboards. Her painted nails, long since flaked and cracked, ripped away as the trapped animal within tried to escape the small space between the three bubbles of *Null*.
 
-“Now,” I said.
 
-Miller dove, pinning her wrists with the polished restraints; Dwyer slid down to her feet and restrained her ankles.
+I pushed my body against the door as the creature started slamming against it. That thing wasn’t making any noise. All I could hear was the constant banging of its body on the door. I had options, A desk, some heavy boxes and maybe some chairs if I positioned them right, but getting any of those would mean leaving the door, and I had no idea how long it would last with that thing trying to break it down.
 
-Lydia screamed; inhuman, maddening. Dwyer and Miller both fell unconscious to the floor, but it was too little, too late. She was restrained and no longer a threat.
 
-The scream thinned, softened, turned into a breath. Lydia blinked once, twice. The grin had vanished from her face; in its place, she wore a scowl of pure malice.
 
-Holmgren came upstairs at that moment. "Help Dwyer and Miller, they weren't in the shields when she screamed. I think it may have affected them."
+It slammed against the door again, harder this time. The door cracked and the force of the impact knocked me off it. I scrambled back to the door as fast as I could, but I knew it wasn’t lasting much longer. I had to make some type of choice quickly if I wanted even the slightest chance of surviving.
 
-I directed, and Holmgren obeyed. In no time, the two were back on their feet, only a faint line of blood running from their ears as evidence they had ever been unconscious.
 
-Thatcher and I lifted Lydia and carried her like a prisoner down the stairs, out into the quiet street. Holmgren shut down the Sphere; the local KF reading came back at 0.013Hz, like it should be. The restraints on Lydia prevented the entity from altering any of the Kyrie Field beyond her body, and even prevented it from *leaving* said body while they were attached. We loaded Lydia into the cage in the back of the van, locking it and closing the doors.
 
-We left Grett in his bed, unconscious. Dwyer checked his vitals before we left the room and assured me he would be okay. I'm not sure how much he will remember. Hopefully he wasn't awake to see us dragging his sister away from him for the *second* time.
+The option that seemed the most reasonable in the heat of the moment was, lord help me, trying to find a weapon to kill the thing.
 
-At the curb, Dwyer squeezed my arm. “You did good, boss. That was a tough situation, and *you* led us through.”
 
-Miller glanced up at the sky, and I followed his gaze. The clouds on the horizon were glowing the dark purple of a Georgia sunset, with beams gleaming out of gaps in the cloud layers.
 
-"Beautiful, isn't it?" I said aloud.
+I didn’t have much time to think because the thing slammed into the door one final time, busting it off its hinges. The door fell on top of me as I was thrown back once again.
 
-"It's almost as if Heaven could be just beyond those clouds." He said, reaching his hand out and squeezing the clouds between his fingers.
 
-"If there is a Heaven, I'm sure that Dr. Kruger nutjob would find *some way* to blow it up for evoking *too* much curiosity." Thatcher joked, joining us in our cloud watching.
 
-"If there is a Heaven, I'm sure Elliot has every Angel and the Big Man himself cataloged already," Dwyer added to the joke.
+I shoved the door off of me as the creature stalked towards me. It definitely looked like it was smiling at me. It was moving slowly, creeping towards me. I think the thing was enjoying this. All of those warring feelings came rushing back as I looked at it. The creeping dread, the pity for the creature and the desire to go closer to it. But the feeling that overcame me the most was a desperation to survive. I crawled back a few paces before I managed to get to my feet and make a break for the stairs.
 
-"I can still hear you, you know..." Elliot cracked over our comms. We all chucked slightly.
 
-"But there *is* a Heaven. It's in Sweden, and my brother works there. He's an engineer too." Holmgren said, serious as a heart attack.
 
-We all turned to look at him, hoping this was some kind of dry humor.
+A searing pain shot through my leg. I looked back and saw that the thing had got me in the calf with its claws. I couldn’t focus on that though, I had to stay alive, and I got to the stairs going as fast as I could with a wounded leg.
 
-\---
 
-Night has fallen now. The crisp Autumn air blows over my face as I gaze out into the countryside through the rolled-down window of the van. Thatcher volunteered to drive back, since I still have a little trouble feeling the whole right side of my torso after what happened during the Pigg incident. Holmgren assures me this is temporary, and I should be back to normal by next week. I trust him.
 
-A faint hum is growing in the air now, and the trees and fields have taken on a hue of familiarity as the headlights pass over them.
+I hobbled up the stairs as the thing chased after me. It was still slowly stalking me, like it wasn’t in a rush. Like it was fucking with me.
 
-***We must be pretty close to Calloway.***
+
+
+Whatever fun this thing was having trying to kill me, I was going to use the extra time to my advantage. I knew that the kitchen was a little too far to get a knife, but I did have a closet with a toolkit inside, and that toolkit had a hammer.
+
+
+
+I struggled through the hallway, dragging my slashed leg as I went. I got to the closet with the toolkit and hid inside. Maybe, just maybe, I would be able to hide from the thing in the dark until it got bored and left. It was at that moment that I realized that the thing would definitely know where I was because my leg was for sure trailing blood. I fumbled around the closet for the toolkit. Once I had it, the hammer was easy to find because it was the heaviest thing in the box.
+
+
+
+I heard the creature finally make its way up the stairs. That’s when I started to get a new feeling. It was almost like it was licking at the back of my brain, this overwhelming sense of inevitable failure. I swear I heard a whisper, something in my head telling me, *you cannot do this, give up*. I heard the thing sniffing, likely my blood, and slowly making its way closer to the closet. For a minute, I did genuinely want to give up. Whatever was in my head was right. I was outmatched, I didn’t know what the fuck I was dealing with, and I had left it a red carpet right to me. I wanted to open the door and give myself to it so I could be eaten, or butchered, or whatever it wanted to do to me.
+
+
+
+My hand was hovering by the doorknob when I heard its claws rap-tap-tapping against the door. That thing was right fucking outside. It would’ve been so easy to drop the hammer and let it take me, but I came to my senses at that moment.
+
+
+
+I didn’t want to die, and I was sure as hell not going to let this thing kill me. If it did kill me, I wasn’t going down without a fight.
+
+
+
+I gripped the hammer tighter and turned the doorknob.
+
+
+
+I threw the door open with all the power I had, hitting the thing in the face and staggering it back a few paces. I threw myself at it, swinging the hammer and cracking it in the snout, but falling face first into its fur. The thing pushed me off with force, sending me sprawling into my living room.
+
+
+
+I scrambled to my feet, ignoring the shooting pain in my leg. I couldn’t let a wound and some blood loss get the better of me, just like I couldn’t let this beast get the better of me. My living room was not the largest space, but it beat trying to fight that thing in a hallway.
+
+
+
+Fighting back must’ve enraged it, because it actually let out a noise, the loudest roar I’ve ever heard in my life, and it lunged at me. I ducked under it and slipped in my own blood. Thankfully, it crashed into the wall and disoriented itself further. I got up and charged at it, bringing my hammer down on the back of its head. The thing whipped an arm back and threw me back again.
+
+
+
+This time, it recovered quicker. It pounced on me and pinned me by my shoulder. I switched the hand I had the hammer in and brought it down onto its arm to a loud crunch sound. The thing reared back and howled in pain as I made my move.
+
+
+
+I tackled the creature and held it down to the ground. I raised the hammer up and brought it down on its face. I brought it down again and again and again, trying to turn its skull into mush. I had to make sure this thing didn’t survive. The creature flailed and howled as I struck it.
+
+
+
+Its good arm shot up and got me in the neck with a claw.
+
+
+
+I fell over, clutching my throat and kicking my legs. I found some comfort, some peace in my last moments, in the fact that I knew the thing was dying right next to me.
+
+
+
+That’s when I heard them. Sirens. I couldn’t tell what type of sirens they were, but somebody must have heard that thing screaming and called 911.
+
+
+
+At that point, I had to laugh. It was more of a wet gurgle than a laugh, but it was all I could muster. They couldn’t have gotten here sooner?
+
+
+
+My vision faded to black as I heard my front door being busted down.
+
+
+
+
+
+
+
+I woke up in a hospital.
+
+
+
+I struggled to open my eyes in this new environment. The bright lights, sterile smell and beeping machines were already overwhelming.
+
+
+
+“My goodness!” I heard a voice say, “Doctor! Get in here! He’s awake!”
+
+
+
+I opened my eyes more to see a nurse standing next to me.
+
+
+
+He was a man that was maybe in his fifties, greying hair, purple scrubs, N-95 mask covering most of his face. I didn’t know how long he had been there, but he looked like he’d had a long day. The doctor that came in looked damn near identical to the nurse, except he was wearing a lab coat and no mask. They looked like they could be brothers from what I could make out.
+
+
+
+I realized that I was all bandaged up. My leg was wrapped up, and I could barely move my neck from all the bandages on it
+
+
+
+The doctor sat down on a stool and rolled next to me.
+
+
+
+“I’m Dr. Harris, and that’s Nurse Jacob,” The doctor said in a warm voice, “Son, how are you feeling?”
+
+
+
+“Like absolute crap,” I replied, “What happened to me?”
+
+
+
+“You were out for a few days after an attack. The official police report says it was an animal.” Dr. Harris said, “They’re thinking maybe it was some type of animal with Mange, or something like that.”
+
+
+
+“That’s bullshit!” I said, “That thing was not an animal!”
+
+
+
+“That’s what I said when I saw the photos of it.” Nurse Jacob interjected.
+
+
+
+“Jake,” Dr. Harris sighed, rubbing his face with a gloved hand, “Let’s not peddle the conspiracies in front of the patient please.”
+
+
+
+“Listen Ben, you know that the whole ‘diseased animal’ thing the cops are trying to pull is only to keep the public from panicking,” Nurse Jacob argued, “Mr. Langley here needs to know that somebody believes him, so he doesn’t think he’s crazy.”
+
+
+
+Dr. Harris sighed again and stood up.
+
+
+
+“We’re gonna check up on you again in a few minutes, son, give you some time to wrap your head around everything.” Dr. Harris said, “But, for what it’s worth, I think the police are full of shit too.”
+
+
+
+With that, Dr. Harris and Nurse John walked out the door to my hospital room, leaving me alone with my thoughts.
+
+
+
+That was two days ago. Since then, I’ve spoken to the police. I feel like they’re fucking with me just like that creature did. They are trying to convince me that it was a rabid, sick bobcat or deer or something. I know that it wasn’t. The only two people who believe me are Nurse John and Dr. Harris. I think they’re the only reason why I’m not getting some type of psychological evaluations. The one nice thing the police have done for me is bring me my electronics from my place, so I’m not forced to rely on hospital TV for entertainment.
+
+
+
+I still don’t know what that creature was or why it wanted to kill me. All I know is that it’s dead, and I know that I’m terrified of going back home now.
+
