@@ -1,227 +1,55 @@
-# It Wasn't Some Animal With Mange
-Look, all I can say for certain is that the thing that tried to kill me six nights ago was not a normal animal.
+# Is this narcolepsy or something else?
+My wife and I got married last fall. It was great to have everyone together, but talking to my friends from college brought up something I had completely pushed out of my memory. My wife was enthralled with the stories, naturally. I can’t blame her. And as the stories were being told, as I jumped in with details or confirmed what they were saying, I felt bad that I had never told her any of this. Later that night, I helped her out of her dress with a million buttons and ties and I told her everything about it. I didn’t keep it a secret on purpose. I had pushed it out of my mind and hadn’t had any issues since I moved out of my college apartment, so it never came up. She wasn’t upset, she was just curious. It was important to share any potential health problems with my now wife. 
 
+The short of the story is that I went through a bout of sleep problems that started with sleep talking and ramped all the way up to dreaming while awake and sleep paralysis. Going over the details of it all brought it to the forefront of my mind and today my wife brought it up again and I’ve started to wonder the same things as I did when it was actually happening. Can sleep problems just stop on their own?
 
+During my junior year in college, I moved off campus to a small studio apartment. I had wanted roommates but thought the price of the studio was worth it for the privacy. I had a roommate in the dorms for the past couple years, so the privacy would be nice. 
 
-I remember that the night was fairly cold as I went to take out the trash. The rain was pouring, gently but consistent, and I had forgone a jacket for the sake of getting the task over with quicker. It was one of those nights where the neighbors must’ve all needed to get into work, or something, early because the only lights I could see were the streetlamps. I couldn’t make out any lights in any windows, no TV, nothing. It was also unusually quiet too. Bugs normally make noise at all hours of the night here. But I couldn’t hear a damn thing that night. I didn’t pay it any mind. I needed to get to work early the next day, like everyone else.
+It was normal for months. I was happy to have my own space. The fall semester wasn’t too packed with classes and they were relatively easy, so I spent a lot of time out of the apartment with friends. If I was at the apartment, I’d be playing video games and listening to music or catching up on classic movies I hadn’t seen. 
 
+It’s hard to say when it started because I lived alone. I can’t watch myself while I sleep. It was only a couple of times a month, but I’d find myself in different states of dress than I had fallen asleep in. Sometimes it was that my retainer was out of my mouth, just on my nightstand, or that my socks were off and thrown on the ground next to the bed. This wasn’t something I really remembered doing, but I know as a child I would find the stuffed animal I was sleeping with on the ground or my pillow thrown to the foot of the bed. In the middle of the night, in a half-asleep attempt at getting comfortable, your body is willing to just take over and do whatever it needs to without logging it as a memory. 
 
+It took a good ten separate times before I admitted that food really was going missing. I’d noticed one slice of pizza out of six, a soda can, or a bag of chips go missing. All foods that were relatively easy to eat that I could’ve eaten while asleep. At first I thought I had forgotten how many of something I had, but it kept happening to the point that it was a concern either way. I started to write how much of each food I had in the house and sure enough, by morning, the food amounts wouldn’t match up. 
 
-What I did pay mind to, however, was the inexplicable feeling of dread that I got as I walked back to my garage.
+I told my friends about it and they all laughed, saying I must be eating in my sleep. I had been trying to eat healthier and work out more, so they said that Asleep Me was mad about it. I looked into sleep disorders and ended up watching a movie from this guy who sleep walks and would find himself outside of his house or on the roof. As long as I stayed in my apartment, it was fine. The worst I would do is eat a ton of food. I ended up putting a baby latch on the fridge and that seemed to help, but it never completely stopped. 
 
+By the spring semester, I had a girlfriend. We would text late into the night and I’d fall asleep with the phone next to me in bed. I’d wake up now and again to texts I sent in the middle of the night and had no memory of. Some of them were complete nonsense, like what I’d expect to send if I was texting while sleeping, but others were just short words or phrases that autocorrect probably caught. I remember some: “come”, “so pretty”, “eat”, “watching”, “love you”. They weren’t terribly odd, at least from my end. I’m sure a text at 2am that said “watching” was terrifying for her. I told her about my sleep eating and we laughed it off. Then, I’d wake up to responses from her to my weird texts and they made me laugh. 
 
+When she’d stay over, she said she never saw any of the weird behaviors I claimed to do, but I would only do them maybe once a week. I tried to insist that sleeping next to her made me so comfortable I didn’t want to do any of my mid-sleep activities. I actually wondered that when I first moved in with my now wife, too. I thought maybe my sleep problems just went away with someone else in bed with me, but that didn’t explain the alone years after college where I didn’t have any issues either. I digress. My college girlfriend did tell me that I moved a lot in my sleep, just regular tossing and turning. I also mumbled or occasionally got the whole word out, but nothing as crazy as she had been expecting. 
 
-It was almost like I was being watched by something, stalked even. The hairs on the back of my neck stood up as I looked around and saw nothing. Nothing among the trees, nothing among the houses. I tried to chalk it up to the heebie-jeebies about the night being unusually quiet or me being particularly cold without a jacket, but I could only shake the feeling when I got back into my garage.
+As with everything, as time went on, my sleep issues got worse. At first, I’d wake up laying backwards in my bed, with my feet on my pillows. That was certainly odd, but if I had gotten up to eat something, or try to eat something, I could see myself just collapsing back into bed. Over the months, I got further from bed. Once, I was sitting against the fridge. Another time I was in the bathtub. The scariest was when I woke up outside, forty feet away from my apartment door with the door shut. Thankfully, it was unlocked. 
 
+As a college kid, I certainly wasn’t going to go to the doctor, but I did look up sleep disorders online. It prompted me for other sleep issues and I said that I was tired all the time. Looking back, that was probably just a normal college thing. I stayed up late, slept inconsistent hours, and was stressed about exams. The internet suggested I had somnambulism, which is the fancy term for sleepwalking. Being up so much during the night can cause you to be tired during the day. From what I read, there doesn’t seem to be a lot you can do to stop it other than just preventing yourself from doing bad things, like going outside. I started to barricade the door every night. In theory, anything I did while awake, Asleep Me could do, but the sleeping stupor kind of made Asleep Me an idiot. I found it unlikely he’d be able to move the barricade.
 
+With the fridge childlocked and the door barricaded, nothing extreme really happened. Lights would be on when I left them off or the tv that I left on would be on a different channel, which was odd because it was always something I didn’t watch, as if Asleep Me had different tv preferences. Things would also be in different places than I left them: everything inside my wallet thrown around the apartment, bar of soap in the toilet bowl, boxes of cereal and crackers surrounding me in bed. Pantry foods would still go missing at regular intervals. I’d wake up in odd positions. The usual for me.
 
-I let out a breath of relief as I made my way to the garage door gizmo. I went to press it and that feeling, that same creeping paranoia that had overcome me outside, came back. I tried to steel myself, tried to convince myself that the feeling would go away when the garage door closed, and pressed the button.
+At this point, as things got comedically advanced, I set up a camera. I bought some cheap old thing online. It just needed to record. But I tried to do this several times and every single time, the camera would stop recording only minutes after I fell asleep. My body didn’t move, so it’s not like I was turning it off. Piece of crap, camera. I kept it, still have it around somewhere. I should try recording my sleep again, just to see. 
 
+Once or twice while my girlfriend was staying over, she’d complain in the morning that she woke up because I had been touching her but when she’d roll over to hassle me, I’d be fully asleep. We laughed at it and I apologized but she said she wasn’t upset at me, only a little upset at Asleep Me. 
 
+It was funny how quickly we created an entire persona for the version of me that sleep walked (slept walked?). My friends, my girlfriend, and I would refer to him randomly and had a weird amount of inside jokes for a person that didn’t exist. It just became a part of my life. I go to college, I work as a waiter, I like playing ARPGs, and while I’m asleep, my body goes around and does whatever it wants. 
 
-For some reason, this time, I felt the need to watch the door and make sure it closed. I never do that normally, but this creepy feeling was controlling me. The door was mostly closed when…it made it’s presence known.
+It was mid-summer when I told my mom about my sleep and she suggested I find a sleep specialist but I wasn’t concerned. As far as I could find, nothing would fix my issues. I know she was worried about me hurting myself while I’m asleep, but I hadn’t done anything yet and was sure I had peaked at walking outside, which I now prevented. 
 
+I was wrong. Weird symptoms started around then. I’d be laying in bed, almost asleep, and hear sounds, like my dreams were creeping in while I was still awake. I couldn’t make them all out, but it would be a voice now and again or mostly walking around or thuds. I’d be too tired to care and I’d fall asleep shortly after. Sure enough, the internet comforted me by saying this is a common symptom of narcolepsy - dreaming while awake. 
 
+That led me down a rabbit hole. Everyone (myself included) thinks narcolepsy is the whole falling asleep randomly thing, but apparently that’s only about half of the people with narcolepsy. The main symptoms are falling asleep quickly, being tired all the time, falling asleep in unusual places or times, dreaming while awake, and dreaming immediately after falling asleep. I hit most of those symptoms. A lot of people also describe having sleep paralysis, which I had had as a kid. It was always terrifying, even though I didn’t really see much, just the feeling of being frozen was enough to scare me as a kid. 
 
-It tried to scurry underneath, but it got stuck on the garage door. I couldn’t get a good look at it at the moment, all I saw was the mess of animal limbs as it struggled under the weight of the door. At that point, I thought it was just some poor animal that was trying to get out of the rain. The animal managed to wriggle its way into my garage, and that’s when I got a good look at it.
+I stayed over at my girlfriend’s house a few times and I’d feel about the same, sometimes hearing things right as I was falling asleep, but she always reported that I didn’t do anything during my sleep either. Back in my apartment, every couple of days, I’d wake up with something weird happening - food missing, the tv on or off, in different states of dress than when I fell asleep, or I’d wake somewhere other than my bed. I passed it off as the likelihood of it happening on one of the few times I stayed with her (or her with me) being pretty low, so it wasn’t odd she didn’t see any of it. 
 
+My spring semester of my senior year was my most stressful, so I found myself staying up later than normal, sometimes staying up all night. The next morning, I’d end up sleeping in. It was during this, especially when I didn’t sleep the night before, that I’d get sleep paralysis. It only happened maybe four times during the semester, but it had probably only happened that many times before in my entire life. Every time was about the same. It always was when I was still in bed, I’d open my eyes and see a shadow, maybe a person, in the corner of my room and I’d be frozen. I didn’t quite feel like I did when it happened when I was a kid. As a kid, it felt like a weight was on me and I couldn’t really feel my body. This felt like fear, but I still couldn’t move. I just locked eyes with whatever the thing was, then I’d blink and blink, trying to wake myself, and the shadow would be gone in the midst of a blink. It freaked me out, but I figured that in the grand scheme of sleep paralysis, a shadow man in the corner wasn’t too bad. 
 
+That was the worst my sleep problems ever got. I promised myself I’d go to a sleep doctor once I got my grown-up job, but I never did because the problems went away. It wasn’t something I really critically thought about. The issues would happen once, maybe twice a week, but sometimes I’d go weeks without issue. When I moved out and got a job, it took me years to realize I wasn’t having any issues anymore. One day I just thought ‘hmm how long has it been since I’ve woken up somewhere weird or eaten in the middle of the night?’ and I couldn’t think of a single instance since moving out of my studio apartment. I didn’t dwell on it further, figured I’d go to a doctor if symptoms ever appeared again, but they didn’t. 
 
-I’m not someone who knows the critters all that well, but whatever it was, it wasn’t any animal I’d seen before.
+It was this morning that my wife brought it up again. It’s been almost a year since she first heard about my sleep issues and we haven’t talked about it again, but she said she saw a video on Instagram that made her think of it. It was someone talking about undiagnosed sleep problems and how a bunch of people suffer from things but never treat them. 
 
+“Have I ever done anything weird in the middle of the night?” I asked. She thought about it for a while but agreed I hadn’t. We’ve lived together for five years now, so surely if I was, she’d have seen something. 
 
+It was at this discussion that I thought through everything I wrote above again for the first time in a while. Even when I told her last year, I gave her the quick version, I didn’t think over every instance like I did today. I grew kind of concerned and texted a friend, my wife’s brother actually. He’s a doctor, so I sent a quick text of ‘hey, can someone with sleepwalking problems get over it?’. He said that yes, a lot of people have bouts of sleepwalking when they’re young or during stressful times in their life. Okay, cool. I was stressed during school. ‘What about narcolepsy?’ I asked. That took him a minute to respond to, but he eventually said no. I looked into it, not that I don’t trust him, but surely there had to be a case or two out there, but the internet agreed with him. ‘Sleep paralysis?’ I asked. Again, kids have it and then it can stop in adulthood. But rarely does it stop in adulthood once it starts. The only instances of sleep paralysis I had were as a kid and in that apartment. I didn’t have it before and I haven’t had it after. 
 
-As it started to get its bearings and “stand up,” I saw that it was big as shit, like deer-sized, way bigger than should’ve been able to squeeze under that gap. Its front limbs were skinny, way too long for its body, and it had five long claws on two paws at the end of each. Its face had a long snout with way too many thin, needle-like teeth that were stained red. It was also missing a goddamn eye. The thing had long jet-black fur that was matted and had a bunch of fleshy scars scattered throughout. This was not any normal animal.
+I just keep thinking everything over. What else could the cause have been if not sleep issues? I had to be eating my own food, although I never left a mess, my teeth always felt clean in the morning, I never found crumbs or the wrappers anywhere in the house, including the trash. I never gained weight despite the supposed large amount of food I consumed some nights. I had to be walking around in my sleep and undressing myself. I remember the time I was outside thinking that it was weird how clean I was. My socks weren’t dirty or wet at all, almost as if I had just been plopped down right on the ground. I don’t like thinking back on the sleep paralysis moments. When I think of them too long, I start to wonder if I really could move. If I *did* move. My body didn’t feel like it did when I was a kid, like a force was holding me down, it was more like that full body shiver when your brain is in fight or flight mode and trying to pick which is best. I swear once I started to sit up, but if I started to sit up, then the shadow couldn’t have been a part of sleep paralysis . . .
 
+I do remember my girlfriend at the time saying the apartment creeped her out, like she always felt like someone was there with us. I joked it was a ghost and she would laugh but she genuinely refused to come over a lot. I didn't believe in ghosts but knew it would make her laugh and maybe make her feel better. I want to look up the apartment complex, see if anything has happened there. I had an attic that I never went in. I didn’t have enough stuff to warrant it. I came home once or twice to the door to it open. It was just a piece of wood that you’d slide out of the way. I thought it was maintenance (or maybe the ghost), but now I’m not sure. 
 
-
-I was frozen. Just looking at the thing locked me in place like it was holding me with just its presence alone. No matter how much I wanted, my legs just wouldn’t move. I watched it as it shook itself dry like a dog. For a second, I thought it might’ve actually just been trying to escape the rain. The more that I looked at it, the less frightening it became. It started to seem even friendly; its sharp teeth started to look like a nice smile. Poor thing. I felt like I needed to get closer to it. It might’ve needed help or something. My body instinctively took a half-step towards it.
-
-
-
-But then, it looked at me.
-
-
-
-It took a couple of its own tertiary steps towards me, almost as if it were testing to see whether I’d run away. When I didn’t, its needle smile seemed to grow a little wider.
-
-
-
-It lunged at me, all limbs and claws and gnashing teeth.
-
-
-
-In that moment, it was like all of my senses returned. That feeling of dread wasn’t creeping anymore; it was everywhere in my body. I jumped back and into the open door to my basement, slamming it shut and locking it just as the thing landed where I was.
-
-
-
-I pushed my body against the door as the creature started slamming against it. That thing wasn’t making any noise. All I could hear was the constant banging of its body on the door. I had options, A desk, some heavy boxes and maybe some chairs if I positioned them right, but getting any of those would mean leaving the door, and I had no idea how long it would last with that thing trying to break it down.
-
-
-
-It slammed against the door again, harder this time. The door cracked and the force of the impact knocked me off it. I scrambled back to the door as fast as I could, but I knew it wasn’t lasting much longer. I had to make some type of choice quickly if I wanted even the slightest chance of surviving.
-
-
-
-The option that seemed the most reasonable in the heat of the moment was, lord help me, trying to find a weapon to kill the thing.
-
-
-
-I didn’t have much time to think because the thing slammed into the door one final time, busting it off its hinges. The door fell on top of me as I was thrown back once again.
-
-
-
-I shoved the door off of me as the creature stalked towards me. It definitely looked like it was smiling at me. It was moving slowly, creeping towards me. I think the thing was enjoying this. All of those warring feelings came rushing back as I looked at it. The creeping dread, the pity for the creature and the desire to go closer to it. But the feeling that overcame me the most was a desperation to survive. I crawled back a few paces before I managed to get to my feet and make a break for the stairs.
-
-
-
-A searing pain shot through my leg. I looked back and saw that the thing had got me in the calf with its claws. I couldn’t focus on that though, I had to stay alive, and I got to the stairs going as fast as I could with a wounded leg.
-
-
-
-I hobbled up the stairs as the thing chased after me. It was still slowly stalking me, like it wasn’t in a rush. Like it was fucking with me.
-
-
-
-Whatever fun this thing was having trying to kill me, I was going to use the extra time to my advantage. I knew that the kitchen was a little too far to get a knife, but I did have a closet with a toolkit inside, and that toolkit had a hammer.
-
-
-
-I struggled through the hallway, dragging my slashed leg as I went. I got to the closet with the toolkit and hid inside. Maybe, just maybe, I would be able to hide from the thing in the dark until it got bored and left. It was at that moment that I realized that the thing would definitely know where I was because my leg was for sure trailing blood. I fumbled around the closet for the toolkit. Once I had it, the hammer was easy to find because it was the heaviest thing in the box.
-
-
-
-I heard the creature finally make its way up the stairs. That’s when I started to get a new feeling. It was almost like it was licking at the back of my brain, this overwhelming sense of inevitable failure. I swear I heard a whisper, something in my head telling me, *you cannot do this, give up*. I heard the thing sniffing, likely my blood, and slowly making its way closer to the closet. For a minute, I did genuinely want to give up. Whatever was in my head was right. I was outmatched, I didn’t know what the fuck I was dealing with, and I had left it a red carpet right to me. I wanted to open the door and give myself to it so I could be eaten, or butchered, or whatever it wanted to do to me.
-
-
-
-My hand was hovering by the doorknob when I heard its claws rap-tap-tapping against the door. That thing was right fucking outside. It would’ve been so easy to drop the hammer and let it take me, but I came to my senses at that moment.
-
-
-
-I didn’t want to die, and I was sure as hell not going to let this thing kill me. If it did kill me, I wasn’t going down without a fight.
-
-
-
-I gripped the hammer tighter and turned the doorknob.
-
-
-
-I threw the door open with all the power I had, hitting the thing in the face and staggering it back a few paces. I threw myself at it, swinging the hammer and cracking it in the snout, but falling face first into its fur. The thing pushed me off with force, sending me sprawling into my living room.
-
-
-
-I scrambled to my feet, ignoring the shooting pain in my leg. I couldn’t let a wound and some blood loss get the better of me, just like I couldn’t let this beast get the better of me. My living room was not the largest space, but it beat trying to fight that thing in a hallway.
-
-
-
-Fighting back must’ve enraged it, because it actually let out a noise, the loudest roar I’ve ever heard in my life, and it lunged at me. I ducked under it and slipped in my own blood. Thankfully, it crashed into the wall and disoriented itself further. I got up and charged at it, bringing my hammer down on the back of its head. The thing whipped an arm back and threw me back again.
-
-
-
-This time, it recovered quicker. It pounced on me and pinned me by my shoulder. I switched the hand I had the hammer in and brought it down onto its arm to a loud crunch sound. The thing reared back and howled in pain as I made my move.
-
-
-
-I tackled the creature and held it down to the ground. I raised the hammer up and brought it down on its face. I brought it down again and again and again, trying to turn its skull into mush. I had to make sure this thing didn’t survive. The creature flailed and howled as I struck it.
-
-
-
-Its good arm shot up and got me in the neck with a claw.
-
-
-
-I fell over, clutching my throat and kicking my legs. I found some comfort, some peace in my last moments, in the fact that I knew the thing was dying right next to me.
-
-
-
-That’s when I heard them. Sirens. I couldn’t tell what type of sirens they were, but somebody must have heard that thing screaming and called 911.
-
-
-
-At that point, I had to laugh. It was more of a wet gurgle than a laugh, but it was all I could muster. They couldn’t have gotten here sooner?
-
-
-
-My vision faded to black as I heard my front door being busted down.
-
-
-
-
-
-
-
-I woke up in a hospital.
-
-
-
-I struggled to open my eyes in this new environment. The bright lights, sterile smell and beeping machines were already overwhelming.
-
-
-
-“My goodness!” I heard a voice say, “Doctor! Get in here! He’s awake!”
-
-
-
-I opened my eyes more to see a nurse standing next to me.
-
-
-
-He was a man that was maybe in his fifties, greying hair, purple scrubs, N-95 mask covering most of his face. I didn’t know how long he had been there, but he looked like he’d had a long day. The doctor that came in looked damn near identical to the nurse, except he was wearing a lab coat and no mask. They looked like they could be brothers from what I could make out.
-
-
-
-I realized that I was all bandaged up. My leg was wrapped up, and I could barely move my neck from all the bandages on it
-
-
-
-The doctor sat down on a stool and rolled next to me.
-
-
-
-“I’m Dr. Harris, and that’s Nurse Jacob,” The doctor said in a warm voice, “Son, how are you feeling?”
-
-
-
-“Like absolute crap,” I replied, “What happened to me?”
-
-
-
-“You were out for a few days after an attack. The official police report says it was an animal.” Dr. Harris said, “They’re thinking maybe it was some type of animal with Mange, or something like that.”
-
-
-
-“That’s bullshit!” I said, “That thing was not an animal!”
-
-
-
-“That’s what I said when I saw the photos of it.” Nurse Jacob interjected.
-
-
-
-“Jake,” Dr. Harris sighed, rubbing his face with a gloved hand, “Let’s not peddle the conspiracies in front of the patient please.”
-
-
-
-“Listen Ben, you know that the whole ‘diseased animal’ thing the cops are trying to pull is only to keep the public from panicking,” Nurse Jacob argued, “Mr. Langley here needs to know that somebody believes him, so he doesn’t think he’s crazy.”
-
-
-
-Dr. Harris sighed again and stood up.
-
-
-
-“We’re gonna check up on you again in a few minutes, son, give you some time to wrap your head around everything.” Dr. Harris said, “But, for what it’s worth, I think the police are full of shit too.”
-
-
-
-With that, Dr. Harris and Nurse John walked out the door to my hospital room, leaving me alone with my thoughts.
-
-
-
-That was two days ago. Since then, I’ve spoken to the police. I feel like they’re fucking with me just like that creature did. They are trying to convince me that it was a rabid, sick bobcat or deer or something. I know that it wasn’t. The only two people who believe me are Nurse John and Dr. Harris. I think they’re the only reason why I’m not getting some type of psychological evaluations. The one nice thing the police have done for me is bring me my electronics from my place, so I’m not forced to rely on hospital TV for entertainment.
-
-
-
-I still don’t know what that creature was or why it wanted to kill me. All I know is that it’s dead, and I know that I’m terrified of going back home now.
+It’s been years and yet I’m getting chills just thinking about it all. Has anyone else had sleep problems that just go away? Please tell me this was all just sleep paralysis and narcolepsy. I don’t want it to be anything else. 
 
