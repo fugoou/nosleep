@@ -1,334 +1,222 @@
-# I Erase History for a Living
-The old man behind the counter smiled, but I knew he was scrutinizing me behind those horn-rimmed glasses as he rang up the spools of construction line. I told him I was a contractor working on a surveying project. Still, he regarded me with distrust as I paid and turned to leave. I saw the same expression on the faces of the other old men loitering at the diner. Their distrust would turn to hate once they found out why I was really there.
+# The Thing in the Maple Grove
+The first time I saw the grove, I thought it was diseased. Not rotting, exactly, but corrupted. It was late October, the air sharp with the smell of decaying leaves and wood smoke, and I was checking my traplines along the northern ridge of my property. I've lived my whole forty-three years in the shadow of these mountains, and I know these woods like the back of my own hand. Or I thought I did.
 
- 
+The maple grove sits in a shallow bowl between two hills, a place where the light gets caught and filtered, turning everything a pale, watery gold in the afternoon. Normally, it's the prettiest spot on my land. But that day, the color was all wrong. The reds of the leaves weren't the usual vibrant, bloody crimson; they were a dark, purplish hue, like a fresh bruise. The yellows were sallow, jaundiced. And the quiet. That was the first thing that truly set my teeth on edge. 
 
-I noticed the first yard signs along the highway on my way to the site. In town, it was hard to find a house or business without the green and white sign and its message: “Dam Your Own Damn River.” I wondered how long it took these backwater hayseeds to come up with this slogan.
+A woods is never truly hushed. There's always the scrabble of a squirrel, the call of a jay, the sigh of the wind through branches. This was a dead, muffled stillness, as if the grove was holding its breath. Even in broad daylight, with the sun directly overhead, the air inside that bowl felt thick and wrong, like breathing through wet cloth.
 
- 
+I stood at the edge of the tree line, my old Remington 870 cradled in the crook of my arm, and just listened. Nothing. My boot crunched on a fallen twig as I took a step forward, and the sound was absurdly loud, swallowed almost instantly by the heavy air. I remember feeling a prickle on the back of my neck, the kind you get when you know you're being watched. I scanned the trees, looking for the reflective gleam of eyes, but saw nothing. Just those sickly, bruise-colored leaves and the grey, skeletal branches.
 
-Leaving town, I reminisced about a time when I liked my job. When I was young and principled, it felt like important work. I don’t know when I gave up those scruples, exactly. Maybe it was after I read an article in an academic journal, praising a grad school colleague for her work in the Honduran jungles. Maybe it was later, while I was slaving away in a post-grad program, working six or seven-day weeks while the university underpaid me. I started working for the State in cultural resource management around this time. If I learned anything working for the government, it's the place an archaeologist’s aspirations of greatness go to die.
+I'd been a trapper since I was a boy, taught by my grandfather. It's not a glamorous life, but it's an honest one. I know the patterns of the animals, their comings and goings. And I knew that nothing—not a deer, not a rabbit, not even a goddamn bird—would willingly go into that grove. My traplines, which usually showed plenty of sign, ended abruptly at its border. It was like an invisible fence had been erected, and every creature with sense respected it.
 
- 
+Shaking off the feeling, I chalked it up to a long week and an overactive imagination. I turned to leave, deciding to give the grove a wide berth, when something caught my eye. A flicker of movement deep within the trees. It was quick, a shift of shadow that was too tall and too thin to be a deer. My grip tightened on the shotgun. "Hello?" I called out, my voice flat and dead in the stillness.
 
-I decided there wasn’t an exact moment I lost my moral compass. My integrity was eroded, one disappointment after another. This and McMueller Group’s sizeable salary offering were all it took for me to turn my back on academic integrity.
+There was no answer. Just that same oppressive hush. Then, from the heart of the grove, came a sound. It was a soft, wet cracking, like someone stepping on a pile of rotten fruit. But slower. Deliberate. *Crack. Squelch. Pause. Crack. Squelch.*
 
- 
+I didn't wait to hear more. I backed away, keeping my eyes on the grove until I was a good fifty yards up the ridge. The feeling of being watched didn't leave me until I was back on my porch, the solid oak door locked behind me.
 
-Every state-funded construction project needs a cultural impact study, from the shortest section of road to the longest bridge. The small number of people aware of this are usually the ones about to lose their homes to eminent domain. Shortly before their home is razed to the ground, these people become self-proclaimed experts, pulling out historically relevant connections to their properties with the same ease a magician pulls a rabbit from a hat, usually with as much authenticity.
+I told myself it was probably a bear. A sick one, maybe, explaining the strange behavior of the wildlife. But I'd never seen a bear move like that shadow had moved. It was… unnatural. All of it felt poisoned.
 
- 
+That was three days ago. I tried to put it out of my mind, focusing on salting the pelts I'd collected and splitting wood for the winter. But yesterday, my dog, Gus, a hound mix with more courage than sense, didn't come back for his dinner. Gus never misses a meal. I remember the day I brought him home as a pup, how he'd wolf down his food so fast I worried he'd choke, then look up at me with those amber eyes like he was asking for seconds. Ten years old now, and he still attacked his bowl like he'd been starving for weeks.
 
-“We have a cemetery from the 1800s in the field behind our house,” they whine.
+This morning, I found his tracks leading straight towards the maple grove. They disappeared at the exact same spot where I'd stopped. There were no tracks leading back out. Even in the harsh morning light, with frost glittering on the grass, the grove looked wrong. The shadows inside it were too deep, too dark for the angle of the sun. The corruption wasn't bound by night and day—it was bound to that place, that bowl of diseased earth.
 
- 
+Now, as the sun begins to dip below the hills, casting long, distorted shadows that seem to claw their way towards my house, I'm sitting here with a cold cup of coffee and my shotgun across my knees. I can hear something else, carried on the wind that's finally picked up. It's faint, but unmistakable. It sounds like a dog whining. It sounds exactly like Gus.
 
-“There was a log cabin on this property where a famous writer stayed one time.”
+But Gus never whined. Not once in the ten years I had him. Even when I accidentally caught his paw in the truck door, he just looked at me with those patient eyes and waited for me to free him. He was the toughest, most stoic animal I'd ever known.
 
- 
+The whining cut through the twilight, a high, pitiful sound that seemed to weave itself between the trees. It was coming from the direction of the grove, no doubt about it. Every instinct told me to run towards it, to find my dog, but the part of my brain that had kept me alive in these woods for four decades screamed to stay put. It wasn't just that Gus never whined; it was the quality of the sound. It was too perfect, like a recording of a dog in distress, played back with a slight, unnatural lag that made the hairs on my arms stand up.
 
-“A famous frontiersman once hunted on this property.”
+I stood on the porch for a long time, the shotgun cold and heavy in my hands, listening. The whining would start, rise to a frantic pitch, then stop abruptly, leaving a vacuum that felt even more threatening. After the third cycle, I couldn't take it anymore. I couldn't leave him out there, even if it was a trap. I loaded a fresh shell into the chamber, the click echoing in the quiet, and stepped off the porch.
 
- 
+I didn't go straight for the grove. That would have been suicide. Instead, I circled wide, keeping to the high ground where the spruce grew thick, their needles muffling my steps. The air had turned cold, carrying the damp, earthy smell of coming frost. From the ridge, I had a clear view down into the bowl where the maples stood. In the fading light, the bruise-purple leaves were now a deep, venous black, and the hush around them was absolute. The whining had stopped the moment I left the porch.
 
-Adept as they are at plucking vague ‘facts’ from the annals of local history and with all their airs of someone recently educated by Google searches, they all remain oblivious to one thing: the state doesn’t care. Not enough to hire serious academics or fund anywhere near enough studies to prove anything about their properties. Like it or not, that bridge is going to be built, that new road will bulldoze the farm your family owned for generations, and there’s nothing you can do to stop it.
+I used my binoculars, scanning the edge of the tree line. Nothing moved. But then I saw them: tracks. Not Gus's. These were fresh, made in the soft mud of a seep that spring fed from the hill. They were long and narrow, with a deep, precise impression at the front that split into two distinct toes. They looked almost like deer tracks, but wrong. Too elongated, and the stride was enormous, covering ground in a way that suggested a creature walking on two legs. The tracks led from the grove, headed towards my house, and then looped back. They had come within fifty yards of my porch before turning around.
 
- 
+My blood ran cold. It had been watching me. While I was standing there, listening to that fake whining, it had been right there, studying me.
 
-The state often relies on third-party organizations to evaluate the impact of these projects. Ask any politician or ethics board why, and they’ll most likely spout off something about maintaining impartiality or allowing the state to avoid the financial obligation of keeping dozens of archaeologists and historians on their payroll year-round. What they will neglect to tell you and outright deny if confronted is that third-party organizations, such as my employer, are given certain discretion when deciding what qualifies as historically relevant. It wasn’t until after I was employed by McMueller for a few years that I was assigned my current role: ensuring nothing of any real historic significance ends up in our reports. When something from the far reaches of the past crops up and threatens our build recommendation, it’s my job to make these rare but legitimate findings disappear, even if it means destroying artifacts, historic records, or defiling an excavation site.
+I needed to talk to someone. Isolation is a trapper's lot, but this was different. This felt like a siege. The closest neighbor is old man Hemlock, who lives a mile down the valley. He's been here even longer than I have, a bitter, weathered relic who claims his family settled this land before the state was a state. I don't like him much—he's got a mean streak wider than the valley—but he knows things about these mountains that nobody else remembers.
 
- 
+I found him on his rickety porch, sharpening a knife on a whetstone. The rhythmic *shhh-click, shhh-click* was the only sound. He didn't look up as I approached, but I could see the tension in his shoulders, the way his weathered hands gripped the knife handle a little too tight.
 
-I parked the company truck along the wooden stakes marking the site. They ran the length of the county road until it veered around an outcropping of sandstone bluffs. A field of corn plants across the road swayed in the gentle breeze, releasing their pollen into the air. I sneezed as I climbed out of the truck. Out of everything I dealt with in these pathetic small towns, allergies were the worst. I took some antihistamines before grabbing an aluminum frame backpack full of essentials and set off toward the site to find a place to camp. Lodging in these small towns is usually limited. At most, they might have a motel, still adorned with wood paneling, carpet that’s too long, and chrome faucets covered with miniature green craters. Outdated and usually filthy in their own right, most don’t like how dirty I get working throughout the day. I’ve been kicked out of a few once they caught on to why people in town give me strange looks as I pass them on the street.
+"Hemlock," I said, my voice rough.
 
- 
+He finally glanced at me, his eyes pale and watery in a face like cracked leather. There was something haunted in those eyes, something that hadn't been there the last time I'd seen him. "What do you want?"
 
-Bug repellent did little to keep the swarm of mosquitoes from hovering around me. Each step through the knee-deep underbrush churned up fresh, watery mud. I alternated between cursing the backwater idiots insisting anything remotely important was ever here and the archaeology department from the University of Cincinnati. They were supposed to send their summer field school to help with this project, but one of their students wrote a letter to the school’s Dean citing ethical considerations, insisting the site of a pioneer village called “Carthage” was too important to be submerged under a reservoir. He went as far as spinning a tale about a sunken boat he discovered one summer during a drought. Conveniently, the river level hadn’t been that low since, and probably wouldn’t be anytime in the next twenty years. Whether he made the whole thing up or not, I wasn’t sure. To his credit, he wasn’t dumb; he made such a fuss about McMueller’s near 100% approval-to-build rate, it got the attention of the school’s archaeology department, and they withdrew their support from the project. As a contingency, I brought along an underwater ROV to inspect where he supposedly found the sunken vessel.
+"Something's wrong up by the maple grove. On my land."
 
- 
+He stopped sharpening. The sudden stillness was more unnerving than the rhythmic scraping had been. "The bowl?"
 
-I settled on a spot in the woods for my campsite. It reeked of decaying plants and dead fish from being so close to the river, but it would be good enough for a few days. A fresh coat of bug spray proved ineffective as mosquitoes buzzed around my ear canal. I made quick work of pitching the tent and tossed my pack inside. Before I bothered unloading more equipment from the truck, I turned on my tablet and walked around the area I’d be investigating.
+I nodded. "Yeah. The bowl. The trees… the color's off. And there's something in there. It took my dog."
 
- 
+He let out a dry, rattling laugh that turned into a cough. But the laugh was forced, hollow. His knuckles were white where he gripped the whetstone. "Took your dog? Probably a coyote. Or a cat. You're getting spooked, boy." He went back to his knife, but the rhythm was off now, jerky. *Shhh-click.*
 
-I saw little of interest. The site was less than a square mile in size and was littered with the usual trash: beer bottles, forgotten bags of artificial worms, the torn foil of condom wrappers, and the occasional rat’s nest of balled-up fishing line. Near the tree line overlooking the river, I took note of my location on the map, along with the dotted outline of something just upstream from me. A label on the map indicated the rock formation peeking out of the river was the site of a 19th-century factory of some description. I checked my notes. “Grist/Saw mill,” they said.
+"It wasn't a coyote." I told him about the corruption in the grove, how it persisted even in daylight, the shadow, the tracks. I didn't mention the whining. That felt too insane to say out loud.
 
- 
+When I described the tracks, his hands stilled completely. He looked past me, towards the ridge where my property lay, and I saw genuine fear flicker across his features. "Two-toed?" he asked quietly.
 
-There was an unfamiliar symbol in the middle of the river. Tapping it brought up the description of “derelict vessel.” I rolled my eyes before glancing to the sun. It was low enough on the horizon that I decided I’d done enough investigating for one day. If anything would complicate our build recommendation, it would be a massive stone pocked with witness marks, corroborating these yokels’ claims of a vanished town.
+"Yeah. Like a deer, but not."
 
- 
+He was quiet for a long time. The wind picked up, whistling through the gaps in his cabin's logs. When he finally spoke, his voice was barely above a whisper. "My grandfather," he said, "he talked about a thing that lived in the deep hollows. A thing that got lonely. It wouldn't kill you straight off. First, it would learn you. It'd watch from the trees, learn your walk, your voice. It'd practice." He looked me dead in the eye, and I saw something break in his expression. "It makes sounds to draw you in. Sounds you want to hear. A baby crying. A friend calling for help. A dog whining."
 
-Waist-high grass bordered the riverbank as I picked my way back to the truck. I was careful to avoid the occasional murky vernal pool. Summer heat reduced most of them to little more than shallow muddy pits, but they all shared the smell of rot and decay. I was so preoccupied avoiding these pools, I almost tripped over a cairn concealed in the grass.  The pile of rocks toppled, sounding like smashed clay pots as they fell. I frowned as I looked down at the wooden cross the stones held upright. Turning the piece over in my hands, I could tell, despite its weathered appearance, it wasn’t very old. It looked homemade, maybe a woodshop project. The name “Claire” was carved on its center. I dropped it where it fell and made my way back to the truck.
+My mouth went dry. "What is it?"
 
- 
+He shrugged, a slow, weary movement, but his hands were shaking now. "Don't know if it ever had a name. He just called it the Hollow One. Said it couldn't stand empty spaces. Couldn't abide them. Had to fill them up with something. Usually, it was with you." He pointed his knife towards my land, the blade trembling slightly. "If it's in that grove, you leave it be. You seal up your house and you pray it gets bored. You don't go looking for your dog."
 
-I skimmed through a few reports over my dinner to refamiliarize myself with the site. There were dozens of comment and concern forms, all sentimental but none offering any substantial claims to refute the site’s importance. Scans from a local history book had just one entry about Carthage that didn’t even take up a full page. The local author prefaced this chapter about the early settlement of the county with a quote from Plato.
+"I can't just leave Gus."
 
- 
+"Gus is gone," he said, and there was a finality in his voice that felt like a tombstone slamming down. But also something else—a terrible understanding, as if he'd lost something himself. "That thing wearing his sound ain't him. It's just the hollow left behind." He stood abruptly, almost knocking over his chair. "You need to go. Now. And don't come back here after dark."
 
-“*In a single day and night of misfortune, all your warlike men sank into the earth, and the island of Atlantis disappeared in the depths of the sea.”*
+There was genuine panic in his voice now, and it infected me. He'd seen this before. Known this fear. As I walked away, I heard him calling out behind me, his voice cracked and desperate: "Don't listen to it! Whatever it sounds like, don't listen!"
 
- 
+The walk home was the longest mile of my life. Every rustle in the undergrowth sounded like a footstep. Every creak of a branch sounded like a voice. Hemlock's words echoed in my head. *It learns you.* I thought about the shadow I'd seen, how it had moved. I thought about the tracks circling my house.
 
-I shook my head. The amateur historians who write this stuff are all such assholes.
+When I got back, the night was full dark, but even in the starlight, I could see that the grove's corruption was spreading. The grass at the edge of my property line was browning, wilting in patches that led like a trail toward my house. Whatever was in that bowl wasn't content to stay there. It was reaching out, claiming more ground.
 
- 
+I locked the door and bolted it, something I almost never do. I sat by the window with the shotgun, watching the tree line. The woods were never truly dark; starlight or moonlight usually gave the snow or the pale bark of the aspens a soft glow. But the maple grove was a pool of absolute blackness, a hole cut out of the night.
 
-“Once situated upstream of the falls on Driftwood River, Carthage was established near Henderson’s Mill and Tavern, both already in operation along the trail taking settlers west. This small settlement was instrumental in the establishment of the county, providing a place of trade, government services, and employment opportunities. Few records survive, however, the ones that remain indicate the town fell from prominence as quickly as it had arisen. Most agree the site proved unhealthy, prompting the settlers to relocate the county seat to its present location, near the falls. Reports vary, but most cite the illness as being either ‘Broze John’ or malaria.”
+An hour passed. Then two. I must have dozed off, because the sound jolted me awake.
 
- 
+It was a voice. My voice.
 
-I knew what malaria was, but had never heard of Bronze John before. A quick internet search informed me it was a colloquial term for yellow fever. Symptoms included fever, muscle pain, vomiting, bleeding from the eyes and mouth, and in its fatal stages, organ failure. I rolled my eyes.
+"Hello?" it called from the edge of the woods. It was my own tired, strained baritone, perfect in every inflection. "Is anyone out there? I think I'm lost."
 
- 
+It was me, calling for help. The mimicry was flawless. A cold sweat broke out all over my body. I gripped the shotgun so hard my knuckles ached.
 
-“This sounds like the perfect place to preserve,” I thought.
+The voice came again, closer now. "Hello? I can see your light. Please."
 
- 
+It was using my own voice to lure me out. Hemlock was right. It was learning. And it was at my door.
 
-I sifted through a few more reports but found nothing of real substance before I decided to turn in for the night. I thought about how little there was to go on as I crawled into my tent. If nothing else, it would make my job easy. I must have been more tired than I felt, because I didn’t even remember taking my socks off before falling asleep.
+***
 
- 
+The voice outside was my own, but frayed at the edges with a panic I hadn't let myself feel yet. "Hello? I can see your light. Please." It was perfect, down to the slight catch in my throat I get when I've been breathing cold air too long. I stayed frozen by the window, the wooden floorboards cold under my socks. My finger rested on the trigger guard of the shotgun, a tremor in my hand I couldn't quite still.
 
-That night, I had a dream. I don’t usually remember my dreams, but this one was so realistic, it consumed my thoughts much of the following day. It started with me walking through the woods on a narrow path, not quite wide enough for a car. Cool, soft mud squished underfoot as I continued under the dark green canopy. Thin shafts of sunlight filtered through the leaves. Near the end of the path, sounds of flowing water mingled with grinding stones, overlapping conversations, and the beat of horses’ hooves.
+Answering it felt like madness. But letting it stay out there, learning, practicing my voice until it could fool anyone… that was a different kind of death. Hemlock's words echoed: *It learns you.*
 
- 
+I made a decision. I couldn't shoot what I couldn't see, and opening the door was suicide. But I had to disrupt it. I had to show it I wasn't an easy mark.
 
-Emerging from the woods into this clearing, I was thrust into a village. Men and women bustled around mud streets in old-fashioned clothes. Buildings in various stages of completion lined both sides of the trail through town. Some were little more than canvas tents, others were cobbled together from rough-sawn boards, still yellow and smelling of sap. If the villagers saw me, they paid no attention as I drifted among them. The place bustled with activity. Merchants and customers haggled over prices for various wares. The tink, tink, tinking of a hammer sounded from a blacksmith’s shop. Farmers led livestock to a butcher’s shop. Wagons loaded with sawn lumber, stone and crates left horse droppings in their wake.
+I moved to the door, keeping low, and pressed my face against the rough wood near the hinge. I took a deep breath, and then I shouted, my real voice booming in the confined space of the cabin. "I know what you are! Get off my land!"
 
- 
+The hush that followed was immediate and absolute. It was more unnerving than the mimicry. It was a listening quiet. I could feel it out there, just beyond the door, processing. Then, a sound started, low and soft. It wasn't my voice anymore. It was the sound of claws, long and delicate, scratching slowly down the length of the door. A dry, rasping whisper, like bone on wood. It started at the top and dragged all the way to the bottom. I could picture it, standing there, running its fingers—or whatever it had—down the door in a grotesque caress.
 
-At the far end of the street, on a foundation of crushed stone, stood the framework of a massive building. The upper floors were a web of disjointed timbers, but it would have rivaled most modern courthouses for height. Even from the other side of this small settlement, I heard the workmen’s hammer blows and rhythmic sawing of wooden planks.
+Then it stopped. I heard footsteps, not trying to be quiet anymore. They were heavy, with that same two-toed gait I'd seen in the mud, but now they crunched on the gravel path leading away from my house. They were heading back towards the maple grove.
 
- 
+I waited until the sound faded completely before I let out the breath I'd been holding. My heart was hammering against my ribs. It had come to my door. It had touched my house. The violation of it made me feel sick. I spent the rest of the night barricaded in, dozing fitfully in a chair, every snap of the cooling wood stove making me jump.
 
-Interesting as this was, a group of men rushing toward the river caught my attention. Women, children, and even a few dogs followed close behind. The crowd bunched up where the riverbank met a weather-beaten pier. I felt myself drawn toward them, as if prodded along by invisible hands, powerless to resist. I weaved my way between the villagers. Some of them let out an occasional cough or sneeze. A sly grin worked its way across my face as I thought about these poor bastards in the days before antihistamines. It was close quarters, but I seemed to pass right through the crowd, never bumping into anyone. I caught murmurs as I got closer to the dock, words of sickness, cholera, Bronze John, words like plague. I shuddered as a decrepit man in a black suit rose from the lower deck of one of the boats. I gathered he was a doctor by the bag he carried. He picked his first timid step out of the boat and walked sheepishly toward the crowd.
+At first light, I unbarred the door. The morning was crisp and still, the sky a pale, washed-out grey. I half-expected to see some mark on the door, but the wood was unblemished. No scratches, no footprints on the porch. It was as if it had never been there. But when I stepped off the porch and looked at the gravel, my blood went cold. There, in the damp earth beside the path, was a single, fresh two-toed track. It was deep, as if it had stood there for a long time, watching.
 
- 
+And beside it, pressed into the mud, was something else. A tuft of coarse, grey hair. Gus's hair. I remembered how he'd shed like crazy every spring, leaving tumbleweeds of fur rolling around my cabin. I'd complained about it then, but now I'd give anything to sweep up another pile of his hair.
 
-“Tell us, coroner,” a voice called out. “What’s become of this man, Haslem? We know he’s in there. We’ve seen him among us in our town. What’s killed him?” The frail old man held his hands before him in a defensive gesture against the gathering I now suspected was more akin to a mob than a group of interested bystanders.
+That was it. The grief and rage I'd been suppressing boiled over. It had taken my dog. It had come to my home. It was taunting me. I wasn't going to wait for it to get bored. I was going to the grove.
 
- 
+But first, I had to check on Hemlock. His terror the night before had been real, and something told me he was in as much danger as I was.
 
-“He has expired of purely natural causes. It might have been yellow fever or cholera. It might even have been consumption. All that can be said with certainty is we must bury this man at once and rid ourselves of his vessel. Burn it, or else scuttle it in the deepest part of the river, somewhere downstream.”
+I loaded the shotgun with buckshot, stuffed extra shells in my coat pockets, and took my grandfather's old hunting knife from its sheath on the mantel. The bone handle was smooth and familiar in my grip. The walk to Hemlock's place was eerily quiet, even for mid-morning. No birds, no squirrels. Just the crunch of frost-brittle grass under my boots.
 
- 
+His cabin looked normal from the outside, smoke rising from the chimney, but something was off. His door was standing open, just a crack, and there was no sound of movement from inside. I called out as I approached. "Hemlock? You in there?"
 
-The villagers parted to let the man through and resumed their murmuring with renewed fervor. A woman cried out as her child broke into a coughing fit. This agitated some of the men. Someone suggested she take the child home or to the doctor. As the crowd dispersed, I gained an unobstructed view of the boat, moored at the dock. The word ‘Conatus’ carved on its backside intrigued me. It seemed familiar, even in my dreamlike stupor. Where had I heard it before? I felt suddenly dizzy as the crowd I previously walked through without effort bumped into me without care, some shoving me aside. Their abrupt closeness was jarring. I’m not claustrophobic, but I had the strangest need to be free of this tightening crowd, especially when I noticed how many of them were coughing.
+No answer. The stillness around his place felt familiar now, the same dead calm that surrounded the grove. I pushed open the door with the barrel of my shotgun.
 
- 
+Hemlock was sitting in his chair by the fire, the whetstone in his lap, the knife in his hand. At first glance, he looked like he was just resting. But his eyes were open, staring at nothing, and there was no rise and fall to his chest. On the table beside him was a plate of half-eaten food, still warm. He'd been dead less than an hour.
 
-I couldn’t find my socks the next morning. Brushing dried flakes of mud off my feet, I frowned, retracing the events of the previous night. If I left the tent in the middle of the night to take a leak, I would have remembered it. Then again, I also would have remembered to slip on my boots. I turned the bottle of antihistamines over in my hands. I snorted, congestion thick in my nasal cavity as thoughts of sleepwalking occurred to me. As far as I knew, I’d never sleepwalked anywhere. Whatever the case, I chalked it up to the off-brand pills and got started with my day.
+There were no marks on him, no sign of violence. But on the floor beside his chair was a small puddle of that black, viscous sap I'd seen weeping from the maples. And the smell—that sweet, coppery rot—hung thick in the air.
 
- 
+It had come for him in the night. Not to kill, not exactly. To hollow him out. To learn him. And then it had left him behind, empty.
 
-I cursed the nearby cornfields, spreading pollen and causing my allergies to flare up. I coughed up God only knew how much phlegm that morning, and my eyes felt itchy and dry. The thought of these fields vanishing beneath the waters of a reservoir, never to grow anything again, became that much more enticing.
+I backed out of the cabin, my hands shaking. The grove wasn't just claiming animals now. It was claiming people. And I was next.
 
- 
+The woods were unnaturally hushed as I approached the grove. No birds chirped, no squirrels chattered. But unlike the crushing stillness of the past days, this felt expectant, like the entire forest was holding its breath. As I neared the bowl, the familiar dead zone began. The sounds faded away completely, replaced by that oppressive, muffled quiet. The air grew still and cold, and the smell hit me—a sweet, cloying odor of decay, like overripe fruit and something else, something metallic, like copper.
 
-The mill site was underwhelming. Walking the granite rock’s perimeter and plotting its coordinates on a GIS map revealed it was at most a couple thousand square feet. Recording each of the square holes took up most of the morning. The local history book stated these holes once held the pilings supporting the mill. Impressive as they were, forming a neat grid formation on the rock, it made for a monotonous day. The most eventful thing that happened was when my foot caught one of the holes partially filled with dirt. I unleashed a torrent of curses when I felt the sharp pain of a sprained ankle. Scowling, I added it to the map before looking to the riverbank. Over time, a river’s course wanders naturally. Over a few generations, it can render a once familiar place unrecognizable. I wondered how many other holes remained hidden or buried beneath the mound of dirt.
+I stopped at the tree line, just as I had days before. The maples stood in their twisted circle, their leaves that same sickly purple-black, but now I could see they weren't just diseased. They were feeding. The ground inside the grove was bare of any undergrowth, covered only in a thick layer of fallen leaves that looked unnaturally dark and wet. Several of the larger trees had deep, vertical splits in their bark, weeping that black sap I'd seen at Hemlock's.
 
- 
+And then I saw Gus's collar. It was lying in the center of the grove, the bright red nylon a stark slash of color against the dark earth. The brass nameplate glinted in the weak light—the same nameplate I'd had engraved at the feed store when he was just a pup, so proud to have his first real dog. It was just sitting there, clean, as if it had been placed deliberately.
 
-Walking back to camp, I pondered how to handle the ‘slabbed rock’ as the locals called it, in my report. I could explain away or outright dispose of a few shattered earthenware jars or a forgotten horseshoe. A massive rock with indisputable proof of settlers living in the area was another story. Of all the supposed evidence that Carthage existed, this sedentary rock would be the most complicated to write off. Before heading to the site, my research dredged up very little about the place. It was never recorded in any census. Apart from short paragraphs in local history books, the only written evidence I found were early 19th-century newspapers in the state’s microfiche library, advertising land for sale. I reassured myself the remains of the mill foundation wouldn’t be an issue. After all, I’d read several accounts of foundations and entire homes being forgotten beneath the encroaching water of reservoirs or artificial lake projects. This would be no different, whether it was carved by frontiersmen or not. Besides, even the locals admitted it spent as much time submerged as it did above the river’s surface.
+I knew it was a trap. A blatant, obvious lure. But seeing that collar, the one I'd buckled around his neck when he was small enough to fit in my lap, broke something in me. I stepped across the threshold into the grove.
 
- 
+The change was instantaneous. The temperature dropped ten degrees. The quiet became absolute, a physical pressure on my eardrums. The sweet-rotten smell was so thick I could taste it at the back of my throat. I took a few steps forward, my boots sinking into the spongy leaf litter. Every sense screamed at me to run.
 
-My ankle throbbed as I plopped into my chair at the end of the day. I swatted mosquitoes while typing my field report. Shaking an empty can of bug spray, I regretted not venturing to town that afternoon before tossing it aside. My frustration worsened as an army of miniature bloodsuckers took turns trying to burrow needle-like mouths into my skin. After sending my boss an email, complete with the map of the stone slab, I unlaced my boots. My ankle was tender; every touch sent shooting pain down through the joint. It needed ice and a compression wrap, but I remembered seeing the hours outside the town’s drug store. They closed at 9, just like the rest of the business district. My pain and fatigue hurried me through dinner.
+I was halfway to the collar when I heard the sound behind me. A soft, padding footstep. I spun around, shotgun raised.
 
- 
+There was nothing there. Just the trees, watching.
 
-Lying on my sleeping bag that night, I felt the bumps breaking out on my arms and face, but thoughts of West Nile Virus were overshadowed by aches of pain in my ankle. It was painful to stand on and made walking difficult. Fishing a few ibuprofen tablets from their bottle, I consoled myself with the promise of a trip to town the next day. Surely that Podunk town had somewhere that sold bug spray, and something to wrap my ankle with. I tossed and turned uneasily that night, already knowing whatever sleep I might find would be less than restful.
+Then, from my left, a whisper. It was my own voice again, but this time it was calm, conversational, the way I sound when I'm talking to Gus. "It's alright, boy. Come on out."
 
- 
+I swung the gun towards the sound. Nothing.
 
-Even as I dreamed, my skin itched. My joints, sore from a long day’s work, protested every movement. Sharp pain shot through my ankle as I limped along. I was in the pioneer settlement again, only now it was dark, and thick fog rolling in from the river filled the streets. I was drawn through the place much as I had been during the first dream, my body taking me to my unknown destination involuntarily. The soft glow of several lanterns bobbed drunkenly toward the massive building I saw in my last dream. Occasional threads of light escaped the shuttered windows of the houses I passed. Despite the other people I saw, the place was nearly silent, save for the soft squelch of footsteps on mud streets and the droning hum of voices as I neared the massive double doors of the courthouse.
+A branch snapped to my right. I turned again, my breath coming in ragged gasps. The grove seemed to be closing in on me, the trees leaning inward.
 
- 
+The voice came from directly behind me, so close I could feel a faint disturbance in the air. "I'm lost."
 
-Warm, yellow light spilled from the tall windows on the first floor, casting shadows against the half-finished second floor and bare rafters. Muffled voices of arguments echoed from within. Walking through the doors was like opening a floodgate to the chaos inside. The villagers lacked any of the restraint they showed at the docks. Men shouted over one another, and the crowd swayed like choppy water before a storm. Wandering toward the front of the room, I felt shoving elbows, the rub of shoulders, and voices so loud and incoherent my head ached. A chill ran down my spine when an unrestrained cough brushed against the back of my neck. I had the absurd thought I wasn’t actually asleep, but pushed these thoughts from my mind as I tried to understand what this meeting was about.
+I whirled, finger tightening on the trigger, and saw it.
 
- 
+Not all of it. Just a glimpse, a flicker of movement between two thick trunks. It was tall, far taller than a man, and impossibly thin. Its skin was the color of bleached bone, and it seemed to blend with the trees, its limbs long and jointed wrong. I didn't see a face, just a suggestion of a head that tilted at an unnatural angle. Then it was gone, melting back into the shadows.
 
-“We must send for a doctor!” Others voiced agreement before the sentiment was joined by other incomprehensible shouts. At the front of the room, atop a raised platform, three men sat behind a long wooden table while one stood before it facing the crowd. Sweat ran down his face, as if the debate had gone on for some time.
+But it left something behind. Hanging from a low branch was a small, tattered piece of cloth. I stepped closer, my heart pounding. It was a strip of red flannel, the same pattern as the shirt Hemlock had been wearing yesterday. There were dark stains on it that looked suspiciously like that black sap.
 
- 
+A new sound began, echoing softly through the grove. It was the rhythmic *shhh-click, shhh-click* of a knife being sharpened on a whetstone. Hemlock's sound. It was perfect, down to the slight irregularity when he'd pause to test the blade's edge.
 
-“We have done what we can, Mr. Daniels. The untimely death of our coroner is a shock to us all. Even as we speak, Mr. Porter is travelling with utmost speed to other settlements to inquire after a doctor. He and his party have provisions to last a week or more, enough to see them to Cincinnati if that’s how far they must venture.”
+And it was coming from multiple directions at once.
 
- 
+The sound of Hemlock's whetstone surrounded me, a metallic chorus coming from every shadowed space between the trees. *Shhh-click. Shhh-click.* It was a taunt, a reminder that everything I knew was being consumed and played back at me. The strip of red flannel hung from the branch like a flag of surrender. Hemlock hadn't been lying—he'd been a lesson. A demonstration of what happened when the Hollow One learned you completely. And now it was my turn.
 
-“Pray, tell us,” said someone emboldened by the anonymity of the crowd. “What ought we to do in order to preserve our lives until such a time as Mr. Porter’s return? And what of the dead already among us?”
+I stood my ground, the shotgun stock pressed hard against my shoulder. Panic was a cold fire in my veins, but beneath it was a colder, harder core of fury. This thing had taken my dog. It had killed Hemlock. It had violated my home. It thought it knew me. It thought I was just another hollow to be filled.
 
-The crowd jeered in agreement, interspersed with coughs. I cringed as a cool gust of a coughing fit crept over my skin. I suppressed a cough of my own and cursed the allergies plaguing me even as I slept. More voices yelled at the men behind the table, demanding solutions.
+But Hemlock's words came back to me: *It can't stand empty spaces. Had to fill them up.* If it needed to fill silence with sound, needed to fill hollows with something… what if I gave it nothing?
 
-A large man in the midst of the crowd, not far from me, turned to face the crowd. He regarded the room with yellowed eyes before speaking.
+"Show yourself!" I roared, my voice cracking in the dead air.
 
- 
+The whetstone sounds stopped. In the hush that followed, I heard a new sound. A soft, wet crunching, the same one I'd heard days ago, but closer now. Much closer. It was coming from directly behind the tree where the flannel hung.
 
-“Enough of this,” he shouted. His booming voice quieted the room. “Why do we look to this council of men for guidance when it is they who have led us astray?” Several of the men surrounding him nodded in agreement.
+I didn't wait. I fired.
 
-“I say we end this at once! Before the coroner’s life was claimed by this pestilence, he said we ought to rid ourselves of Haslem’s vessel. Why haven’t we? For no other reason than the greed and hubris of these men before us!”
+The blast was deafening, a shocking violation of the grove's stillness. The buckshot tore into the trunk, splintering bark and sending shards of wood flying. The crunching sound stopped. For a single, heart-stopping moment, there was nothing.
 
- 
+Then, a sound I will hear until the day I die. It was a low, guttural clicking, a sound no animal around here could make. It was a sound of annoyance. Of irritation. I had not hurt it. I had only annoyed it.
 
-A chorus of men shouted approval of this speech. A gavel pounded the table behind the crowd, but no one was listening. I wondered why anyone would keep anything so hazardous in their town and for what purpose.
+It stepped out from behind the tree.
 
- 
+It was taller than I'd imagined, seven feet at least, and so thin it seemed to waver like a heat haze. Its skin wasn't bark-colored; it was the color of old bone, stretched taut over a frame of impossible angles. Its legs reversed like a deer's, but its arms were too long, ending in hands with two long, twig-like fingers and an opposing thumb. It had no face. Where a face should have been was a smooth, pale expanse, broken only by a long, vertical gash that I realized was a mouth, currently smeared with something black and viscous. Sap. It was feeding.
 
-“Scuttle the Conatus,” shouted one in the crowd, before the crowd echoed this demand in unison.
+But it was what hung from its neck that made my breath catch in my throat. Gus's collar. The red nylon was a garish necklace on the pale thing. It had put it on like a trophy.
 
- 
+It tilted its headless head, and from the gash of a mouth, my own voice emerged, calm and measured. "It's alright, boy. Come on out."
 
-The gavel thudded uselessly as the mob threw open the courthouse doors and flooded the main street through the village. The men shoved, bumped, and elbowed me as if I weren’t there, carrying me along with them to the river. The men behind the table shouted after us, but were powerless to stop the group wielding lanterns and axes taken from wood piles. Struggle as I might, my legs refused to carry me away from the frenzy of men hacking violently at the hull of the Conatus. Most of the axe blows were too far above the waterline to sink it. For all their fury, the mob’s actions seemed little more than an outlet for their anger. Until the boat bobbed in its slip as a few of the braver men clambered over its sides and buried hatchets into the wood below the waterline. Water poured through the axe wounds in the hull. The men climbed out and chopped through the ropes. The last glimpse I caught of the boat before it vanished from the yellow reach of the villagers’ lanterns, it was listing over onto one side, its bow plunging beneath the pitch-black river.
+It was repeating what I'd said to Gus a thousand times, when he was hiding under the porch during thunderstorms, when he was reluctant to come back from his explorations. It had learned my life, catalogued every sound I'd ever made around my dog.
 
- 
+I fired again, this time aiming center mass. The thing moved with a speed that was pure liquid shadow. It flowed to the side, and the shot peppered the ground where it had been. It didn't run. It just… shifted. And then it was closer.
 
-I awoke with a shudder. Tiny red mounds speckled my arms. They itched and distracted me enough to overlook the fact I forgot to eat breakfast, but something else preoccupied me while I searched through documents on my tablet. Haunting as the dreams were, a single word remained on my mind: Conatus. It was hardly your everyday Latin, but I knew I’d seen it before.
+It smelled of wet earth and that coppery sweetness, a smell so thick it was a taste. I backpedaled, fumbling for another shell. My hands were shaking so badly I dropped it. The thing watched me, its body making small, twitching adjustments. It was learning my fear, cataloguing every tremor, every panicked breath.
 
- 
+It took a step forward, its two-toed feet sinking into the spongy ground without a sound. Then another. It was herding me. Deeper into the grove.
 
-My stomach twisted when I found it written on one of the Comments and Concerns Forms, mailed out to make these backwater hicks think they had a voice one way or the other about their river. I remembered this form, partially because of its absence of sentimental pleas to save this marshy breeding ground for mosquitoes and ticks, but also by the last name at the bottom: Stutz. It was unusual enough in its own right, causing me to recognize him as the bleeding-heart fool who got the university to withdraw from the project due to “ethical considerations”. I cursed the idealist prick for leaving me to do all this bitch work myself. Adding to my problems, he filled out a form.
+I saw then what I hadn't noticed before. In the very center of the bowl, the earth was not just bare; it was sunken, a shallow depression filled with those dark, wet leaves. And protruding from the leaves were bones. Animal bones, mostly. A deer skull. The long rib cage of a bear. And nearer to the edge, something smaller. A canine jawbone, weathered and old. And next to it, a fresher kill. A rabbit, its fur matted and dark.
 
- 
+This was its larder. This was where it brought things. This was where it hollowed them out.
 
-“Between the Slabbed Rock and the right bank of the river, the sunken remains of the keelboat “Conatus” lie on a submerged sandbar.” A chill ran down my spine as I read this. I swallowed before continuing.
+It was between me and the way out. I had one shell left in the chamber. My knife was in my hand, a pathetic sliver of steel against this thing. Hemlock's words came back to me: *It can't stand empty spaces. Had to fill them up.*
 
-“Approximately 15 feet of its length became visible when water levels reached record lows. No official investigation has been made and its overall length remains unknown. A vessel of this type and size, so far up the winding lengths of the Driftwood River, suggests a connection to the region’s early settlement. Its historic value cannot be overstated. Its resting place beneath the water has preserved the wreck remarkably well. I recommend a full investigation of the vessel and recovery of any of its contents.”
+An idea, desperate and insane, formed in my mind. It learned sounds. It needed to fill the quiet with something familiar, something it could understand and use. What if I gave it nothing to learn? What if I became the empty space it couldn't tolerate?
 
- 
+As it took another gliding step towards me, I did the hardest thing I've ever done. I stopped. I lowered the shotgun. I forced my breathing to slow, forced the terror down into a tight, hard ball in my gut. I looked past it, at the trees beyond the grove. I made my mind a blank, white wall. I became nothing.
 
-A search for any other reference to the Conatus in our archives brought up nothing. I searched for other submissions by D. Stutz and found one more. Any hopes of learning more were dashed when I opened the next form and saw the large, hurried letters.
+The thing stopped. It tilted its head again, that smooth expanse where a face should be turning toward me like a flower following the sun. The gash-mouth opened and my voice came out, laced with a questioning tremor. "Hello?"
 
- 
+I didn't move. I didn't speak. I was a statue. I was empty. I was the void it couldn't fill.
 
-“Dam your own F-ing river,” was all they said.
+It took a step closer, its smell overwhelming. It was so close I could see the fine cracks in its bone-white skin, the way the black sap oozed from the pores around its mouth. It raised one of its long-fingered hands and reached for my face. I flinched internally but held my ground, my eyes still fixed on the distance. The fingers stopped an inch from my cheek. They were cold, radiating a deep, unnatural chill.
 
- 
+It was confused. I was not behaving according to the script it had learned. There was no fear-sound, no anger-sound, no pleading. There was just… nothingness. A hollow it couldn't fill because there was nothing there to fill.
 
-Conveniently, he provided no photographic evidence to support his claims. That simplified my job somewhat. I still needed to launch the ROV for the sake of plausible deniability. Supposing this bumpkin was right about it being a genuine wreck from the pioneer era and not a plywood fishing boat that came untied during a storm, I needed to document its location. The official reason was so McMueller could recommend against construction efforts in this particular spot, under some other guise, but my secondary motivation was one I hadn’t felt in years: curiosity.
+It made that low, clicking sound again, this time with a note of frustration. It leaned in, its faceless head hovering next to mine. The gash-mouth opened wide, revealing rows of small, needle-sharp teeth, and it tried one last thing. It emitted a soft, perfect whimper. Gus's whimper. The sound he'd made the day I found him as a stray pup, hungry and scared and alone.
 
- 
+It was the most heartbreaking sound I have ever heard. Every fiber of my being screamed to respond, to call his name, to reach out. But I didn't. I held onto the emptiness inside me like a lifeline. I was a void. I was nothing.
 
-I didn’t feel like wading through long grass, soaked with the morning dew, and decided to dig some test pits around the site until later that morning. The first few pits turned up nothing, and left just photographs of 1-meter square holes, bordered in construction line with a black and white scale at the bottom to indicate the size of the nothing I’d found. The fifth hole was different. I dug it next to an outcropping of purple wildflowers. About 10 centimeters deep, I found the shattered remains of apothecary jars, their glass pocked with bubbles and imperfections of a long-deceased glassblower. A few of them were almost perfectly preserved, only showing the smallest chips and scratches. There were also the crumpled remains of an antique balance and its weights. It was almost a shame no one but myself and McMueller would ever see these, I thought as I stuffed the artefacts into a small bag.  I dug the pit deeper until nothing but bare soil was visible and took a picture. After the seventh hole, I was satisfied there was no need to bring the ground-penetrating radar sledge out. The proximity to the river, along with the constant growth, death, and decay of plants, would disrupt any indications of building foundations from the pioneer era, save for those made of stone, and that seemed unlikely enough. I remember the courthouse from my dream, but dismissed the thought. The local history books all agreed it was never constructed, or at least finished. Even if it was, those rocks would have been prime candidates for salvage when the next courthouse was built.
+The creature recoiled as if struck. It let out a shriek that was a mosaic of every sound it had ever collected—a bear's roar, Hemlock's rattling cough, my own shout, the screech of a hawk, Gus's bark, a dozen voices I didn't recognize—all layered into a single, discordant wail of rage and confusion. It couldn't stand my emptiness. It turned and flowed away from me, melting into the deeper shadows of the grove, its form blurring until it was gone.
 
- 
+The quiet returned, heavier than ever. I didn't wait to see if it would come back. I ran. I crashed through the tree line, not stopping until I was back on my porch, heaving lungfuls of clean, cold air.
 
-It was past lunchtime when I lugged the ROV to camp. As I collapsed into my chair and propped up my sprained ankle, my appetite was the last thing on my mind. My whole body ached, even while sitting. I tried telling myself I was just tired. It seemed reasonable. Doing all this work without any help would exhaust anyone. Especially if they hadn’t had a good night’s sleep since arriving on site, let alone a decent meal.  A sneezing fit that devolved into hacking coughs interrupted these thoughts. I spat and watched the spit soak into the dark soil, leaving behind thick mucus. A grimace worked its way across my face as I tore open an MRE pouch and looked at its slimy contents. I didn’t bother heating it up. I tried forcing myself to eat, but was repulsed by the slop squelching under my fork. Swallowing was painful. I managed to eat half of the pouch’s contents before nausea forced me to quit.  I don’t know how long I stared into the woods, lost in a thoughtless daze, before I realized I needed medicine.
+I survived. But I am not the same. The grove is still there. I see it from my window, a wound on the land that seems to pulse with its own malevolent life. I don't go near it. The corruption is spreading, slowly but steadily, dead patches of grass reaching like fingers toward my house. Sometimes, at night, I hear things. A voice calling my name. The sound of a whetstone. A dog whining. But now, I hear another sound, too. One I never heard before that day in the grove. A low, frustrated clicking, coming from just beyond the tree line. It's learning new sounds, adding them to its collection. It's patient.
 
- 
+And sometimes, when the wind is right, I smell that sweet, coppery rot getting stronger. It's getting closer, claiming more ground each day. I sit in my silent house, my own hollow, and I wait. I know it can't stand the emptiness. But I also know that eventually, even the deepest void finds something to fill it. And when that happens, I'll have nothing left to give but myself.
 
-I frowned at my reflection in the truck’s rear-view mirror. I hadn’t seen myself in days, but the man staring back at me in the mirror was in rough shape. He looked like hell and felt worse.
-
- 
-
-I drove through the business district two or three times searching for the drug store I’d seen the last time I was in town. This place didn’t have a CVS or a Walgreens, and I was at least an hour away from anywhere that did. Dazed, I parked in front of an old building with the letters “Rx” printed beneath the much larger ones that read “Dime Store”.
-
- 
-
-I rushed past the pimply kid behind the counter on my stiff ankle and aching joints. He mumbled, welcoming me to the store, but I ignored him and followed the sign to the pharmacy counter in the back of the store. Rounding the shelves of bandages and rubbing alcohol, I was disappointed to find a darkened room behind the counter. A roll-down security gate like you’d find in a mall provided a glimpse of shelves, stocked with medical supplies or bulk containers of pills. A wooden sign gave the pharmacy hours for the weekend; they closed at noon on Saturdays and wouldn’t open again until Monday. I cursed, thinking something back there might be more potent than the vitamin C, decongestants, and ibuprofen I carried with me to the checkout counter. I asked the half-wit clerk where I could find a doctor.
-
- 
-
-“We don’t have a doctor in town,” he said, echoing the cries from my dream. “We got an urgent care clinic, but they’re closed by now. You’re best bet is the hospital a couple towns over.”
-
-I left and headed down the street toward the hardware store. I remembered seeing several cans of bug spray there when I bought the construction line. I didn’t see many people, but the few I did meet gave me a wide berth. A wave of nausea met me when I stepped inside the rundown building. My eyes struggled to adjust to the dim light. It was just my luck that the place was busy. The old man from last time was nowhere to be seen as I grabbed the dusty aerosol cans from the shelf. A high school-aged kid in a green apron was working instead, hustling to help a handful of customers, while his girlfriend sat behind the counter on her phone, chomping gum. My body ached, and cold chills made my back shiver. As I leaned against the counter, waiting to be helped, I noticed the girl wore an identical green apron, rolled down to cover just her waist.
-
- 
-
-“Excuse me,” I said, trying not to cough. “Do you work here?”
-
- 
-
-She glanced up, annoyance on her face. Getting a better look at me, her expression turned to one of disgust.
-
- 
-
-“If you have any hardware questions, you better ask Tom. I just started working here and don’t know anything about tools or hardware, or-”
-
- 
-
-My eyes ached as they rolled in their sockets.
-
- 
-
-“I just need someone to ring me up,” I pleaded, holding up a can of bug repellent.
-
- 
-
-She wouldn’t touch the cans after I set them on the counter. She wouldn’t even take my credit card when I went to pay; instead, she pointed to the card reader. She looked relieved when I took the cans and left.
-
- 
-
-Back in the truck, I downed a handful of pills. Washing them down with a warm bottle of water, I tried to figure out what I needed to do next. I’d made a good enough show of taking samples with the test pits, but I still needed to launch the submersible ROV. I checked the time on my watch. There were still a few hours of daylight left. More than enough time to take sonar scans, maybe shoot some video. Just this one last task, I told myself, and I could leave this damn place and forget Carthage ever existed. With new resolve, I wrapped my sprained ankle in a compression wrap and set off to finish the job.
-
- 
-
-The ROV was heavier than I remembered as I lugged it to the mill foundation. More than once, I needed to take a break. By the time I reached the river and clambered over its steep bank, my arms were weak from exertion. Doubt crept into my mind whether I’d be able to drag it back to camp.
-
- 
-
-The river’s brown water obscured the submersible’s yellow hull before swallowing it completely. Only the flash of its bright strobe light was visible as it puttered upstream, just beneath the surface. I paid out one arm's length of umbilical cable after another and watched the sonar scan of the river bed as the small craft fought the current. The scans confirmed my initial suspicions: nothing was on the river bottom except a few fallen trees that settled there to rot once they became too waterlogged to float.
-
- 
-
-The spool of yellow cable was nearly empty, and I began to feel optimistic. Everything about the Conatus was a lie. Just a fanciful story to hold up a major infrastructure project. I was about to maneuver the ROV back downstream when SONAR picked up something that wasn’t a tree. It was the middle of July, but a chill ran down my spine when I saw the skeletal remains of an overturned boat on top of a submerged pile of rocks. My heart sank when it lined up just upstream of the nautical wreck symbol from my first day on site.
-
- 
-
-I stared at the ghostly outline on the screen. The image was faint enough for most people to overlook. Normally, I would have done just that and brought the submersible back, but this was different. I had to know.
-
- 
-
-Camera visibility was terrible. Onboard flood lights illuminated only dirty water as the craft dived deeper into the river’s murky depths. Near the bottom, the jagged outline of the rock pile became visible. I held my breath as the thing came into view. I hoped all the while it was anything else. I felt nausea on top of the overwhelming dread as the short-sighted ROV brought the keel and broken spars of the boat into view through the haze of river silt. Some of the planking remained intact as I piloted the submersible toward the vessel’s backside. My hands trembled as I brought the cameras around to face the planks that made up the stern. My heartbeats thudded in my aching head while I waited for the current to carry away river silt. Slowly, the weathered planks came into view, along with the name I hoped I wouldn’t see: Conatus.
-
- 
-
-I vomited the contents of my stomach onto the granite rock. When I was done retching up my guts, I crouched down on shaky arms and legs, still dry heaving. I don’t know how long I stayed there, staring at the puddle of black vomit pooling around me.  
-
- 
-
-I abandoned the ROV on the granite slab. I was too weak to carry it back to camp, and I was compelled by a sudden urge to flee. I barely made it over the riverbank. My head ached with a splitting pain. The sunlight hurt my eyes as I stumbled through the underbrush. I was desperate to reach camp. McMueller could send someone back later for the ROV. I could leave behind my tent and everything else, but I needed the documents on my tablet before I could leave.
-
- 
-
-I drank greedily from my bottles of water. It trickled down my neck and soaked my shirt, but I didn’t care. It tasted wonderful to rinse the taste of black vomit out of my mouth. Fresh nausea overwhelmed me. I wiped away snot pouring from my nose and toppled into my folding chair. Every muscle ached, every joint throbbed, my ankle felt like it was full of needles. My surroundings blurred. I struggled to stand, and it occurred to me I needed to lie down.
-
- 
-
-“Just for a few minutes,” I told myself, dragging the satchel with my tablet alongside my sleeping bag.
-
- 
-
-I stumbled through misty fogbanks. I wiped allergy-induced tears from my eyes before the shadows of houses and storefronts crept into my peripheral vision. Sniffling along the muddy street, my skin tingled with unease. The bustling crowds were reduced to a scattered handful of disinterested villagers doing their daily chores. None of them seemed to notice me. Most houses I passed were deathly quiet; others held muffled coughs, some weak, some violent, but all sounded like the occupants hacking up phlegm. A woman’s cries of agony in one house gave me pause, and I stopped in my tracks. Between sobs, she must have heard my footsteps stop through the canvas covering her window.
-
- 
-
-“Please, kind stranger. I know you’re there. Fetch me a pail of water.” She broke into a fit of violent coughs and sobbed again. “I beg of you. I haven’t the strength to do it myself, and my child is sick.”
-
- 
-
-I saw the wooden bucket, overturned on top of a large pile of tattered cloths near the front door. I grabbed the rope handle, but lifting it up, I felt sick realizing it wasn’t a bundle of rags. The pale-faced man stared back at me with vacant yellow eyes. Dried blood covered his mouth and beard. It startled me so much, I tumbled to the ground and put my arms out to protect myself from the corpse rotting into the ground.
-
- 
-
-“My husband will be back soon with our child, please, I need water,” the woman pleaded.
-
- 
-
-I looked at the bundle in his arms, oblong and wrapped in white cloth. This made the bright red stains at one end that much more noticeable.
-
- 
-
-The woman inside was sobbing again, but I couldn’t stay. I scrambled to my feet as fast as I could on my sprained ankle. Heads turned to follow me as I hobbled down the street past men solemnly loading possessions into wagons. Others seemed to deliberate whether they should bury their dead before fleeing. Panic spurred me on as a handful of villagers emerged from the darkened doorways of cabins, all with the same yellow eyes and blood staining their mouths. Some held outstretched arms, as if beckoning me to stay. Others stared as if I were a passing shadow, a ghost, or some entity which by all rights wasn’t really there.
-
- 
-
-I didn’t stop for any of them. I ran, afraid they might follow me. It was murder on my ankle, but I didn’t care. I ran until I was enveloped in the same misty fog that ushered me into Carthage, until I was doubled over in a coughing fit that followed me into the real world.
-
- 
-
-The taste of blood nauseated me as I stood under the tree canopy. My feet were cold and wet beneath the layer of fog covering my uncertain surroundings. Turning from side to side, I tried to get my bearings. My head swam in the cacophony of voices, whispers, and cries of anguish. I shuddered at the unwelcome sensation of someone laying a hand on my shoulder. It was well after dark, and I had no clue where I was, but I ran from that place. Thorns pricked my legs and feet. Unseen animals scuttled away as I screamed in terror. Voices kept pace with me as I tried to escape. I tripped over my own test pits, stumbled through vernal pools. I passed my campsite, but the voices prodded me on. They sounded closer. Patting my pants for my wallet and keys, I abandoned everything else. The presence of settlers surrounded me as I ran through the tall grass to the truck. It sounded as if they were trampling the long fronds of grass, closing in on me. The key shook in my trembling hand as I jammed it into the ignition and sped off in a cloud of gravel and dust. I didn’t chance glimpsing into the rear-view mirror until I was back in Henderson Falls. I did so out of morbid curiosity, a desire to confirm a suspicion I already knew was true. At a flashing red light, I clicked on the dome light. Tears rimmed my eyes as I saw their yellowed, bloodshot reflection staring back at me. 
-
- 
+The thing in the maple grove is still learning. I’m leaving tonight, torching this cabin and everything in it. But when I step outside, the silence follows me like a shadow. Maybe I escaped. Or maybe I just carried the hollow with me.
