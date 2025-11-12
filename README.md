@@ -1,114 +1,202 @@
-# Everyone Loves A Happy Family
-Have you ever had an experience that is so visceral and surreal that it follows you every day for the rest of your life? One that makes you second guess or hesitate to do anything that may put you in the same situation? If you haven't already guessed, I have.
+# Never go hiking on a first date, especially if your date is a walking red flag. Part 5
+[*Part 1*](https://www.reddit.com/r/nosleep/comments/1nu3c92/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) *|* [*Part 2*](https://www.reddit.com/r/nosleep/comments/1nvjc9v/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) *|* [Part 3](https://www.reddit.com/r/nosleep/comments/1nxyhsq/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Part 4](https://www.reddit.com/r/nosleep/comments/1nyyxne/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-I was very down on my luck at the time, no job, no family, and subsequently, no home. My days consisted of moving around, being as I was homeless at the time, I didn't stay in one spot for very long. I'd had a nasty break up with my then-girlfriend and left with nothing more than a backpack with some clothes and a blanket. I didn't even have a phone.
+To my surprise, I woke up with my mind and body still intact. But I wasn’t alone.
 
-One particular day I decided to move on to yet another town, yet I had no specific destination. I simply picked a direction and carried on my way. I found myself walking along some back roads that took me further and further into bum fucked nowhere, with only the occasional wooded areas ever couple of miles on either side of the road. I wasn't even sure how long I'd been walking, but night fell and the road in front of me was getting dark.
+Moira was there, her lukewarm back gently pressing against me. She lay like a delicate flower basking in the afternoon sun, the sticky silk sheets refusing to cling to her smooth skin. For a split second, I thought it had all been a nightmare. She was here, just as I remembered her.
 
-Any source of light was obstructed by thick storm clouds that made it difficult to navigate. There was no telling how far the nearest civilization was, and if that wasn't bad enough it soon started pouring rain. I pulled my hood over my head and trudged through it. I'd begun to worry that I'd be walking for several hours before reaching any semblance of shelter. I hadn't seen a car pass for I don't know how long.
+The only thing contesting the illusion was the heavy silk blanket still smothering me.
 
-I kept pace as fast as possible until I came across what looked to be a house that I spotted through a clearing of thick trees. I contemplated for a moment, not sure what to do. Eventually I decided it would be best if I tried to see if I could hunker down, at least until the rain dissipated. The house was pretty far back into the trees down a narrow dirt road. As I approached, I saw that the one-story house seemed old and run down. I noticed the shutters on the windows were closed.
+There was no smell other than her sweet, familiar fragrance. Even the blood Joshua had smeared on my door was gone, scrubbed away. Only the faintest trace remained, barely visible unless you knew where to look.
 
-I reached the porch and knocked, to be honest I was a little nervous about who I might encounter out in the middle of nowhere, where basically anything could happen. There was no answer, so I knocked again. I waited for a couple minutes before hesitantly turning the knob.
+At least now I could speak.
 
-As I entered, I was met with the smell of stale air and it was pitch black. "Hello?" I called out. "Anyone home?" Silence... I felt along the wall until I found a light switch, though nothing happened when I flipped it. I shut the door to keep the rain out and let my eyes adjust to the room. I squinted through the darkness, surveying the living room, it was rectangular in structure.
+“Moira?” My voice was quiet, hesitant.
 
-To the far left sat a small couch with an armchair across from it, separated by a coffee table. Across from me was a doorway leading to what I presumed to be the kitchen, and directly to my right was a coat rack. Aside from the furniture, the rest of the living room only consisted of a bookcase, and photos that hung loosely from the walls.
+She let out a soft sound as she stirred and rolled around. Stretching out her arms before wrapping them around me in a cold attempt at a warm embrace.
 
-Hoping that maybe the electricity was only briefly knocked out by the storm I searched for a breaker box. In the kitchen was a door that led to a basement. The only other door was the back door, which was boarded up as well. "Great." I thought. "The breaker box would be in a creepy basement of a house that was tailor made for horror movies."
+“Good morning,” she murmured, her words swallowed by a yawn.
 
-I cautiously descended the creaky stairs as I struggled to find my footing in the darkness. The basement was filled with random boxes as far as I could see, along with a few baskets full of clothes. I spotted the breaker box and tried to flip it. To my disappointment nothing happened. I sighed, gathering that no one has lived here for a while. I found it odd, however, that it seemed as though most of the occupants' belongings were left behind.
+My mind clawed at words, but I didn’t know what to say. I wanted to confront her, to ask what she had done with Joshua, but I already knew the answer. I just wasn’t ready to hear it.
 
-I climbed the stairs once more returning to the living room. The storm outside raged on as I contemplated where to sleep. I found one of the bedrooms and peered in. Everything appeared normal, save for the fact that it seemed like nobody had slept here for some time. The bed was made, and family photos decorated the walls.
+“Last night… Did— was Josh—” That was as far as I got before Moira’s voice drowned out my thoughts.
 
-The open closet revealed clothes still hanging up. It was so difficult to see because even the windows in this room were boarded up from the inside. I felt a bit strange about sleeping in someone else's bed so I decided to sleep on the couch. I laid down listening to the rain until I eventually drifted off.
+“The doctor came by this morning. We didn’t want to wake you… He took a look at you, and we both agreed that you’ll be fine after some rest.” She paused, watching me carefully before finishing her words. “He even brought me some medicine for the pain. He said I should give it to you as I see fit.”
 
-Do you ever have times in which something wakes you up but it takes you a while to realize what it was? Well that's what happened to me, not to mention forgetting where I was. I looked around, again waiting for my eyes to adjust. I noticed the rain had mellowed out some but that wasn't it. As I squinted around the room I noticed something out of place. I couldn't tell you why I even noticed. The coat rack.
+A doctor. Making a house call all the way out here? No. He would have seen the webs. He would have known something was wrong. Her story seemed unlikely, impossible.
 
-That's when I noticed the breathing. My eyes scanned their way to the chair across from me. My blood turned to ice. I could see the form of what I initially believed to be that of a coat rack sitting directly across from me, leaning forward in the chair, only mere feet from my face. He wore an old hat, though I couldn't make out any details of his face.
+I didn’t trust her, but Moira convinced me I needed help recovering, so I played along. In a strange way, she reminded me of the nurses at the hospital. Whether her care was genuine or just an attempt to win back my trust, it was too early to tell.
 
-I was paralyzed with fear. My breathing was shaky despite my attempt to keep calm, his own raspy breathing stopped as he must have noticed my awareness. His head slowly turned to the side. That was all it took. I jumped up and scrambled for the door, nearly falling. I pulled on the door to no avail, looking closely I saw padlocks on the door that I hadn't noticed before.
+I guess only time will tell, I will try to keep this diary updated. Even though I can feel myself losing the will to continue.
 
-In my current state of panic I made a break for the basement, being that all other windows and doors were boarded up. I nearly tumbled down the stairs after slamming the door behind me. I stood with my hands clasped tightly around the doorknob, holding it closed. I listened for any movement and soon heard footsteps creeping slowly toward the door.
+…
 
-The floor creaked beneath his feet as he stopped at the door. The only sound I could hear over my own breathing was that of the man on the other side of the door. His breathing was slow and raspy, and almost animalistic. I stood holding the door for what seemed like forever, listening to the breathing. I was waiting for the moment that whoever was on the other side would force his way in. I thought he'd never leave until I heard the footsteps of the man as he walked away.
+I don’t know how many days have passed since my last entry, but Moira seems determined to win me over. She feeds me, cleans me, and even gives me medicine when my body aches.
 
-Moments later I heard the sound of a lock being undone, and the sound of the front door opening and closing. After a few minutes of silence I let go of the door, I hadn't realized I'd been gripping the doorknob so tightly my hand was sore. I was still to paranoid to open the door, so I decided I needed to find something, anything that I could defend myself with.
+Moira surprised me with a lemon pie today. I’m not sure where she got the recipe, or the lemons. It seemed a little improvised, but it’s the thought that counts. It was sickly sweet, yet somehow just the right amount of sour. Admittedly, it was not the best pie ever, but something about it warmed me up inside. I could tell it was made with love.
 
-I made my way back down the steps and started rummaging through the basement, I listened carefully for any movement upstairs. I'd just about given up when my foot had hit something. I reached down, fumbling in the darkness until I found a flashlight. I thought I would feel some relief when I turned it on, but once I scanned the basement with it I found something that made me sick.
+…
 
-At first, when the light illuminated the laundry baskets, I had no clue what I was looking at. I approached slowly, and what I saw, my eyes refused to believe. Flesh, all of which was treated, as if it were leather. I tried to convince myself it was that of animals as I took a closer look, until I noticed the faces. Human faces, several of them amidst various other skins from who knows how many people. That wasn't all, I found something else, rested on a metal chair next to the baskets was a yellow notepad.
+My leg feels almost whole again, and I can turn my head as far as the brace allows without pain. I think it’s ready to come off. Yet despite my recovery, my body feels weaker than ever. I keep asking Moira to lower the dose so I can move around more, but she just smiles and assures me she knows exactly how much I need.
 
-My mind was racing, it told me I should just focus on a way out and never look back but my curiosity got the best of me given the circumstances. I picked up the notepad and read the first page.
+Moira and I haven’t talked about the giant, spider-shaped, white elephant in the room, but as long as things stay like this, I don’t think we have to. Everything is almost back to normal. She sits with me during the day, telling me about all the wonderful things we’ll do once I’m better. We could go hiking again, try out real restaurants, meet new people, and…
 
-"We ask only to be reassured about the noises in the cellar and the window that should not have been open." It read.
+What am I saying? Why am I even considering this? Things can't ever go back to the way they were, not after what I’ve seen.
 
-I flipped to the next page.
+…
 
-"One need not be a chamber to be haunted. One need not be a house. The brain has corridors surpassing material place."
+My memories are still foggy, but I don’t think I’ve been declining as much since my accident in the hallway. Maybe I knocked my head back into place. Or maybe there’s just nothing left to forget.
 
-I kept flipping pages.
+Except Joshua.
 
-"Stare at the dark too long and you will eventually see what isn’t there."
+My head is still full of cherished memories of him, yet they only serve as a painful reminder of what I’ve lost… what Moira has taken.
 
-"Maybe all the schemes of the devil were nothing compared to what man could think up."
+…
 
-"I don’t live in darkness, darkness lives in me."
+Every day that passes, I become more certain that things can't stay like this forever. As I recover and even gain weight, Moira has been experiencing the opposite. She’s growing weak again, and I know what that means. She needs to feed. And with Joshua off the menu, I fear I’ll be next.
 
-On and on it went, each page containing macabre phrases, most of which stained with smears of what seemed to be dried blood. I decided then that I had to get the fuck out of this God-forsaken house by any means necessary.
+I swear she’s fattening me up for the slaughter. I need to do something, fast.
 
-I still hadn't heard anything since the man left the house, so I put the notepad aside and crept back up the stairs, careful not to make too much noise. Slowly I opened the basement door and peeked out. Although I saw nothing moving, I was still cautious to say the least. I made my way through the kitchen and into the living room. Without hesitating I pulled the door open. My stomach dropped.
+I have to find a way out of here. I’m pretty sure I can walk, I just need Moira to stop injecting me with her “medicine”. My arm is covered in track marks like a heroin addict’s, my veins bulging like blue rivers with streams of ink flowing through them. Whatever it is, it’s definitely a sedative, but nothing like what the nurses gave me.
 
-As I aimed the flashlight directly in front of me I saw a face I would never forget. His skin was withered and pale. His wild eyes were grey and almost unnaturally wide. He was sickly thin, wearing clothes much too big for him that were stained with what was most likely blood. His hair was tangled and matted. The man's mouth hung open revealing rotted teeth. For a moment I couldn't move, the cold, emotionless expression he wore was paralyzing. The eyes were so distant and yet I felt as if they were digging their way into my soul.
+If I can just convince her to lower my dose, just once, I might be able to muster the strength to fight back and break free from this cocoon.
 
-I slowly started to back up, and as I did so I saw the man's open mouth turn into a frown, and his blank expression turned into an angry grimace, as if he were disgusted beyond measure. I turned and ran to the first door I saw. As I reached the bedroom once u I heard the footsteps of the man behind me, his breath turning into a desperate growl.
+…
 
-I barreled into the room and was barely able to shut the door behind me before he slammed into it. I quickly reached for the knob and locked it. I kept my back to the door as I listened to his raspy breathing, after a few attempts at opening the door, he stopped. Then suddenly he broke out into a maniacal laughter, rambling incomprehensible gibberish. I had to find a way out as soon as possible.
+Joshua might be gone, but the hope he gave me isn’t.
 
-As I turned the light toward the window that was boarded up, something caught my eye. The pictures. The families in the photos, and I mean different families in each picture that adorned the wall, were all mutilated and made to pose in different ways. Faces were forced into bloody, toothless smiles with hooks through their cheeks. Eyes were removed. Bodies were sewn together in a horrific embrace resembling a hug. Mouths were sewn to one another as if they were kissing.
+Shifting in bed, I felt something gently prodding into my back. With my free hand, I reached under the pillow and found it, the knife. The same blackened blade he used to fend off Moira, the one he tried to cut me free with.
 
-Then as I moved the light toward the closet, I made yet another horrific discovery. Like the laundry hampers in the basement, in which were what I assumed to be nothing more than clothes, I found even more human flesh. Entire torsos of people were hanging from the rack, also seemingly treated as if it were leather. I felt sick. The whole situation was beyond anything I'd ever expect to experience. All the while the man continued to laugh and ramble unintelligibly.
+Maybe I could finish what he started…
 
-"What do you want?" I shouted breathlessly. The laughter stopped suddenly. I listened intently, hearing only the raspy breathing of the man. "Just a happy family, I love to see a happy family." he said in a low, animated voice. Then suddenly he proceeded to kick at the door, every loud bang was accompanied by a screeching bellow.
+…
 
-I knew if I didn't act quickly, I'd be killed, and likely turned into the casual apparel of a fucking sadist. To the left of the door was an armoire, with a surge of adrenaline i strained to push it in front of the door, tipping it over in the process. The scenery before me was almost too gruesome for my mind to make sense of it as one of the armoire doors swung open upon hitting the doorknob. Multiple severed human heads cascaded out onto the floor, all of them were maimed, and disfigured.
+Last night, I asked Moira to lower my dosage since my body had nearly made a full recovery. I promised her I wouldn’t struggle anymore. I felt bad for deceiving her.
 
-It was only the will to survive that drove me into a frenzy. I scrambled to the barricaded bedroom window and began driving my foot into it as the man continued to do the same to the door. I kicked and kicked with everything I had until the wood finally gave way. I tore away at the boards until I had full access to the window. To my dismay I found that it was also nailed shut. The crazed lunatic on the other side of the bedroom door seemed to be growing more frantic, and his shouting grew more hysterical.
+She gave me a tired smile. “I’ll think about it,” she said. But there was something in her voice that told me she didn’t believe me.
 
-Without thinking twice I grabbed the end table next to the bed and heaved it at the window. After two tries the window gave way with a satisfying shatter. Adrenaline still rushed through my veins as I climbed out and wasted no time sprinting into the direction of the trees. Moments after I took off running I heard the sound of the man bursting from the front door, and the maniacal laughter as I ran. I could only assume he didn't give chase as the chaotic sounds faded behind me.
+“Since I already went through the trouble of preparing this dose, I’ll give it to you as is. I’ll call the doctor tomorrow and ask about lowering your next dose.” Her voice was soft and comforting, even though I knew it was all lies.
 
-I ran until my legs were on fire, until my blood turned to acid, and then I ran some more. I don't know how long I'd been running until I finally reached a road. Almost out of pure luck I spotted a car traveling by. I stepped into the middle of the road waving both hands like a lunatic as the car approached. I breathlessly told the driver that I needed the police. "Call... Police... People... Murdered..." Was all I could choke out. Luckily he obliged.
+The cloudy white fluid in the syringe couldn’t have been more than a few drops, but it did the trick. Almost instantly, my muscles melted under the weight of the fraying blanket. The medicine may have dulled my body, but my mind was still hard at work, piecing together a plan to escape.
 
-I did my best to explain to the cops exactly what happened in detail. Of course they were a bit skeptical, a sweaty, homeless drifter giving them a story about a murder situation undreamed of by even the most seasoned of homicide detectives. I was taken to the nearby police department to give a formal statement. I told them of the notepad, the human leather garments, and gave the description of the man I'd seen.
+…
 
-Then the unthinkable happened. I was told that not only was the man nowhere to be found, but that the house itself was empty save for the furniture. The hampers were gone, the closets were empty, the armoire contained nothing at all, nor were there any disfigured family photos or severed heads. It was assumed by the police that the occupants that lived there had simply picked up and moved, leaving most of their belongings behind.
+Today is the day. This has to work. I don’t think Moira can hold back her hunger much longer. She looks as ready to pop as she did that night she revealed her true nature.
 
-I tried to convince them, but I was told that if I didn't want to be charged with falsifying a police report and destruction of property that I'd better just leave immediately. As discouraged as I was I didn't want to push my luck, since I was especially lucky to make it out of there.
+She’ll be back with my next dose in a few hours. By then, I’ll have carefully slipped the knife from under my pillow, gripping it as tightly as my weak muscles allow. I’ll cut through the last thick strands of silk holding me down, slicing through the main arteries like some twisted surgeon, until all that remains is a dried-out net, light as a leaf. Once I’m done, I’ll slide the knife back under the pillow and pray I won’t need it again.
 
-Months went by and I'd actually started to find a foothold in my life again despite the psychological trauma I'd faced. In fact it seemed to give me a fresh outlook on life. I actually reconnected with my ex, and eventually rekindled our relationship. I started a decent paying job, and proposed, and was surprised soon after to find out that my wife was pregnant. With our newfound stability, we decided it was time to move being that she was going to pop any day, and we needed a bigger house. We found a house out in the country that was a perfect fit, closer to my job, and far away from the shit that haunted me. Things were going great.
+If I write any more after this, then that means my plan must have worked…
 
-After we were completely moved, we had a little housewarming party and invited some friends. I spent most of the time at the grill, having a few beers and laughs with the guys. My wife stayed inside with the woman doing the things that woman do when they congregate. I caught myself spacing out for a moment, thinking of my experience, I never talked about it to anyone except my wife.
+…
 
-"Hey babe, do you know where the photo album is?" Sabrina asked, bringing me back to the present.
+The plan backfired worse than I could have imagined. I just pray I remember where to find this diary in the morning. Hopefully, reading it will give me some clue as to who I used to be, before Moira hollows me out completely.
 
-"Umm... Not sure love, honestly the last time I've seen it was at the apartment, didn't you pack it?" I responded.
+It worked at first. I cut myself free, and once the weight lifted, I could feel my strength returning. My veins filled with adrenaline, flushing out the last of her venom. I hid the knife just in time. Moira returned as the sun was setting, right on time for what was hopefully my final dose.
 
-"No... I thought you did." She said curtly. I shook my head with a sigh. "Last I saw it was a couple weeks before we moved."
+She entered the room with a slight limp in her step. Her age was catching up quickly, something that would greatly aid my escape, I thought. In this form, I could easily overpower her and wrestle the syringe from her hand; the syringe was plan A and the knife was my backup plan.
 
-"Damn." She grumbled. "They wanted to see the ultrasound. And it gives me an excuse to show them your baby pictures and stuff." She gave me a devious grin.
+Even after everything Moira has put me through, I don’t hate her. I hate what she’s become. I hate the illness. To spare her life while saving myself would be the best outcome for everyone involved. Everyone except Joshua... the memory of him was the driving force behind this escape attempt.
 
-" Well God forbid that would be missing. " I laughed. "Anyways, it might turn up somewhere."
+If I didn’t get out, then Joshua would have died for nothing.
 
-The guests stayed around for a couple more hours before it was time to wrap it up and go home. The rest of the night was spent relaxing in front of the tv until Sabrina fell asleep in my arms, so I shut the lights off and headed for bed. I felt like things were going perfectly, which isn't something I'm accustomed to. It seemed as though I was starting to adapt since the incident, but I'd be lying if I said it didn't fuck with me from time to time, especially in my dreams.
+When Moira took out the syringe, I saw exactly what I was hoping for. I knew that when I asked for a lower dose, she would only increase it. She couldn't bear to give up control, not with so much animosity between us. I could never forgive her for what she had done to Joshua. And now, she was starting to realize that.
 
-The next day I woke up relatively early and couldn't fall back asleep. I had a few hours before work so I sat on the couch in front of the tv, drinking my morning coffee. I didn't like sitting idly. Once the memories creep in I become restless and try to occupy my mind with anything. I noticed the sound of rain as I sat fixated on nothing in particular, and it brought me back to that night.
+I offered my arm, and her cold hand closed around mine, gently yet firmly pulling it out to ready the needle. Her bony fingers still wielding the same strength with which she had pulled me up the day we met. That’s when I knew this wouldn’t be as easy as I thought.
 
-I stood and made my way to the front door and stepped out, taking in the scenery of the grey sky, reliving that night in my mind. Above all else I felt like I was at the point that maybe I could move on from my experience one step at a time. That was until I turned around to go back inside. I noticed something resting against the house next to the front door.
+There was no time to hesitate, I had to move quickly. I grabbed the syringe from her hand. She wasn't expecting it, and before she even knew what happened, I plunged it into her abdomen. The needle punctured her wrinkled skin and slid in smoothly, almost as silky smooth as her skin had once been. As I injected the medicine, I saw her glazed-over eyeballs roll back into her skull, only for a pair of inky black eyes to fill the empty sockets. The venom pooled inside them as she stared me down, but this time, her icy gaze wouldn’t freeze me in place.
 
-It was a backpack... A very familiar one. I reached out a shaky hand with trepidation, picking up the bag. Walking slowly, I carried it inside I dropped it on the couch. I could only stare at it for several moments before I finally gathered the nerve to look inside. As I slowly unzipped the bag, I don't know what I expected to find, I just felt it was going to bring me back to the panic I felt in that hellhole of a house.
+She managed to keep me pinned for a second, but I shoved her back with all my might. The venom was working, even on her. She stumbled back, and I saw my chance. My body ached as I broke through my cocoon and dragged myself onto my feet. My legs buckled, but I pushed through. I made it to the doorway, but before I could leave, I shot a glance back at Moira. She was on her hands and knees, facing the floor. I could see her back bulging; I knew what was coming. I was sure the venom would be enough to paralyze Moira, but no amount of it could subdue the beast inside her.
 
-As I peered in, to my surprise I only found the clothes I had packed in it when I was traveling. That was until I spotted something else. I pulled out a very familiar large binder, that was formed into a photo album. I felt bile rise up in my throat as I opened it, each and every page displayed all of the family photos that it had always contained, only every one of them had what seemed to be blood smeared in the form of a smiley face covering them. Parents, grandparents, siblings, nephews, nieces, cousins, aunts, and uncles.
+For a moment, I hesitated. Had I made the right choice, using the needle instead of the knife? I almost darted back for the knife, but then I heard her shrill, agonizing scream. It was an angry scream, her once woeful screech boiling over into a fit of rage. For a second, it sounded like standing next to a boiling kettle, one filled with poison and betrayal. My heart broke for the women I loved.
 
-I kept flipping, and flipping pages, until I came to the last and final photo. My heart lurched in my chest. The ultrasound. Blood was stained upon it in a smile like the rest. On the page to the right of it was a ripped-out page from a yellow notepad. In unmistakable handwriting it read "Planning on adding to the family? So am I."
+I left the room, but my mind stayed behind. As I stumbled down the hallway, I could hear the same sounds I had when I was forced to witness her transformation. Only this time, they were much quicker; they sounded rushed, more urgent. The speed of her transformation filled me with an overwhelming sense of dread.
 
-And beneath that it read "Everyone wants a happy family."
+With each sound, a flash of memory accompanied it, my mind replaying the event in fragments that clouded my vision.
+
+A symphony of agony spilled out from my room and into the hallway behind me, climaxing in a loud screech and a heavy thud. Then, immediate and complete silence.
+
+I didn’t care if the venom worked and if she was out cold, or if it failed and she was right on my heels. I was heading straight for the front door, not stopping for anything. As I limped through the dining room, I swear I heard a faint sound coming from the attic above me. At first, I wasn’t sure if I had heard anything at all. Only when I reached for the handle on the front door did I stop, guilt overwriting my movement. 
+
+What if… What if that noise was Joshua? What if he was still alive, and I was leaving him behind?
+
+I know now what that noise was, because as I turned around, my hopes were crushed by what I saw in the mirror beside the door. Moira was on the ceiling right above me. She fell onto me with all her weight, and as her fangs punctured the back of my neck brace, the needle-sharp tips somehow echoed the pain from the dull rock that had landed me in this mess.
+
+The pain faded along with my vision, and I fell into a dreamless sleep so deep I thought I had died.
+
+I jolted awake, sitting upright in my bed, as if awakening from a feverish nightmare. The room around me was swallowed by deep darkness,  it must have been sometime around midnight. My only sensation was the throbbing pain in the back of my neck,  my hand instinctively reached for the source of the pain, it found two shallow holes with small streaks of dried blood running down them.
+
+As I leaned over to look at the clock on my bedside, I was surprised to find that my body was complying. I was not tied down. But as soon as I moved, the darkness spoke. A voice I recognized well was choking on words attempting to ease the pain, but it was useless. Instead of comforting me, Moira’s voice sent a cold weight through my spine, locking me in place.
+
+“I’m so, so sorry,” Moira said, remorse stifling her voice.
+
+“I didn’t want to bare my fangs at you… but you left me no choice.”
+
+I purposefully turned my head away from her and, and with a slight quiver I asked, “Is this the part where you eat me like a bug?”
+
+“Eat you? I could never eat you. It’s killing me, but I’d rather waste away and refuse to feed.” Her voice was low and serious, the pain clear in each word.
+
+“You had no problem eating Joshua!” I spat, my words coated in venom.
+
+“What a senseless comparison,” she said in a cold, calm voice.
+
+After a brief pause, her tone shifted. Suddenly, her voice spoke with a quiet warmth that reminded me of why I fell in love with her.
+
+“You showed me that the heart is more than a pump. Is this what they call love? Because I feel it in my chest, and I feel it in my head…”
+
+She paused, weighing out the emotional weight of her next words.
+
+I know all of Joshua’s thoughts, every memory he had of you. He only ever pitied you, he could never take away your pain like I have. He was merely a stain on the parts of pain I’ve already scrubbed clean. In the end, his flesh was worth more than the scraps of insight his memories offered. He didn’t love you. Not like I do.”
+
+Her words ricocheted around in my head, the first realization bouncing off the second. This was the first time she admitted to killing Joshua, and also the first time she told me she loved me.
+
+The moment felt wrong, the bitter outweighed the sweet. The realization slowly sank in like a lumpy, bitter pill washed down with a spoonful of thick honey.
+
+I turned towards where her voice had come from. My words shaking as I spoke into the darkness.
+
+“You're wrong about him. Joshua was all I had. He was the only person left in my life who was real. I don't remember anyone else,” I said, my voice a quiet plea, waiting for her to and rationalize what she had taken from me.
+
+“I tried my hardest to consume only the pain. It was like uprooting all the weeds in a garden, only to realize there’s nothing left at the end.” She paused, her words heavy with honesty.
+
+“I thought Joshua was the only thing left that was worth saving. He was the lemon tree, proudly standing in the center of the garden. However, it seems as if the fruit of your friendship has soured the soil, and made it impossible for anything else to grow in its place… I recognize that it’s my fault, for not clearing him out with the rest of the weeds.”
+
+Her voice softened, but the coldness in it remained.
+
+“But now there’s only one solution… It is clear to me that I can't leave you with the last of your memory.”
+
+All the metaphors swam around in my head, too much to try and piece together at once. I just sat there in silence, trying to process her words.
+
+There was a long pause from the darkness before Moira continued.
+
+“But I promise you I'm real, as real as your own flesh. So just let your eyes grow heavy, and I'll stay beside your bed.” As she leaned over out of the darkness, Moira’s melodical voice grew into a whisper, soft and sweet. A stark contrast to the face directly in front of mine, those eight cold pearls piercing through me.
+
+“Do you recognize my gaze, as I once again clean you of this mess?” The final words in her lullaby lulled me into a trance.
+
+I stared into her eyes for only a few seconds, but it felt like a lifetime had passed. I could feel my childhood memories of Joshua slipping away, and with them, any connection to my past. My whole existence, up until now, was reduced to a flickering candle in the wind. On the verge of being snuffed out.
+
+I shut my eyes, a tear rolling down my cheek as I turned my head away.
+
+“Was this your plan all along? To hollow me out? To paralyze my body and spirit so you can pull at my strings like I’m your puppet?”
+
+“Don't you see? Once you let go, there will be no need for strings. You’ll be free, without the memory of ever being trapped. Then we can start over...”
+
+“I’m not ready to let go. Just give me some time alone with my thoughts…” I paused, the weight of my own words sinking in, “Or at least what’s left of them.”
+
+One of Moira’s eight legs curled out from the darkness, brushing the tear off my cheek with an eerie tenderness.
+
+Moira stared at me unblinking. Her cold, inky eyes carrying a warm understanding, but I could still sense the hunger behind them. She agreed and left the room. Her patient voice was the last thing I heard, as her silent skittering carried her out the room, her words echoed down the hall. “I’ll be here when you change your mind.”
+
+Once I was sure I was alone again, I wasted no time reaching for my laptop to write down everything that had happened. I hope that by the time I wake up tomorrow, I will remember where to find this journal.
+
+As I lay in bed, unburdened by webs, a strange sense of trust settles over me… Until I notice something lingering in the corner of the room. A uniquely familiar shape. I stare at it for over a minute, yet my eyes refuse to adjust to the darkness. The pale form melts seamlessly into the white corner where the ceiling meets the wall. I can’t bring myself to turn on the light.
+
+You would think that Moira’s influence feels like a parasite in my head, maliciously eating away at my memories, but no. My head is as clear as it has ever been. Instead, the years of memories I’ve lost feel like a pit in my stomach. And yet all my memories of Moira are still crystal clear, kept safe inside my heart.
+
+If Moira is telling the truth, and my life before her was as miserable as she says, then why do I hunger for a life I never truly lived? A life where I merely existed, scraping by with nothing to show for it. No purpose, no joy, just an endless cycle of loss and loneliness.
+
+The thought of going back to my life without Moira terrifies me. 
+
+What if all she wants is to take away the pain? Maybe if I give in to her, I could be happy. Maybe we could be whole again. When it's all said and done, she's still all that I've got. Or maybe she is lying, and the reason she dug this pit in my stomach was so she can lay her eggs and watch as they hatch, and then slowly consume me from the inside out. 
+
+The fucked up part is I don't know which possibility scares me more. Having dozens of spiders eat me from the inside out, or ending up alone… without her. 
+
+I’m torn between two unbearable choices. Moira’s promise of rebirth and belonging feels like home, yet the knife pressed through my pillow promises of a desperate escape, another false hope perhaps. No blade is sharp enough to cut through her hold on me. I’ve become her puppet, and even if I manage to sever that final strand, I know I’ll collapse under the crushing weight of my own loneliness.
