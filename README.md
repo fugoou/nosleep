@@ -1,134 +1,126 @@
-# My new neighborhood is little quirky
-I went through a bad breakup. Couldn't get the guy to leave me alone. He was showing up at my work, home, even my mom's house. I decided I couldn't do it anymore. I started looking at states hours away from my hometown. Not a city, but not too small of a town either. I wanted to be able to walk the sidewalks and get to local shops. Moving to somewhere I knew no one, it would be nice to live in a neighborly town. 
+# I Hear The Thudding Of Her Necklace Of Skulls Every Night.
+I grew up in India, a land rife with superstitions and rituals. 
 
-I finally settled on a little town in the Pacific northwest. I flew out to look for a job and a place to live. I spent the first few days walking around the main town, applying at a few shops. I quickly found a smaller book manufacturing company. I had an interview and fit what they were looking for. After that was settled, I set about finding where Cow, my little tuxedo cat, and I would call home. I started exploring a bit farther from the main town. There were some cute, quiet places but they weren't calling to me. Then I found my new little neighborhood, Jerusalem Street. 
+I grew up in India, and yet I never believed in the myths and tales. I was a skeptic. A young theatre kid who was the product of one of my country's many growing metropolises, who was raised by 2010's YouTube and a few very indulging art teachers. And I soon grew into a young woman who was Indian in a foreign land, a college student armed with nothing but a European Visa and a backpack, hustling to fit into a strange foreign land.
 
-It was settled just a bit back from the main road. Three rows of townhouses in a cul-de-sac. You could tell they had some age, but all were well kept, and it was a lovely little street. Not the near identical wash of beige and gray have become so common. Most were light pastels. It looked like people liked living here. Lots of trees and gentle light dappling the ground underneath. Quiet. A couple of people out with their dogs or walking to town. A small area in the center with a bird feeder, a bench, and board that people could leave fliers or notes on. It looked like the people took pride in making a community. 
+Like I said, I did not believe in rituals. I never attempted to believe in rituals. 
 
-In the row at the back of the cul-de-sac was an empty lavender home with simple "For Rent" sign out front. I spoke to the realtor in town, and everything was taken care of. Luckily the owners left some basic furniture, so I didn't have to worry about anything too big. I flew back home, packed up my important stuff, and drove across the country with Cow buckled into the passenger seat. 
+It is 2025. I'm a grown woman now. I live alone. 
 
-Of course, I had to stop and rest for a couple of nights on the way. Let Cow out of his carrier and stretch in a hotel room for the night. I timed our arrival for late morning so I would have a large part of the day to unpack and not disturb my new neighbors by getting there too early. 
+I was swamped in deadlines and on the first day of my period. My genitalia was throbbing and sending jolts of pain up my spine. My uterus was contracting and convulsing in white hot pain. And it wasn't anything new - it happened every month, I was used to it. But I still missed my mother and my grandmother. 
 
-Several people stopped by to welcome me as I was going back and forth from the car. An older woman with blue hair and eccentric dress introduced herself as Ms. Jules. Said they had a welcoming committee. She was one that started it as she lived here most of her life. The neighborhood had a couple rules but nothing too bad or anything like an HOA. They would be by around dinner time "when you really should be taking break anyway" she told me. She was nice. I told her I would be ready, and she said she hoped Cow would come out to see her. I smiled. 
+It was perhaps due to a strange nostalgia for home that I found myself remembering my mother's stories. My mama had always been a devout woman. She had claimed to see spirits in her dreams when I was a child. I vividly remember a specific event from when I was eight. Mama hadn't been herself after my younger brother was born. I suppose a psychologist would have called it Post-Partum Depression, but 2000's India didn't really have psychologists or psychiatrists. Instead, they had mediums. One such medium was our cleaning lady. 
 
-I spent the next couple of hours getting everything out of the car so I could let Cow into the rest of the house to explore, and I could get a shower before the welcoming committee showed up. Around 5:30, there was a knock at my door, and I saw Ms. Jules with a couple of other people.  I welcomed them in. Ms. Jules introduced me to Dave Hancock the middle-aged neighbor directly beside me, and Kayla a woman around my age who lived in the row of houses to my right. Ms. Jules had brought some sandwiches and bags of assorted chips. We sat around my table where I had managed to clear most of my stuff off. She commented that I had done well for one day of work. We sat around eating and making small talk. Kayla seemed shy but told me she would be happy to show me around town, if I wanted to stay. 
+It had been a sunny weekend. I had just returned from school and I'd seen mama talk to the walls. I'd asked her what she was doing, and she had asked me if I'd seen a woman in a white saree sprint towards me, screaming. I'd declined even as my mother's protests got more frantic. And finally, the cleaning lady, Jaya Ma, had rushed to stand between mama and I with a hot saucepan full of salt and ash in her right hand. She had waved the saucepan in rhythmic motion around mama's head. And slowly, mama had returned to normal while Jaya Ma had screamed like a feral wolf as she ran to throw away the burning remains of the salt mixture.
 
-"I'm sure I'll take you up on that, but what do you mean if I want to stay?"
+They had told me to stay far away from that salt mixture until the garbagemen took it away. But it was the early 2000's and ghost movies were all the rage and I was a kid, and so I'd snuck out to see the clumps in the middle of the night.
 
-Kayla nervously looked at Ms. Jules. She smiled warmly at me, "we may as well get to the neighborhood rules. It's really not much to worry about.  Can I have that paperwork, please?"
+They were shaped like a young woman in mid-scream. 
 
-Dave opened a folder with some papers in it. There was a town map, a small pamphlet about the community center, and a printed list about our little street. Ms. Jules pushed them toward me. "You can read those at your leisure, but I do need to go over some things with you  tonight." 
+I saw her in my dreams for years until I started high school and decided that I was too cool to be scared of what could only have been a neurotic breakdown on mama's part. And sometime in high school I also chalked up the figure in the ashes to a trick of the eye. 
 
-"O-okay no problem," I stammered a little. 
+And suddenly I was back in my apartment in Belgium, wondering why I was thinking of what had to be a skewed childhood memory. I laughed it off. I went out to dinner and went to classes the next day.
 
-"The street cleaner comes once a month. In the afternoon on the first Tuesday of the month. You'll want any cars in the driveway or to be out at that time. I'm sure you saw the board in the middle by the bench. You can find information about town events, people trying to rehome some things, or even some snacks for people to take. We all vote at the community center, when it's that time of year. This is all written down for you. You can come to any of us here if you have questions or need anything, but now you know where the three of us live."
+It was evening the next day, I was sitting on my couch, the cramps that I had suffered through all day the previous day having dulled into a throbbing pain in my abdomen and a hell lot of fatigue. And just as I wondered if I should take another painkiller to be able to go out gorcery shopping without collapsing on the streets or something, I heard a rustling near my door. I froze.
 
-"Thank you. I'll be sure to leave some cookies out for everyone once I'm settled in." I didn't say more. It felt like she wasn't done going over things. There was a bit of tension in the air. Cow cautiously peeked around the corner to see what was going on.
+*Meow.*
 
-"Hello, dear! How do you like your new home?" She held her hand down to him. He slowly approached and sniffed her for a minute before rubbing against her hand. He must smell "Emily, she's my tortie." 
+I sighed in relief. It was my kitten, Mia. "You terrified me, baby!" I cried as I beckoned her over and groaned as I saw that she had left claw marks on my wallpaper.
 
-"Cute" I smiled. "I'd like to meet her sometime."
+*Meow.*
 
-"Absolutely!" She paused before continuing. "This is an old town. Not much has changed in a long time. It's had slow growth, and many natural areas have been maintained for centuries. The trees behind our street are the edge of a state park."
+She scratched at my jeans and looked at me with eyes so slitted they were almost unnerving. Now, I found this a bit weird. Mia had never been very vocal or aggressive or prone to getting scared, especially since I'd gotten her neutered recently. But I wasn't too worried. After all, she was a cat. Cats acted weird all the time. I still remembered the time she'd freaked out because of a dead dragonfly on the windowpane. 
 
-"Wow! That's awesome! Kayla, I'd explore with you sometime if that's something you like too."
+"Do you want mama to give you a kiss?" I said in the baby voice that I hoped no one except Mia ever heard for the sake of my reputation in the office. I scooped her up and pressed a kiss onto her tufty orange fur. She stopped meowing and I relaxed, so much that I barely noticed a breeze blowing past me as I spoke. 
 
-"I'd love to!" Kayla responded. "I don't have a hiking buddy."
+*Probably just hungry again.* I thought to myself as I stood up to get some canned fish for Mia and a coffee and a painkiller for myself. 
 
-Before I could say more, Ms. Jules continued. "I'll finish up so you can get some rest tonight. There's just one more rule we all follow here." Her face looked older than it had a minute ago, makeup crowding in the gentle creases of her face. She looked into my eyes, "don't look outside if you hear any noises at night. It's not all night, just between 1:00 and 3:00. Don't go out at that time, if you do get caught out at that time- there's Ashely Street just down the main road, you saw that, right? Park there for the night. Many of us have had to sit in our cars for a couple of hours over the years. This is a small enough town that that neighborhood knows it's just us and won't get worried by a car there early in the morning." 
+I paid no mind when I heard her hiss behind me as I walked to the kitchen island. *It's probably a bird at the window again.* I told myself. Although this time I hoped that there wasn't anything actually wrong with my cat. Who knew with all the horror stories about randomly triggered rabies or FIV virus you heard on the internet?  
 
-I didn't know what to think. My mind tried to come up with a logical reason. "Do animals come in from the park?"
+Looking back, I should have paid mind.
 
-"Something does," she said quietly. "It's been at least as long as I have. As long as you don't look out, there's nothing to worry about. And don't worry about Cow, he'll be fine. I keep Emily inside just to be safe. It's not every night but you're better off just not looking out at that time at all. I know this is a lot to take in, but please just listen to it. Any of our community would talk if you have any questions. We'll leave you be for night. I'll check in soon."
+That night, I dreamed of *her* again. The woman I saw in that ratty saucepan in the dumpster. Her eyes were vacant and her scream guttural. And it was loud. Really LOUD. I looked at her and she seemed to look right through me even with no eyes. And then, the ashes crumbled. It crumbled and suddenly I was drowning in it. And maybe I was the ash woman or the ash woman was me. Because I was running for my life and I was wearing anklets that thrummed chaotically while I ran and I was dressed in white and the front of my saree was draped over my face and I couldn't see. 
 
-With that, she stood up from the table and the others followed. Kayla waved goodbye. Ms. Jules blue hair shone under the streetlight until she made it to her door. Dave stood around another moment as we watched them go. "I know that all sounds pretty weird. The people that lived here before couldn't handle it and they left. My phone number is with the paperwork if you need anything. Or if you really need something overnight, just bang on the wall and I'll hear. I'll be over at 3:01. Goodnight" 
+*MEOW.*
 
-"Thank you, goodnight." I headed back inside, head pounding. I sat heavily on the couch and tried to absorb what I had just heard. Ms. Jules looked serious, and she had been so nice. I felt bad doubting her. What was the harm in listening to her? I was normally sleeping at that time anyway and she said Cow was safe. If she was- if they all were- being honest, I didn't want to find out. I would just stay inside and not go looking. 
+Cold sweat. Cold sweat everywhere. I woke up and I was cold and wet until I wasn't because there was warm, dry fur sticking onto the sweat on my forehead. I laughed a startled laugh as I hugged Mia tighter. I didn't know what had just happened. Maybe it was a premonition or maybe it was just my period-craving dinner of cheesy chicken risotto disagreeing with me. But either way, I knew subconsciously that staying in that dream wouldn't have done me any good. 
 
-Cow decided he was ready for bed and I followed. It had been a long day. I fell asleep hard and didn't wake up until sunlight was streaming through my window, Cow crying to be fed. I dragged myself out of bed as my thoughts drifted to the previous night. Maybe there was nothing. I hadn't woken up at all, and Cow was acting normally. He was fine anywhere as long as he was getting food. I got him fed and looked out my front window. Ms. Jules was sitting on the bench, glancing back at my house. I got dressed and headed out to see her. 
+I raised my hand and saw blood. I nearly screamed. I nearly screamed until I felt more blood trickle down my thighs and remembered that I was on my period. And I swore that I'd taken every precaution to stop a leak but somehow the bood was trickling down my thigh. And so, like any sane young woman who had just gotten the night terror to end all night terrors, I slept again. Knowing that I would regret it in the morning and dreading the amount of time and hydrogen peroxide I'd need to wash my sheets.
 
-"Oh good. How was your first night?" She stood up and took my hand. 
+ *It is morning in my grandparents' village. My grandmother pulled a veil over her hair and face as she bowed to the shrine of the ancestors and the shrine of Maa Parvati, the mother goddess. My mother drove out every week to visit the shrine of the goddess of fertility, the goddess of strength, the goddess of wealth, and so on. And finally, she held a prayer for the goddess of sacrifice, Sati. The Goddess who had killed herself in myth, who had inspired a horrific, now-banned ritual of burning widows alive in my country.*
 
-"Slept like a log. I didn't wake up until Cow demanded breakfast."
+I woke up in the morning and groaned as the sun rays fell directly in my eyes and I felt the cat fur stick to my still-sweaty forehead. And for what must have been the first time in my life, I remembered my dreams vividly despite them not being nightmares. I had not thought of the goddess of the nine forms in a decade. 
 
-She nodded. "I'm sorry I had to spring that on you last night, but it really has to be done right way." 
+Parvati, the wife of the Indian god Lord Shiva, the mythological god of destruction and death. She was rumored to be his other half, an Eve of sorts, fashioned by him to rule alongside him. She was a shape-shifter and tasked with maintaining balance in the worlds. And popular myth displayed her as the diety who took on the form of the nine goddesses who defeated the demons from the other realm during the festival of Navratri. I remembered my grandmother's lessons as I lay in bed recalling names I'd long forgotten how to pronounce.
 
-A few people started their mornings, smiling or nodding to us. They all looked a little relieved. "So, it really is true then? I'll be honest, I was half thinking I dreamt that."
+*Chandraghanta, Skandamata, Kushmanda.* The warrior goddesses. They were the ones I'd idolised as a young girl, the fearless demon-slayers who wouldn't have been out of place in one of my animes. 
 
-"Unfortunately, yes. It's how I lost my husband and our son. I didn't want to scare you too much last night. I don't have to tell you the details."
+And with a triumphant cheer at having retained those names after all the years, I thought of more.*Mahagauri, Siddhidhatri, Brahmacharini, Katyayani.* They represented sacrifice and youth and chastity. They were the 'safe' goddesses. The ones I was told to worship.
 
-I stared blankly for a few seconds. "I'm so sorry."
+My stomach jolted. 
 
-"It's okay, honey. It's been a long time. It's just a little bit easier than it used to be. I know they wouldn't want me to spend every day sad over them."
+I froze.
 
-"Can I ask what happened? What happens if you look?" I asked, wincing a little and hoping I didn't sound too insensitive. 
+I was no stranger to suddenly getting cramps midway through my period, but this was not just a cramp. It felt like a tug. It felt like a pull.
 
-"Are you sure?"
+*Shailaputri.* I spoke involuntarily. And as I did, my heart jolted to a stop and began to beat twenty times faster. Shailaputri was *Sati.* She was sacrifice. I knew I'd just done something wrong. *Think. THINK.* THINK.
 
-I thought another moment. "I would rather know than let the curiosity get to me."
+Shit. Fuck. *Fucking Hell.* 
 
-She sat back down. "We had heard the rules when we moved in together right out of school, my husband Charles and me. People had doubts about us but we were meant to be from the day we met. When our son Joe was born, we decided we would lock him in his room for the night. We gave him the one without windows to be safe. Joe was getting a little older and we hadn't locked his room at night anymore. I guess one day he got curious or didn't believe us. We heard a scream and ran to his room. Joe wasn't there. Before I could react, Charles pushed me in and locked the door. I heard him run out and then just silence. The neighbors saw what happened in the morning and rushed to the house. They found me lock inside. There... there was really nothing left of them. Chunks strewn across the lawn, everywhere. Blood soaked into the grass. They were buried together, just pieces. There was no way to tell who was who. That's all any of us know."
+The goddess Shailaputri wore white. She wore anklets. She veiled her face in widow's veils. 
 
-"Holy shit," I whispered. I could feel the bile heating up my stomach, threatening to come up my throat. "I'm so sorry. I don't know what else to say."
+*"Your mother evaded me."* 
 
-"I'll never get the sight out of my mind, so I try hard to make sure it doesn't happen to anyone else. You really will be okay if you don't look. I should go tend to my Emily."
+She was standing in front of me. And she did not look happy. I could see her eyes senses at me from beneath her veils. Her fists were clenched and I could see red dripping out the corner. She was not tall. She stood several inches below me. But I remembered vividly that this was the goddess who had burnt herself to death over her husband's honor. She was *dangerous*. And I was in danger. I had been in danger ever since she had come to claim my mother all those years ago. And I was in danger when I'd touched that ash-filled saucepan. That saucepan had held a vengeful and burning spirit who had chosen me after my mother bested her. She had chosen me to bear the suffering that so many widows over the centuries had borne due to her choices.
 
-I walked her home and gave her a hug. I went back inside and collapsed against the door. Cow came to see what was wrong, and I scooped him up and cried. What the fuck. How was this real? I told myself again that that was the middle of the night. Just stay asleep, stay in bed. My house was perfect; my neighbors were lovely. Just don't look for any sounds at night. 
+I wondered what burning alive felt like. I wondered if I could cheat it.
 
-I spent the rest of the day in a daze, listlessly organizing my belongings. Cow screamed at me, and I just about jumped out of my skin. He just wanted dinner. Heart pounding and hands shaking, I got him taken care of to stop his yelling. I sat at the table and slid the bottle of whiskey over towards me. Just as I was going to take swig out of the bottle, there was a knock at the door. I was tired but got up to check. There was a swath of black hair. It was Kayla. 
+I prayed for any saviour. Anyone. But no one came. I prayed again, I prayed for my mother. I prayed for Jaya Ma's spirit. I prayed for grandma to come and save me, but nobody did. 
 
-"Hi. Ms. Jules said she talked to you. I wanted to see how you were holding up." She smiled weakly at me.
+She reached for me. I expected scalding burns. I expected hellfire. 
 
-I stood to the side. "Do you want to come in? I was just going to have a drink." 
+I saw a supernova of light instead. Just like in that dream. And then suddenly I was not myself anymore. I was in the year 1960 and I heard a strange figure call me my grandmother's name. And I was my grandmother as she fought for the right to go to school in an age where female children in small towns seldom did. And then I was nineteen and I was crying as I wore an intricate red saree and said my vows to a stranger who told my father that he'd treat me well. And I was at my husband's house and my mother-in-law was telling me that my face was too tempting. She instructed me to never step out of the house without a veil over my face. I was told I was sinful. I was told to only speak when I was spoken to and speak to naught but my husband. And I was being forced down and I was a mother and my son, my darling son, was born sickly. And I nearly lost him and I had a daughter. And she was my world but suddenly I was not myself anymore.
 
-She stepped. "Thanks."
+I blinked. I was in the void again, long having left my grandmother's being.
 
-Now that I had company, I grabbed two glasses and a couple cans of Coke. "I guess you would have heard her story too. How long have you lived here?" I inquired. 
+And then I was a child again. I was a young girl with big dreams and an even bigger voice in that same little town. And I grew up to hate my mother because she loved my dying brother more. And my father was my world and I was his little princess and he wanted me to become a doctor in an age where women rarely did so. And I was grown and I didn't become a doctor but I did get a college degree and my papa was proud of me still. And I met a man from the city who gave me the world but when I followed him to the city I realized that it wasn't what it seemed like. And he screamed at me every night and punched the walls and I cried myself to sleep and covered bruised with green cream and compact powder every morning. And I had a daughter and she was the only one who loved me. 
 
-"Yeah... Just a bit over a year."
+I was in the void again. And then I was myself.
 
-"Have you seen anything?"
+I was *me*. Not my grandma or my mama. And I was a child wondering why daddy screamed all day and I was a teenager crying myself to sleep and it hurt. *It hurt so bad.* And I was eight years old and I'd just gotten my period earlier than I was supposed to and *it was mere days after I saw those ashes.* I blinked awake and saw the woman in white's hands on mine and everything hurt. My hips were on fire and I was kneeling from period cramps. The pain that had haunted me since I was eight, the pain that no doctors could diagnose and no painkillers could fully cure hitting me at full force and I could feel my vision dulling as I tried to stare at the woman in white.
 
-"No, I've never dared look. No one else has looked since I've been here. The people who lived here before finally heard the noises and they left. She was pregnant. I think that's a big reason they didn't want to stay."
+"You." I breathed. "It was you all along! *You* gave me endless pain and a body I hated by the time I was ten! *You* made me cry myself to sleep for a week every month for the last fifteen years! I can't believe it was all you!"
 
-"So, you have heard things?"
+"You must suffer." she said. Eyes piercing into mine and hands gripping me tight. "You must suffer. You must suffer for *his* honour. You must suffer, for balance -"
 
-"Not a lot. I started sleeping with earbuds pretty quickly. I didn't need to hear more."
+*"AAAAAAAHHHHHH!"*
 
-I looked at her, hoping she would go on but didn't want to pressure her. 
+Well both looked up at the piercing shriek. Followed by my cat, my little baby, mercifully unharmed by the woman in white, jumping into my lap. The woman in white was frozen in shock and let my hands go as Mia attempted to climb over my shoulders. And I heard a rustling. A very familiar rustling. I'd heard that rustling countless times in the past few days. I'd dismissed it initially and then I'd thought it was the woman in white, the woman who had made my grandmothers before me suffer, the woman who had ruined my life. 
 
-She continued, "the first time I just heard something walking around. It was quiet but I could hear it rustling leaves at it went. I told myself it had just been an animal. We do live against the woods. A couple nights later, I heard it walking again. I had blinds drawn but I still didn't even want to look in that direction. I tried to ignore it and go back to sleep. The movement stopped. I heard the faintest scratch then knocking on the window. Like someone tapping with just a fingernail. I found some faint footprints in the morning." She paused to take a drink. "They were bigger than I expected. They... they almost looked like a deer mixed with a human. Almost like there was a heel but then they turned cloven. I moved my bed upstairs that day and started sleeping with the earbuds that night. It helps. I really recommend it. Thanks for the drink," she said finishing it. I should go get settled for the night. And let me know when you've had time to unpack and we can do some hiking, during the day."
+But now, I knew it was a protector. "Kalaratri!" I whisper-screamed. 
 
-"Of course. And thanks for the tip."
+I heard the creaking of bones and the stench of blood filled my room. But I was not scared. It was ironic, really, how Kalaratri was portrayed as the demon-goddess in the myths of the nine goddesses. The blue-skinned goddess with ten arms, holding weapons and blood and dressed in tiger skins, wearing a necklace of skulls over a bare chest with her matter hair flowing in a halo around her. And she looked furious too, but I had an inkling that she would not harm me. 
 
-The next couple weeks I continued to put everything in their new places and started my new job. I was getting the hang of it. Things started to feel a little normal. Kayla and I had started hiking on Saturday or Sunday mornings, still well after the sun had risen. I hadn't heard anything at night. I never forgot to close the blinds, but I did start to forget about the noises. Nearly a month after I moved in, I heard walking through neighborhood. I had seen deer a couple times, coming around dusk to drink at a couple birdbaths around the street. They were back, that's all it was. Still, I was glad I listened to Kayla's story and put my bedroom on the second floor. I about shit myself when I heard the tapping on my window. I whisper-called for Cow. He sat up from the end of the bed. My heart sank into my stomach. The tapping continued. I reached for my phone. It was after 2:45. This should be over soon. I didn't want to disturb him, but I felt like I had to talk to someone. My hands were shaking so badly I had to retype the message about four times. *Hi Dave. Sorry to bother you so early. I just can't sleep.* 
+She extended a finger towards me. It was leathery and pointed and rough, but I did not flinch. "You have suffered enough." 
 
-I jumped as the tapping started to get more aggressive. My phone went off: *It's no problem. Don't worry. It'll be over soon. Just a few minutes and then it's over for the night. It's never gotten in. Just don't look. Let me know if you need me to come over after or tomorrow.* 
+Mia purred. The goddess looked at me and gave a faint smile. "Your mother was much more terrified of me."
 
-2:55, so close. *Okay. Five minutes. I can do that. Thank you. I think I'll get shades. The blinds aren't good enough.* 
+"I - you saved her too?" I blinked. "But there's no ash ritual here -"
 
-Dave: *That's a good idea. Tell Cow hi for me.*
+"No ritual would save you." she intoned, in a voice that sent chillds down my throat. "The more you rebel, the more Shailaputri finds you."
 
-I sat for another couple minutes and then the tapping stopped all at once. There was no rustling of something moving away, just silence. I pulled a slightly disgruntled Cow up closer to me. Anxiety through the roof, I didn't sleep the rest of the night. 
+I gulped.
 
-Dave caught me in the morning. "You did well. That was worse than it normally is. I could hear it from mine. Let me know if you need help with the blinds." He waved and was on his way before I could respond. He liked talking about these things even less than the others. Couldn't blame him. I stopped to get blinds after work and didn't forget to put my earbuds in again. 
+"But the more you endure, the more I find you." she smiled faintly again. "Resilience, sacrifice, they are two sides of a coin. You have borne so much. You have pained so much. She has followed you but you fought her long enough to let me reach you. You are a survivor, child."
 
-Things continued as they had. Work, hike, play with Cow. I was making enough at my new job to be fine, but I had spent most of my savings to suddenly move. I stopped at the local bar and started taking some shifts Friday nights, Saturdays, or Sundays. This was a smaller town so even with a later shift, I still had about half an hour by the time I got home to get inside safely.  I was busy and tired, but it would be worth it. I would feel better having savings again. But I was just getting so tired.
+"I-"
 
-Finally, last Friday night, I was exhausted. That type of bone-tired that sinks into your bones, so drained that a minor inconvenience could make you start crying. I worked every day for three weeks. I got home after my bar shift, 12:35. All I had to do was drag my tired butt in the house and pass out for the night. 
+"I also like cats. I rode one when I was the patron goddess of fertility." she laughed breathily as she dissapeared. Mia screamed in goodbye.
 
-The next thing I remember is how uncomfortable I felt. My eyes snapped open. Fuck. I fell asleep. How long had it been? I had only just got home, right? I was in my own driveway, with plenty of time to get in. I looked at my phone, 2:24. Fuck me. 
+In front of me, I could see the woman in white crumbling to ashes as the pain in my abdomen dulled and for the first time in fifteen years, I could not feel anything but the trickle of blood as my periods stopped hurting.
 
-I heard something right by me. Before I could stop myself, I was looking over. All I saw were fingertips, just barely placed onto my driver's side window. The rest of the hand was obscured by the door. Then there was movement. What seemed to be branches started to move. They were turning towards my car. One gnarled point making contact with my window and scraping along it. I slammed my eyes shut. One hand desperately pulled my hood over my head, and the other covered my mouth, willing my breathing to get under control and not have a full blown panic attack right now. I hadn't really seen anything, right? 
+That night, I vowed that I would only ever have sons. The curse of the Goddess of Sacrifices ended with me. And I held Mia tighter to my chest as I woke up to a new day and wondered where I'd put that Hydrogen Peroxide solution.
 
-It didn't see me look. All I saw was fingertips. It could have been a normal person who got lost and ended up here. After all, the noises didn't come every night. Those weren't antlers. It was a trick of the darkness. Then what made the shrill scraping coming from right outside? And those were fingertips, but they were too long and rough. Worn and cracked and dirty. I curled in my seat, trying not scream, eyes squeezed shut. Antlers like bark but hard enough to damage the metal burned into my mind. A slap. I bit into my lip hard enough to bleed but didn't scream. It sounded like a hand slamming into my door, beside the other fingertips.  I could hear heavy breathing. My chest ached. It felt like my heart would give out before anything else had a chance to happen. 
+I had a new life now. And I had the scariest goddess of them all to thank for it.
 
-My stomach lurched as my car rocked, hard. Tears and snot soaked my hoodie. Another slam on the car and it rocked again. It felt like if it hit any harder, the glass would break. What were the rules here? Could it get in? It really seemed to be trying. A different slam echoed through my bones. The sick sound was like a head against glass, antlers scratching on the metal frame above. It slammed its head again. There was nothing I could do. Again. It wasn't in yet and I figured by best bet was to stay down and keep my eyes shut. Again. 
-
-The car rocked, gentler this time, and the slamming stopped. I couldn't open my eyes. I didn't think it was long enough. It couldn't be 3:00 yet but it was so hard to tell. Minutes felt like hours. Time dripping by like cold molasses. How long had it stopped to stare in at my before it's assault? I could hear it walking around, pacing around the car. It started to fade out. 
-
-Then I heard hooves on pavement. Metal squealed and glass cracked. I screamed. Dead silence. I continued to lay curled on my side. Nothing more came. 
-
-I heard Ms. Jules calling me and running. I still didn't dare open my eyes. It took a few minutes of convincing, but I finally held my phone up and looked, 3:12. I started uncontrollably sobbing. Fear and relief wracked my body, and I laid there shaking badly, stomach in knots. I was eventually able to unlock my door. Ms. Jules ripped it open and held me in her arms. We cried together. 
-
-That was nearly a month ago. I thought I'd leave that day, but I'm still here. Where else would I go? I have kind, caring neighbors. My home is nice. I talk with Ms. Jules. Dave checks in on me. I hike with Kayla. I hold Cow close. I did quit working at the bar that day. I'll never go out at night again. I sleep with ear buds and a white noise machine. My bedroom windows are shuttered tight from the inside as soon as it starts to get dark.  
+And sometimes when I sleep at nigjt, I hear the thudding of the skulls of her necklace and see the stench of blood, followed by my cat chasing the sounds and a laugh that makes me feel lighthearted once again. It is the laugh of a saviour. 
