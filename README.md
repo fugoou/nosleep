@@ -1,126 +1,130 @@
-# I Hear The Thudding Of Her Necklace Of Skulls Every Night.
-I grew up in India, a land rife with superstitions and rituals. 
+# Avoid Letting Strangers Use Your Phone, You Might Get More Than Scam Calls
+There isn't anything I can do to convince anyone that what I'm about to tell you is real. In all honesty, if I hadn't experienced this mind-fuck of a situation for myself, I wouldn't believe it either. Anyways, what the hell, for the sake of argument just humor me, and let's just dive into this unbelievable, fucked up story.
 
-I grew up in India, and yet I never believed in the myths and tales. I was a skeptic. A young theatre kid who was the product of one of my country's many growing metropolises, who was raised by 2010's YouTube and a few very indulging art teachers. And I soon grew into a young woman who was Indian in a foreign land, a college student armed with nothing but a European Visa and a backpack, hustling to fit into a strange foreign land.
+I'd grown accustomed to walking back and forth to work, I'd done so for several years. My job was only a couple of miles from my apartment, and it allowed me to sort of get lost in whatever creepy stories I listened to through my earbuds. Plus it made it all the more effective being that it was in the dead of night.
 
-Like I said, I did not believe in rituals. I never attempted to believe in rituals. 
+One particular night I ended up staying later than usual, and didn't end up leaving the store until after 2 a.m. I commenced my usual routine, picking whatever scary story caught my attention and carried on my way. The neighborhood I lived in was definitely not ideal for being on foot in the dead of night, but I was always cautious and only kept one earbud in, so I could hear my surroundings.
 
-It is 2025. I'm a grown woman now. I live alone. 
+The trip home was like any other typical night. I saw the occasional night wanderers, heard a few gunshots in the distance, and saw the ever-popular random homeless man riding a bike that was clearly stolen from a twelve-year-old. I decided to stop at the convenience store for a drink, and when I came out I noticed a disheveled-looking man posted up by the door.
 
-I was swamped in deadlines and on the first day of my period. My genitalia was throbbing and sending jolts of pain up my spine. My uterus was contracting and convulsing in white hot pain. And it wasn't anything new - it happened every month, I was used to it. But I still missed my mother and my grandmother. 
+If it wasn't for the fact that it looked like he hadn't slept in days, the condition of his clothes, and the look of despair on his face, he would have otherwise seemed like a normal guy. His eyes followed me as I passed him, looking like he was contemplating saying something. I immediately averted my eyes, hoping he wasn't about to ask for money. Luckily he said nothing.
 
-It was perhaps due to a strange nostalgia for home that I found myself remembering my mother's stories. My mama had always been a devout woman. She had claimed to see spirits in her dreams when I was a child. I vividly remember a specific event from when I was eight. Mama hadn't been herself after my younger brother was born. I suppose a psychologist would have called it Post-Partum Depression, but 2000's India didn't really have psychologists or psychiatrists. Instead, they had mediums. One such medium was our cleaning lady. 
+I rounded the corner to the side street that lead to my apartment and had just gotten about halfway when someone tapped me on the shoulder. I spun around completely startled, and jumped back defensively.
 
-It had been a sunny weekend. I had just returned from school and I'd seen mama talk to the walls. I'd asked her what she was doing, and she had asked me if I'd seen a woman in a white saree sprint towards me, screaming. I'd declined even as my mother's protests got more frantic. And finally, the cleaning lady, Jaya Ma, had rushed to stand between mama and I with a hot saucepan full of salt and ash in her right hand. She had waved the saucepan in rhythmic motion around mama's head. And slowly, mama had returned to normal while Jaya Ma had screamed like a feral wolf as she ran to throw away the burning remains of the salt mixture.
+The man put his hands up in a surrendering manner, it was the same man from the store. I took the earbud out. "Can I help you?" I asked, a little more aggressively than I'd intended to.
 
-They had told me to stay far away from that salt mixture until the garbagemen took it away. But it was the early 2000's and ghost movies were all the rage and I was a kid, and so I'd snuck out to see the clumps in the middle of the night.
+"I'm - I'm sorry sir, I - I didn't mean to sneak up on you like that, I was on my way home and my car broke down, plus my phone is dead. I was wondering if I could use your phone. I just need to call a friend to come get me. The cashier at the store refused to let me use his. It'll only take a second I promise. "
 
-They were shaped like a young woman in mid-scream. 
+"Alright." I reluctantly unlocked my phone and handed it to him. He hesitated for a moment, looking up at me, still wearing an expression of gloom. I almost expected him to bolt, but finally, he dialed a number and put the phone to his ear. He just stared at me as he waited for someone to answer. After a few moments, his expression seemed to turn even more distressed.
 
-I saw her in my dreams for years until I started high school and decided that I was too cool to be scared of what could only have been a neurotic breakdown on mama's part. And sometime in high school I also chalked up the figure in the ashes to a trick of the eye. 
+Then to my confusion, he simply ended the call, handed the phone back, gave me one last anguished look, and walked in the opposite direction. I stood there for a moment, in a state of utter confusion. I waited until he was far enough away before turning back around.
 
-And suddenly I was back in my apartment in Belgium, wondering why I was thinking of what had to be a skewed childhood memory. I laughed it off. I went out to dinner and went to classes the next day.
+Once I got home I turned the tv on, relaxed on the couch, and answered a few messages from family and friends. After a brief conversation with my girlfriend, I turned on the tv. Curiosity got the better of me and I looked at my call history. The number the stranger dialed had a completely foreign area code. I hit the call button, it rang twice and went silent.
 
-It was evening the next day, I was sitting on my couch, the cramps that I had suffered through all day the previous day having dulled into a throbbing pain in my abdomen and a hell lot of fatigue. And just as I wondered if I should take another painkiller to be able to go out gorcery shopping without collapsing on the streets or something, I heard a rustling near my door. I froze.
+I waited for a few moments before deciding to hang up. Just as I was about to hit the end button, my ears were invaded by a deafening, distorted screech.
 
-*Meow.*
+After the phone cut off I, just sat starting at the screen momentarily, a little off-put by the events of the night. I shook my head, figuring that whatever number the man called was out of service, although, I'd never heard that sound before. Of course, when calling certain inactive numbers you might hear a high-pitched whine, but this was very different, like a scream, almost animalistic in nature. I set the phone down and was about to channel surf when my phone rang. It was an unknown number.
 
-I sighed in relief. It was my kitten, Mia. "You terrified me, baby!" I cried as I beckoned her over and groaned as I saw that she had left claw marks on my wallpaper.
+"Hello?" I said. About 4 seconds passed before a voice answered. "Hello?" he responded.
 
-*Meow.*
+"Yes?" I said. " Yes? " He repeated back. The man's voice was faint at first.
 
-She scratched at my jeans and looked at me with eyes so slitted they were almost unnerving. Now, I found this a bit weird. Mia had never been very vocal or aggressive or prone to getting scared, especially since I'd gotten her neutered recently. But I wasn't too worried. After all, she was a cat. Cats acted weird all the time. I still remembered the time she'd freaked out because of a dead dragonfly on the windowpane. 
+"Can I help you?" I asked. Again he mimicked me. "Can I... I help you?"
 
-"Do you want mama to give you a kiss?" I said in the baby voice that I hoped no one except Mia ever heard for the sake of my reputation in the office. I scooped her up and pressed a kiss onto her tufty orange fur. She stopped meowing and I relaxed, so much that I barely noticed a breeze blowing past me as I spoke. 
+Normally I'd have hung up by then, but his voice was strange. Initially, I thought it was an echo of my voice, except even though the cadence was the same, the tone was different.
 
-*Probably just hungry again.* I thought to myself as I stood up to get some canned fish for Mia and a coffee and a painkiller for myself. 
+"Who is this," I demanded. He once again repeated my words. " Who is this... Thi- this? "
 
-I paid no mind when I heard her hiss behind me as I walked to the kitchen island. *It's probably a bird at the window again.* I told myself. Although this time I hoped that there wasn't anything actually wrong with my cat. Who knew with all the horror stories about randomly triggered rabies or FIV virus you heard on the internet?  
+His voice was changing, sounding more like my own, only distorted, certain words were repeated with letters being drawn out unnaturally. It sounded as though every time it mimicked me there was an echo from his side that seemed to morph into different tones.
 
-Looking back, I should have paid mind.
+Then I noticed some other sounds from his end. It was hard to discern but it sounded like... Crying. The faint sound of several voices all sobbing uncontrollably. I hung up abruptly, admittedly a little creeped out.
 
-That night, I dreamed of *her* again. The woman I saw in that ratty saucepan in the dumpster. Her eyes were vacant and her scream guttural. And it was loud. Really LOUD. I looked at her and she seemed to look right through me even with no eyes. And then, the ashes crumbled. It crumbled and suddenly I was drowning in it. And maybe I was the ash woman or the ash woman was me. Because I was running for my life and I was wearing anklets that thrummed chaotically while I ran and I was dressed in white and the front of my saree was draped over my face and I couldn't see. 
+I chalked it up to some sort of prank call. Despite the whole strange night I stretched out and went to sleep on the couch. I woke up the next morning and started the day just like any other. As I was just about to call my girlfriend, my phone rang. It was an unknown number.
 
-*MEOW.*
+Without hesitating I answered. "Hello? May I ask who's calling?" There was no response at first, all I could hear faint, garbled gibberish. I couldn't discern any comprehensive words out of the distorted mutterings, it sounded like reverse-speech. It was very unsettling.
 
-Cold sweat. Cold sweat everywhere. I woke up and I was cold and wet until I wasn't because there was warm, dry fur sticking onto the sweat on my forehead. I laughed a startled laugh as I hugged Mia tighter. I didn't know what had just happened. Maybe it was a premonition or maybe it was just my period-craving dinner of cheesy chicken risotto disagreeing with me. But either way, I knew subconsciously that staying in that dream wouldn't have done me any good. 
+"Who the fuck is this?" I demanded. The muttering stopped, and what followed was yet another distorted mimicry of my voice, repeating the words back to me. "Who the fuck is this?". It was unmistakably my voice, only It just didn't sound natural. Some words were drawn out and certain syllables exaggerated just like before, as if attempting to learn how I talk.
 
-I raised my hand and saw blood. I nearly screamed. I nearly screamed until I felt more blood trickle down my thighs and remembered that I was on my period. And I swore that I'd taken every precaution to stop a leak but somehow the bood was trickling down my thigh. And so, like any sane young woman who had just gotten the night terror to end all night terrors, I slept again. Knowing that I would regret it in the morning and dreading the amount of time and hydrogen peroxide I'd need to wash my sheets.
+"What do you want?!" I shouted. The distorted reverse speech started again for a moment. "This..." The voice paused. " Want... You. " It responded. Each word was taken from my side of the conversation, as if using my voice, but rearranging the words to form a different sentence.
 
- *It is morning in my grandparents' village. My grandmother pulled a veil over her hair and face as she bowed to the shrine of the ancestors and the shrine of Maa Parvati, the mother goddess. My mother drove out every week to visit the shrine of the goddess of fertility, the goddess of strength, the goddess of wealth, and so on. And finally, she held a prayer for the goddess of sacrifice, Sati. The Goddess who had killed herself in myth, who had inspired a horrific, now-banned ritual of burning widows alive in my country.*
+I was officially freaked the fuck out as I hung up the phone. The whole situation was getting to me in a way I couldn't explain. I needed to get out of there and clear my head, so I called up my closest friend, Rob,  to go have a few drinks and shoot some pool. I tried to get my girlfriend to go, but she had to work. Twenty or so minutes into the game he noticed I was a little preoccupied.
 
-I woke up in the morning and groaned as the sun rays fell directly in my eyes and I felt the cat fur stick to my still-sweaty forehead. And for what must have been the first time in my life, I remembered my dreams vividly despite them not being nightmares. I had not thought of the goddess of the nine forms in a decade. 
+"Alright, spill it." He said. I gave him a questioning look. "Huh?"
 
-Parvati, the wife of the Indian god Lord Shiva, the mythological god of destruction and death. She was rumored to be his other half, an Eve of sorts, fashioned by him to rule alongside him. She was a shape-shifter and tasked with maintaining balance in the worlds. And popular myth displayed her as the diety who took on the form of the nine goddesses who defeated the demons from the other realm during the festival of Navratri. I remembered my grandmother's lessons as I lay in bed recalling names I'd long forgotten how to pronounce.
+"What's bothering you? You and your woman fighting?" he asked.
 
-*Chandraghanta, Skandamata, Kushmanda.* The warrior goddesses. They were the ones I'd idolised as a young girl, the fearless demon-slayers who wouldn't have been out of place in one of my animes. 
+I shook my head. "Nah, just some weird shit happened," I told him the whole story, beginning with the guy who used my phone.
 
-And with a triumphant cheer at having retained those names after all the years, I thought of more.*Mahagauri, Siddhidhatri, Brahmacharini, Katyayani.* They represented sacrifice and youth and chastity. They were the 'safe' goddesses. The ones I was told to worship.
+He laughed, agreeing that It was creepy, but reassured me that It was most likely a prank, joking that it could be a secret admirer. I felt a little more at ease, and the rest of the night went without incident. After a few games and some drinks, I decided to go home for the night.
 
-My stomach jolted. 
+"I'm dead tired man, and I can't miss work tomorrow. Plus I gotta run you home before your woman kills you." I said as he tried to persuade me to stay.
 
-I froze.
+When I'd gotten home and settled in I'd almost forgotten about the whole thing from that morning, then my phone rang. Unknown number. I stared for several seconds until reluctantly answering. I didn't say anything, I just listened.
 
-I was no stranger to suddenly getting cramps midway through my period, but this was not just a cramp. It felt like a tug. It felt like a pull.
+The strange reverse speech started and slowly got louder. It sounded like there were several voices, all of them unnatural, and speaking unintelligible ramblings.
 
-*Shailaputri.* I spoke involuntarily. And as I did, my heart jolted to a stop and began to beat twenty times faster. Shailaputri was *Sati.* She was sacrifice. I knew I'd just done something wrong. *Think. THINK.* THINK.
+Then as it rose in volume, It faded into the same voice as before. My voice.
 
-Shit. Fuck. *Fucking Hell.* 
+"Nah, just some weird shit happened." It said. "I'm dead tired man... M- maaa- man. I gotta run... Rrrrrrun you home... Home." I couldn't muster the nerve to say a word as It continued. "Before your... Woman ki-kills... Kills you...Kills... Dead."
 
-The goddess Shailaputri wore white. She wore anklets. She veiled her face in widow's veils. 
+I couldn't believe my ears, I was hearing words that were spoken by me, but in a manner that was far from anything normal. The words lingered and almost seemed to merge into one another.
 
-*"Your mother evaded me."* 
+There was a pause. My heart was beating erratically, and my hands were shaking. Then it formed a sentence that made my blood turn cold, utilizing words from the previous calls, and somehow from words I'd spoken at the pool hall. In the same distorted version of my voice... "I want- kills... I want you... Dead... I want you dead. You can't run."
 
-She was standing in front of me. And she did not look happy. I could see her eyes senses at me from beneath her veils. Her fists were clenched and I could see red dripping out the corner. She was not tall. She stood several inches below me. But I remembered vividly that this was the goddess who had burnt herself to death over her husband's honor. She was *dangerous*. And I was in danger. I had been in danger ever since she had come to claim my mother all those years ago. And I was in danger when I'd touched that ash-filled saucepan. That saucepan had held a vengeful and burning spirit who had chosen me after my mother bested her. She had chosen me to bear the suffering that so many widows over the centuries had borne due to her choices.
+I hung up abruptly, dropping the phone onto the floor. I couldn't begin to fathom what this was, or why It was happening to me. I didn't have long to gather my thoughts before there was yet another call from the unknown number. I didn't answer, I turned my phone on silent and went to bed. The whole situation was just insane and I was officially disturbed.
 
-I wondered what burning alive felt like. I wondered if I could cheat it.
+The next morning I woke up a little later than usual. I was hesitant to even look at my phone for fear of the inevitable. After gathering my nerve, I reluctantly checked the notifications, and just as I'd expected. 30 missed calls from an unknown number. I had to talk to someone, so I called my girlfriend, hoping someone could give me some sort of perspective on the whole situation.
 
-I prayed for any saviour. Anyone. But no one came. I prayed again, I prayed for my mother. I prayed for Jaya Ma's spirit. I prayed for grandma to come and save me, but nobody did. 
+It rang twice before going to voicemail. I waited a few minutes and tried again, and again there was no answer. I was confused, she normally answers when I call her, and she's never hit the fuck-you button on me. Just as I was about to call again I received a text from her. "Fuck off." It read. I was puzzled, to say the least.
 
-She reached for me. I expected scalding burns. I expected hellfire. 
+"What? What the hell is wrong?" I responded.
 
-I saw a supernova of light instead. Just like in that dream. And then suddenly I was not myself anymore. I was in the year 1960 and I heard a strange figure call me my grandmother's name. And I was my grandmother as she fought for the right to go to school in an age where female children in small towns seldom did. And then I was nineteen and I was crying as I wore an intricate red saree and said my vows to a stranger who told my father that he'd treat me well. And I was at my husband's house and my mother-in-law was telling me that my face was too tempting. She instructed me to never step out of the house without a veil over my face. I was told I was sinful. I was told to only speak when I was spoken to and speak to naught but my husband. And I was being forced down and I was a mother and my son, my darling son, was born sickly. And I nearly lost him and I had a daughter. And she was my world but suddenly I was not myself anymore.
+"You call me at 3 a.m. and say the shit you said and ask me what is wrong?!? You and your new bitch can go fuck yourselves." She texted back.
 
-I blinked. I was in the void again, long having left my grandmother's being.
+I was in disbelief. I called several times to no avail, growing more and more anxious by the minute. After what seemed like a dozen calls she finally picked up.
 
-And then I was a child again. I was a young girl with big dreams and an even bigger voice in that same little town. And I grew up to hate my mother because she loved my dying brother more. And my father was my world and I was his little princess and he wanted me to become a doctor in an age where women rarely did so. And I was grown and I didn't become a doctor but I did get a college degree and my papa was proud of me still. And I met a man from the city who gave me the world but when I followed him to the city I realized that it wasn't what it seemed like. And he screamed at me every night and punched the walls and I cried myself to sleep and covered bruised with green cream and compact powder every morning. And I had a daughter and she was the only one who loved me. 
+"What?!" She demanded harshly. "Look, I don't know who called you, or what you're even talking about, but it wasn't me." I said.
 
-I was in the void again. And then I was myself.
+"Don't try to fucking change your story now." She responded. "I didn't-" I tried to answer but I was cut off.
 
-I was *me*. Not my grandma or my mama. And I was a child wondering why daddy screamed all day and I was a teenager crying myself to sleep and it hurt. *It hurt so bad.* And I was eight years old and I'd just gotten my period earlier than I was supposed to and *it was mere days after I saw those ashes.* I blinked awake and saw the woman in white's hands on mine and everything hurt. My hips were on fire and I was kneeling from period cramps. The pain that had haunted me since I was eight, the pain that no doctors could diagnose and no painkillers could fully cure hitting me at full force and I could feel my vision dulling as I tried to stare at the woman in white.
+"Whatever you're playing at, you can't take back what you did just because you regret admitting what you did." She said, her voice quivering.
 
-"You." I breathed. "It was you all along! *You* gave me endless pain and a body I hated by the time I was ten! *You* made me cry myself to sleep for a week every month for the last fifteen years! I can't believe it was all you!"
+I was flabbergasted. She went on to tell me that I called and told her that I'd been cheating on her for the entire duration of our relationship. As much as I tried to plead with her and convince her that someone else had called her impersonating me, she wouldn't budge, saying that not only was it from my number, and sounded like me, but also that things were said that only I would know.
 
-"You must suffer." she said. Eyes piercing into mine and hands gripping me tight. "You must suffer. You must suffer for *his* honour. You must suffer, for balance -"
+After she hung up on me again I looked at my call history, and sure enough, at exactly 3 a.m. There was an outgoing call to her number, and the call duration was 23 minutes. I didn't know whether to be even more terrified, or furious. Then out of nowhere, I was interrupted by a call, and of course, It was an unknown number. I answered and put the phone to my ear. The same garbled, distorted rambling broke the silence before morphing into intelligible speech.
 
-*"AAAAAAAHHHHHH!"*
+"Baby listen." It started. The voice was unmistakably mine.
 
-Well both looked up at the piercing shriek. Followed by my cat, my little baby, mercifully unharmed by the woman in white, jumping into my lap. The woman in white was frozen in shock and let my hands go as Mia attempted to climb over my shoulders. And I heard a rustling. A very familiar rustling. I'd heard that rustling countless times in the past few days. I'd dismissed it initially and then I'd thought it was the woman in white, the woman who had made my grandmothers before me suffer, the woman who had ruined my life. 
+"I have something to tell yooooouuuu-" The voice was drawn out on the last word, merging into something entirely inhuman before breaking out into distorted laughter. I hung up the phone and put my hands on my head. Under any other circumstances, I would believe that I was going insane.
 
-But now, I knew it was a protector. "Kalaratri!" I whisper-screamed. 
+I called out sick for work, not wanting to deal with the normal bullshit, and spent the day doing anything to avoid my current fucked up situation. I left my phone at home and went to visit my brother, hoping that a familiar face might help my morale. As much as I wanted to maybe get some input on the situation, I felt I'd only get the same response as the last time I mentioned It to anyone. Despite my efforts to avoid It, however, It seemed to follow me.
 
-I heard the creaking of bones and the stench of blood filled my room. But I was not scared. It was ironic, really, how Kalaratri was portrayed as the demon-goddess in the myths of the nine goddesses. The blue-skinned goddess with ten arms, holding weapons and blood and dressed in tiger skins, wearing a necklace of skulls over a bare chest with her matter hair flowing in a halo around her. And she looked furious too, but I had an inkling that she would not harm me. 
+I was in the middle of watching a movie with my brother and his wife. They were trying to cheer me up about the break-up, although I hadn't given them the details pertaining to what caused it. The movie was about mid-way through when my brother's phone rang. As he answered it I didn't think anything of it until he looked at me curiously.
 
-She extended a finger towards me. It was leathery and pointed and rough, but I did not flinch. "You have suffered enough." 
+"It's for you," he said. I hesitated a moment and put the phone to my ear. I didn't say a word as the familiar sounds filled my ear, until forming a coherent voice. Once again It was mine.
 
-Mia purred. The goddess looked at me and gave a faint smile. "Your mother was much more terrified of me."
+"Can't miss work tomorrow." That was all it said before the shrill screeching sound invaded my ears. I hung up and handed the phone back.
 
-"I - you saved her too?" I blinked. "But there's no ash ritual here -"
+"I gotta go," I said, hurrying out the door before he was able to protest. I had a bad feeling the whole way home, replaying the conversation between my girlfriend and me over and over in my head. Once I unlocked my door I didn't hesitate to grab my phone, and other than the dozens of missed calls, there was a message from a co-worker of mine.
 
-"No ritual would save you." she intoned, in a voice that sent chillds down my throat. "The more you rebel, the more Shailaputri finds you."
+"Dude, wtf happened? I heard you went off on the boss?" It read.
 
-I gulped.
+"What do you mean?" I responded.
 
-"But the more you endure, the more I find you." she smiled faintly again. "Resilience, sacrifice, they are two sides of a coin. You have borne so much. You have pained so much. She has followed you but you fought her long enough to let me reach you. You are a survivor, child."
+"I was told you called the boss and cussed him out, said some pretty nasty shit from what I heard." My heart dropped.
 
-"I-"
+I checked the call log, and there it was. A six-minute call to my boss. As you could guess I couldn't convince anyone that It wasn't actually me. The situation played out much like the one with my girlfriend, and I was told that my position has already been filled by someone else.
 
-"I also like cats. I rode one when I was the patron goddess of fertility." she laughed breathily as she dissapeared. Mia screamed in goodbye.
+I sat with my head in my hands, completely at a loss. I realized that this is what happens when I try to ignore... Whatever this was. In the middle of my turmoil and self-pity, the phone rang. I answered in a fraction of a second, screaming in anger. "WHAT DO YOU WANT?!?!"
 
-In front of me, I could see the woman in white crumbling to ashes as the pain in my abdomen dulled and for the first time in fifteen years, I could not feel anything but the trickle of blood as my periods stopped hurting.
+It was silent for a few moments. "You... You can't runnnnnnnn." The warped version of my voice said. Before I could respond, the sound of sobbing and distorted speech started once more. "Leave me the fuck alone!!!" I screamed. The noises increased in volume"I don't know who this is, or why you are doing this. Pleeeease!!!"
 
-That night, I vowed that I would only ever have sons. The curse of the Goddess of Sacrifices ended with me. And I held Mia tighter to my chest as I woke up to a new day and wondered where I'd put that Hydrogen Peroxide solution.
+The more I protested, the louder, and more numerous the voices grew. They seemed to cascade into a chorus of distorted voices, my own included. Words became a blur, voices became an unintelligible screech. All I could do was scream back.
 
-I had a new life now. And I had the scariest goddess of them all to thank for it.
+I tried to go to the cops, but the calls were restricted so it wasn't possible to trace them. The following days passed much in the same way. I lost contact with friends and family as a result of trying to avoid the calls, and eventually lost my apartment. I tried to change my number, though it seemed to follow me no matter what I did. I even decided to turn my phone off altogether, but no matter where I go, or who I meet, this... Thing always found me.
 
-And sometimes when I sleep at nigjt, I hear the thudding of the skulls of her necklace and see the stench of blood, followed by my cat chasing the sounds and a laugh that makes me feel lighthearted once again. It is the laugh of a saviour. 
+Weeks turned to months as motel room phones rang endlessly, even after I unplugged them. Payphones rang as I walked past. I couldn't be near anyone with whom I was even slightly acquainted without it calling for me. Even if I did, it would only result in the same shit as what happened with my ex, my job, and my family. It all became unbearable, and I was thinking about doing the worst until I another thought occurred to me.
+
+This all started the night the strange man asked to use my phone. I recalled the look of despair on his face, and I recognized that same look in my own reflection. I remembered the number he called, and the sense of finality that he seemed to exude as he walked away. I turned on my phone and looked at my call log. I skimmed through the countless calls until I found it.
+
+So now I sit and wait. I don't want to ask just anyone. I don't know if i could bring myself to do it. Obviously I'm not going to share the number here, but the only words of wisdom I can say are these... If ever you meet a desperate stranger in need of an innocent  phone call, be cautious. You might find a seemingly odd number from a non-existent area code in your call log. If you do, pray you don't get a call from whoever, or whatever this thing is from an unknown number.
