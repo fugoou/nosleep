@@ -1,130 +1,124 @@
-# Avoid Letting Strangers Use Your Phone, You Might Get More Than Scam Calls
-There isn't anything I can do to convince anyone that what I'm about to tell you is real. In all honesty, if I hadn't experienced this mind-fuck of a situation for myself, I wouldn't believe it either. Anyways, what the hell, for the sake of argument just humor me, and let's just dive into this unbelievable, fucked up story.
+# I Took a Job as a Containment Team Lead. My First Mission Hit Too Close to Home. (Part 2)
+"We got them all. We got Pigg. We got the console, collars, and bootleg RDC," I said into the headset. We also took hard drives full of *material* that, while not anomalous, made my stomach turn more than feeling my own bones weave themselves back together.
 
-I'd grown accustomed to walking back and forth to work, I'd done so for several years. My job was only a couple of miles from my apartment, and it allowed me to sort of get lost in whatever creepy stories I listened to through my earbuds. Plus it made it all the more effective being that it was in the dead of night.
+"Excellent! We're sending trucks in now to bring the subjects into custody. Keep *Pigg* with you, though; probably best not to let him out of sight for too long."
 
-One particular night I ended up staying later than usual, and didn't end up leaving the store until after 2 a.m. I commenced my usual routine, picking whatever scary story caught my attention and carried on my way. The neighborhood I lived in was definitely not ideal for being on foot in the dead of night, but I was always cautious and only kept one earbud in, so I could hear my surroundings.
+When the last cage hit the street, the witness left his window and sprinted into the yard.
 
-The trip home was like any other typical night. I saw the occasional night wanderers, heard a few gunshots in the distance, and saw the ever-popular random homeless man riding a bike that was clearly stolen from a twelve-year-old. I decided to stop at the convenience store for a drink, and when I came out I noticed a disheveled-looking man posted up by the door.
+He made it three steps towards us before I stopped him.
 
-If it wasn't for the fact that it looked like he hadn't slept in days, the condition of his clothes, and the look of despair on his face, he would have otherwise seemed like a normal guy. His eyes followed me as I passed him, looking like he was contemplating saying something. I immediately averted my eyes, hoping he wasn't about to ask for money. Luckily he said nothing.
+“That’s your sister, isn't it? Lydia? She's still in there, somewhere." I said, trying my best to console him. "We might be able to bring her back, since she hasn't been like this for very long."
 
-I rounded the corner to the side street that lead to my apartment and had just gotten about halfway when someone tapped me on the shoulder. I spun around completely startled, and jumped back defensively.
+I could see that he doubted my words, so I told him a gentle lie. "This isn't the first time we've dealt with this."
 
-The man put his hands up in a surrendering manner, it was the same man from the store. I took the earbud out. "Can I help you?" I asked, a little more aggressively than I'd intended to.
+I decided to do my best to make him feel like he had done *something* to save his sister, a truth this time.
 
-"I'm - I'm sorry sir, I - I didn't mean to sneak up on you like that, I was on my way home and my car broke down, plus my phone is dead. I was wondering if I could use your phone. I just need to call a friend to come get me. The cashier at the store refused to let me use his. It'll only take a second I promise. "
+"You're the one who tipped off our informant at the PD, by the way. This wouldn't have been possible without you. Sorry about the way he acted towards you, but *we can't have things like this on the public record."*
 
-"Alright." I reluctantly unlocked my phone and handed it to him. He hesitated for a moment, looking up at me, still wearing an expression of gloom. I almost expected him to bolt, but finally, he dialed a number and put the phone to his ear. He just stared at me as he waited for someone to answer. After a few moments, his expression seemed to turn even more distressed.
+I felt like an idiot for saying that last part, and started to walk away. That's when I noticed the way she was staring at him. Lydia, a devious grin spread across her face, was staring at Grett and bending the bars on her cage outward in an attempt to get to him.
 
-Then to my confusion, he simply ended the call, handed the phone back, gave me one last anguished look, and walked in the opposite direction. I stood there for a moment, in a state of utter confusion. I waited until he was far enough away before turning back around.
+I spun around on my heel, remembering the card. "If you see her again, and she *isn't* being escorted to your front door by us, *do not let her in*." I tried to hide the fear in my voice as I relayed this information to him, but I think my facial expressions betrayed me.
 
-Once I got home I turned the tv on, relaxed on the couch, and answered a few messages from family and friends. After a brief conversation with my girlfriend, I turned on the tv. Curiosity got the better of me and I looked at my call history. The number the stranger dialed had a completely foreign area code. I hit the call button, it rang twice and went silent.
+I handed him the card and explained, "Keep this card on you at all times. If she *does* come back for you, she won't be able to touch you as long as you have it.
 
-I waited for a few moments before deciding to hang up. Just as I was about to hit the end button, my ears were invaded by a deafening, distorted screech.
+I walked away, and he meandered back into his own house.
 
-After the phone cut off I, just sat starting at the screen momentarily, a little off-put by the events of the night. I shook my head, figuring that whatever number the man called was out of service, although, I'd never heard that sound before. Of course, when calling certain inactive numbers you might hear a high-pitched whine, but this was very different, like a scream, almost animalistic in nature. I set the phone down and was about to channel surf when my phone rang. It was an unknown number.
+"Aren't you gonna... y'know, *Men In Black* that guy?" Thatcher asked, holding up his wand and imitating clicking a button on the hilt.
 
-"Hello?" I said. About 4 seconds passed before a voice answered. "Hello?" he responded.
+"I don't think it'll be necessary, plus he's more useful to us with his memory intact. I gave him a card... I think his sister might try to seek him out if we don't keep her locked up. The way she was looking at him..." I said.
 
-"Yes?" I said. " Yes? " He repeated back. The man's voice was faint at first.
+"We all noticed it too," Miller said, before I could finish the thought. "I think you made the right decision."
 
-"Can I help you?" I asked. Again he mimicked me. "Can I... I help you?"
+We loaded the last container, then, as we were shown in training, four of us stood about 10 meters out at each corner of the house and set our wands to full power before activating the *Burst* function.
 
-Normally I'd have hung up by then, but his voice was strange. Initially, I thought it was an echo of my voice, except even though the cadence was the same, the tone was different.
+"The implosions are noiseless and lightless at full power," Holmgren began, "because the density of KF energy at that level surpasses its Schwarzschild radius for less than a tenth of a millisecond. Any matter caught inside is effectively turned into pure KF energy, which the shield function automatically protects us against. It's an in-built safety feature."
 
-"Who is this," I demanded. He once again repeated my words. " Who is this... Thi- this? "
+After nothing was left of the house, we went around with our wands on the lowest setting of burst, pointed at the ground. Where we pointed, fresh grass sprouted and grew. This was also something that Holmgren taught us on the fly. This explains why he didn't ask very many questions during training. I suppose he already *knew*.
 
-His voice was changing, sounding more like my own, only distorted, certain words were repeated with letters being drawn out unnaturally. It sounded as though every time it mimicked me there was an echo from his side that seemed to morph into different tones.
+By first light, it looked as if the house had never been there. The rest was up to the *Cleaners,* forging paperwork and swaying bureaucracy to make the masses believe none of this ever happened.
 
-Then I noticed some other sounds from his end. It was hard to discern but it sounded like... Crying. The faint sound of several voices all sobbing uncontrollably. I hung up abruptly, admittedly a little creeped out.
+\---
 
-I chalked it up to some sort of prank call. Despite the whole strange night I stretched out and went to sleep on the couch. I woke up the next morning and started the day just like any other. As I was just about to call my girlfriend, my phone rang. It was an unknown number.
+We never got the luxury of a debrief. Lydia went into an isolation bay with the rest of the recovered subjects. Someone upstairs decided to begin “correction” on Tuesday, but come this afternoon, she wasn’t in her bay anymore.
 
-Without hesitating I answered. "Hello? May I ask who's calling?" There was no response at first, all I could hear faint, garbled gibberish. I couldn't discern any comprehensive words out of the distorted mutterings, it sounded like reverse-speech. It was very unsettling.
+“Containment breach,” Holmgren said over comms. “Tracker's inactive, subject is the sister of the witness.”
 
-"Who the fuck is this?" I demanded. The muttering stopped, and what followed was yet another distorted mimicry of my voice, repeating the words back to me. "Who the fuck is this?". It was unmistakably my voice, only It just didn't sound natural. Some words were drawn out and certain syllables exaggerated just like before, as if attempting to learn how I talk.
+“The *witness*,” Miller repeated.
 
-"What do you want?!" I shouted. The distorted reverse speech started again for a moment. "This..." The voice paused. " Want... You. " It responded. Each word was taken from my side of the conversation, as if using my voice, but rearranging the words to form a different sentence.
+“Grett,” I said. “Move.”
 
-I was officially freaked the fuck out as I hung up the phone. The whole situation was getting to me in a way I couldn't explain. I needed to get out of there and clear my head, so I called up my closest friend, Rob,  to go have a few drinks and shoot some pool. I tried to get my girlfriend to go, but she had to work. Twenty or so minutes into the game he noticed I was a little preoccupied.
+We killed the van in the same spot. No police this time, and no sign of Grett. Or, more worryingly, Lydia.
 
-"Alright, spill it." He said. I gave him a questioning look. "Huh?"
+Holmgren dropped the Field Sphere on the grass and flipped it to sensor-only mode. We kept all shields down in hopes that she would be drawn to us *instead* of Grett.
 
-"What's bothering you? You and your woman fighting?" he asked.
+"KF signature, about a kilometer away and closing in. *Fast.*" Holmgren said, pointing due north.
 
-I shook my head. "Nah, just some weird shit happened," I told him the whole story, beginning with the guy who used my phone.
+"How fast?" I asked, but the question soon didn't matter. Silently, and before any of us could react, Lydia had appeared and climbed the side of Grett's house, stopping at the second-floor window.
 
-He laughed, agreeing that It was creepy, but reassured me that It was most likely a prank, joking that it could be a secret admirer. I felt a little more at ease, and the rest of the night went without incident. After a few games and some drinks, I decided to go home for the night.
+“Up,” I said, motioning for the rest of the team, who hadn't even noticed her there yet. All of us except Holmgren made our way through the front door and were going up the stairs when an ear-piercing screech, mixed with the sound of shattering glass, erupted from the bedroom.
 
-"I'm dead tired man, and I can't miss work tomorrow. Plus I gotta run you home before your woman kills you." I said as he tried to persuade me to stay.
+The bedroom was a snow globe of broken glass and dust that had been thrown up in the blast. Grett lay in the corner, knocked unconscious but with no visible sign of *fresh* injury. The black card clenched in his hand so tight that his knuckles had gone white. He was breathing.
 
-When I'd gotten home and settled in I'd almost forgotten about the whole thing from that morning, then my phone rang. Unknown number. I stared for several seconds until reluctantly answering. I didn't say anything, I just listened.
+"*Smart man.*" I thought to myself.
 
-The strange reverse speech started and slowly got louder. It sounded like there were several voices, all of them unnatural, and speaking unintelligible ramblings.
+The light had blown. In the window... what was left of the window... Lydia’s face hovered just beyond the frame, smile wide, eyes painted a malicious shade of patience.
 
-Then as it rose in volume, It faded into the same voice as before. My voice.
+“Lydia,” Dwyer said, “It’s okay. We’re here.”
 
-"Nah, just some weird shit happened." It said. "I'm dead tired man... M- maaa- man. I gotta run... Rrrrrrun you home... Home." I couldn't muster the nerve to say a word as It continued. "Before your... Woman ki-kills... Kills you...Kills... Dead."
+Her head tilted when she heard Dwyer’s words, like she had just heard a joke she didn't understand.
 
-I couldn't believe my ears, I was hearing words that were spoken by me, but in a manner that was far from anything normal. The words lingered and almost seemed to merge into one another.
+Thatcher eased to the far side, activating his shield and attempting to block any direct path to Grett. I moved forward, readying my wand.
 
-There was a pause. My heart was beating erratically, and my hands were shaking. Then it formed a sentence that made my blood turn cold, utilizing words from the previous calls, and somehow from words I'd spoken at the pool hall. In the same distorted version of my voice... "I want- kills... I want you... Dead... I want you dead. You can't run."
+I clicked Null on a low setting and felt the bubble of silence form around me as well. Lydia’s hand twitched. She reached for the line where the shield ended and recoiled like it burned.
 
-I hung up abruptly, dropping the phone onto the floor. I couldn't begin to fathom what this was, or why It was happening to me. I didn't have long to gather my thoughts before there was yet another call from the unknown number. I didn't answer, I turned my phone on silent and went to bed. The whole situation was just insane and I was officially disturbed.
+“Edward,” Holmgren said through my earpiece, “we can pin her with the Sphere if you bring her three steps inside the room; any less than that and we risk *frying* her."
 
-The next morning I woke up a little later than usual. I was hesitant to even look at my phone for fear of the inevitable. After gathering my nerve, I reluctantly checked the notifications, and just as I'd expected. 30 missed calls from an unknown number. I had to talk to someone, so I called my girlfriend, hoping someone could give me some sort of perspective on the whole situation.
+“Lydia,” I said, and for a second she looked at me. “We’re going to bring you home. But you have to step inside.”
 
-It rang twice before going to voicemail. I waited a few minutes and tried again, and again there was no answer. I was confused, she normally answers when I call her, and she's never hit the fuck-you button on me. Just as I was about to call again I received a text from her. "Fuck off." It read. I was puzzled, to say the least.
+Her eyes flicked to me, then the wand in my hand, then to the card in Grett's. The grin widened and trembled.
 
-"What? What the hell is wrong?" I responded.
+“*Step,*” she said, or rather the thing inside her said, deep and guttural. The glass on the floor chimed like a chorus of bells in tune with her word.
 
-"You call me at 3 a.m. and say the shit you said and ask me what is wrong?!? You and your new bitch can go fuck yourselves." She texted back.
+She moved. Fast, but we were faster. Holmgren slammed the Sphere to full power as soon as he saw her move. Lydia winced, screamed, and then she was on the floor, hands raking at the floorboards. Her painted nails, long since flaked and cracked, ripped away as the trapped animal within tried to escape the small space between the three bubbles of *Null*.
 
-I was in disbelief. I called several times to no avail, growing more and more anxious by the minute. After what seemed like a dozen calls she finally picked up.
+“Now,” I said.
 
-"What?!" She demanded harshly. "Look, I don't know who called you, or what you're even talking about, but it wasn't me." I said.
+Miller dove, pinning her wrists with the polished restraints; Dwyer slid down to her feet and restrained her ankles.
 
-"Don't try to fucking change your story now." She responded. "I didn't-" I tried to answer but I was cut off.
+Lydia screamed; inhuman, maddening. Dwyer and Miller both fell unconscious to the floor, but it was too little, too late. She was restrained and no longer a threat.
 
-"Whatever you're playing at, you can't take back what you did just because you regret admitting what you did." She said, her voice quivering.
+The scream thinned, softened, turned into a breath. Lydia blinked once, twice. The grin had vanished from her face; in its place, she wore a scowl of pure malice.
 
-I was flabbergasted. She went on to tell me that I called and told her that I'd been cheating on her for the entire duration of our relationship. As much as I tried to plead with her and convince her that someone else had called her impersonating me, she wouldn't budge, saying that not only was it from my number, and sounded like me, but also that things were said that only I would know.
+Holmgren came upstairs at that moment. "Help Dwyer and Miller, they weren't in the shields when she screamed. I think it may have affected them."
 
-After she hung up on me again I looked at my call history, and sure enough, at exactly 3 a.m. There was an outgoing call to her number, and the call duration was 23 minutes. I didn't know whether to be even more terrified, or furious. Then out of nowhere, I was interrupted by a call, and of course, It was an unknown number. I answered and put the phone to my ear. The same garbled, distorted rambling broke the silence before morphing into intelligible speech.
+I directed, and Holmgren obeyed. In no time, the two were back on their feet, only a faint line of blood running from their ears as evidence they had ever been unconscious.
 
-"Baby listen." It started. The voice was unmistakably mine.
+Thatcher and I lifted Lydia and carried her like a prisoner down the stairs, out into the quiet street. Holmgren shut down the Sphere; the local KF reading came back at 0.013Hz, like it should be. The restraints on Lydia prevented the entity from altering any of the Kyrie Field beyond her body, and even prevented it from *leaving* said body while they were attached. We loaded Lydia into the cage in the back of the van, locking it and closing the doors.
 
-"I have something to tell yooooouuuu-" The voice was drawn out on the last word, merging into something entirely inhuman before breaking out into distorted laughter. I hung up the phone and put my hands on my head. Under any other circumstances, I would believe that I was going insane.
+We left Grett in his bed, unconscious. Dwyer checked his vitals before we left the room and assured me he would be okay. I'm not sure how much he will remember. Hopefully he wasn't awake to see us dragging his sister away from him for the *second* time.
 
-I called out sick for work, not wanting to deal with the normal bullshit, and spent the day doing anything to avoid my current fucked up situation. I left my phone at home and went to visit my brother, hoping that a familiar face might help my morale. As much as I wanted to maybe get some input on the situation, I felt I'd only get the same response as the last time I mentioned It to anyone. Despite my efforts to avoid It, however, It seemed to follow me.
+At the curb, Dwyer squeezed my arm. “You did good, boss. That was a tough situation, and *you* led us through.”
 
-I was in the middle of watching a movie with my brother and his wife. They were trying to cheer me up about the break-up, although I hadn't given them the details pertaining to what caused it. The movie was about mid-way through when my brother's phone rang. As he answered it I didn't think anything of it until he looked at me curiously.
+Miller glanced up at the sky, and I followed his gaze. The clouds on the horizon were glowing the dark purple of a Georgia sunset, with beams gleaming out of gaps in the cloud layers.
 
-"It's for you," he said. I hesitated a moment and put the phone to my ear. I didn't say a word as the familiar sounds filled my ear, until forming a coherent voice. Once again It was mine.
+"Beautiful, isn't it?" I said aloud.
 
-"Can't miss work tomorrow." That was all it said before the shrill screeching sound invaded my ears. I hung up and handed the phone back.
+"It's almost as if Heaven could be just beyond those clouds." He said, reaching his hand out and squeezing the clouds between his fingers.
 
-"I gotta go," I said, hurrying out the door before he was able to protest. I had a bad feeling the whole way home, replaying the conversation between my girlfriend and me over and over in my head. Once I unlocked my door I didn't hesitate to grab my phone, and other than the dozens of missed calls, there was a message from a co-worker of mine.
+"If there is a Heaven, I'm sure that Dr. Kruger nutjob would find *some way* to blow it up for evoking *too* much curiosity." Thatcher joked, joining us in our cloud watching.
 
-"Dude, wtf happened? I heard you went off on the boss?" It read.
+"If there is a Heaven, I'm sure Elliot has every Angel and the Big Man himself cataloged already," Dwyer added to the joke.
 
-"What do you mean?" I responded.
+"I can still hear you, you know..." Elliot cracked over our comms. We all chucked slightly.
 
-"I was told you called the boss and cussed him out, said some pretty nasty shit from what I heard." My heart dropped.
+"But there *is* a Heaven. It's in Sweden, and my brother works there. He's an engineer too." Holmgren said, serious as a heart attack.
 
-I checked the call log, and there it was. A six-minute call to my boss. As you could guess I couldn't convince anyone that It wasn't actually me. The situation played out much like the one with my girlfriend, and I was told that my position has already been filled by someone else.
+We all turned to look at him, hoping this was some kind of dry humor.
 
-I sat with my head in my hands, completely at a loss. I realized that this is what happens when I try to ignore... Whatever this was. In the middle of my turmoil and self-pity, the phone rang. I answered in a fraction of a second, screaming in anger. "WHAT DO YOU WANT?!?!"
+\---
 
-It was silent for a few moments. "You... You can't runnnnnnnn." The warped version of my voice said. Before I could respond, the sound of sobbing and distorted speech started once more. "Leave me the fuck alone!!!" I screamed. The noises increased in volume"I don't know who this is, or why you are doing this. Pleeeease!!!"
+Night has fallen now. The crisp Autumn air blows over my face as I gaze out into the countryside through the rolled-down window of the van. Thatcher volunteered to drive back, since I still have a little trouble feeling the whole right side of my torso after what happened during the Pigg incident. Holmgren assures me this is temporary, and I should be back to normal by next week. I trust him.
 
-The more I protested, the louder, and more numerous the voices grew. They seemed to cascade into a chorus of distorted voices, my own included. Words became a blur, voices became an unintelligible screech. All I could do was scream back.
+A faint hum is growing in the air now, and the trees and fields have taken on a hue of familiarity as the headlights pass over them.
 
-I tried to go to the cops, but the calls were restricted so it wasn't possible to trace them. The following days passed much in the same way. I lost contact with friends and family as a result of trying to avoid the calls, and eventually lost my apartment. I tried to change my number, though it seemed to follow me no matter what I did. I even decided to turn my phone off altogether, but no matter where I go, or who I meet, this... Thing always found me.
-
-Weeks turned to months as motel room phones rang endlessly, even after I unplugged them. Payphones rang as I walked past. I couldn't be near anyone with whom I was even slightly acquainted without it calling for me. Even if I did, it would only result in the same shit as what happened with my ex, my job, and my family. It all became unbearable, and I was thinking about doing the worst until I another thought occurred to me.
-
-This all started the night the strange man asked to use my phone. I recalled the look of despair on his face, and I recognized that same look in my own reflection. I remembered the number he called, and the sense of finality that he seemed to exude as he walked away. I turned on my phone and looked at my call log. I skimmed through the countless calls until I found it.
-
-So now I sit and wait. I don't want to ask just anyone. I don't know if i could bring myself to do it. Obviously I'm not going to share the number here, but the only words of wisdom I can say are these... If ever you meet a desperate stranger in need of an innocent  phone call, be cautious. You might find a seemingly odd number from a non-existent area code in your call log. If you do, pray you don't get a call from whoever, or whatever this thing is from an unknown number.
+***We must be pretty close to Calloway.***
