@@ -1,124 +1,238 @@
-# I Took a Job as a Containment Team Lead. My First Mission Hit Too Close to Home. (Part 2)
-"We got them all. We got Pigg. We got the console, collars, and bootleg RDC," I said into the headset. We also took hard drives full of *material* that, while not anomalous, made my stomach turn more than feeling my own bones weave themselves back together.
+# Everyone at school called her “Butt-Ugly Brooke”, and there was a price to pay 20 years later.
+She wasn’t meek, or gutless, but that was the problem. She was too visible; socially inept, brash-voiced, and incessantly prattling about her scientific interests. Vicious children destroy whatever’s different. Anything that highlights the tedium of their own cookie-cutter existence.
 
-"Excellent! We're sending trucks in now to bring the subjects into custody. Keep *Pigg* with you, though; probably best not to let him out of sight for too long."
+Maybe nature wants anomalies to be stamped out.
 
-When the last cage hit the street, the witness left his window and sprinted into the yard.
+Maybe it’s unavoidable that “normal” people are cruel to “strange” people.
 
-He made it three steps towards us before I stopped him.
+Maybe I’m just trying to ease my conscience.
 
-“That’s your sister, isn't it? Lydia? She's still in there, somewhere." I said, trying my best to console him. "We might be able to bring her back, since she hasn't been like this for very long."
+It all started with Charlene and Daniel. The picture-perfect cheerleader with a symmetrical face, blonde hair, and slim physique. The six-four footballer crafted of muscle.
 
-I could see that he doubted my words, so I told him a gentle lie. "This isn't the first time we've dealt with this."
+The Big Bads.
 
-I decided to do my best to make him feel like he had done *something* to save his sister, a truth this time.
+To survive this power couple, most of us worked hard to go unnoticed.
 
-"You're the one who tipped off our informant at the PD, by the way. This wouldn't have been possible without you. Sorry about the way he acted towards you, but *we can't have things like this on the public record."*
+A skill Brooke never quite mastered.
 
-I felt like an idiot for saying that last part, and started to walk away. That's when I noticed the way she was staring at him. Lydia, a devious grin spread across her face, was staring at Grett and bending the bars on her cage outward in an attempt to get to him.
+During her first year of high school, she was guarded by her older brother, Rick. But when he graduated, Charlene and Daniel got to work.
 
-I spun around on my heel, remembering the card. "If you see her again, and she *isn't* being escorted to your front door by us, *do not let her in*." I tried to hide the fear in my voice as I relayed this information to him, but I think my facial expressions betrayed me.
+They mocked Brooke’s idiosyncratic behaviour at first, but she wasn’t really bothered until they started to insult her physical differences. Split-ended brunette hair; crooked teeth in need of braces; exaggerated spacing between the eyes; a roll of puppy fat around the tummy.
 
-I handed him the card and explained, "Keep this card on you at all times. If she *does* come back for you, she won't be able to touch you as long as you have it.
+The poor girl eventually earnt a juvenile name:
 
-I walked away, and he meandered back into his own house.
+*Butt-Ugly Brooke*.
 
-"Aren't you gonna... y'know, *Men In Black* that guy?" Thatcher asked, holding up his wand and imitating clicking a button on the hilt.
+Some called her Front-Bum Brooke, on account of her slight belly, but it was “Butt-Ugly Brooke” that stuck. Everyone used the name, just to avoid being the Big Bads’ next victims.
 
-"I don't think it'll be necessary, plus he's more useful to us with his memory intact. I gave him a card... I think his sister might try to seek him out if we don't keep her locked up. The way she was looking at him..." I said.
+That’s how I factor into this horrid equation.
 
-"We all noticed it too," Miller said, before I could finish the thought. "I think you made the right decision."
+We were waiting outside the science lab when Daniel hurled Brooke to the floor. When she tried to stand, Charlene slammed a dainty plimsoll against her back.
 
-We loaded the last container, then, as we were shown in training, four of us stood about 10 meters out at each corner of the house and set our wands to full power before activating the *Burst* function.
+“No, no, Piggy. You walk on all fours, okay?”
 
-"The implosions are noiseless and lightless at full power," Holmgren began, "because the density of KF energy at that level surpasses its Schwarzschild radius for less than a tenth of a millisecond. Any matter caught inside is effectively turned into pure KF energy, which the shield function automatically protects us against. It's an in-built safety feature."
+Bawling Brooke did as Cruel Charlene instructed, but I was blocking her way; standing in a frozen stupor in the middle of the corridor as the ordeal played out. It took me a second too long to shuffle my stiff feet to the side, and the Big Bads noted that with gleeful faces. They were gluttons for weakness in others.
 
-After nothing was left of the house, we went around with our wands on the lowest setting of burst, pointed at the ground. Where we pointed, fresh grass sprouted and grew. This was also something that Holmgren taught us on the fly. This explains why he didn't ask very many questions during training. I suppose he already *knew*.
+“Why so slow, Lindsay?” asked Daniel.
 
-By first light, it looked as if the house had never been there. The rest was up to the *Cleaners,* forging paperwork and swaying bureaucracy to make the masses believe none of this ever happened.
+I stammered, “I… I was just…”
 
-\---
+“*I… I was just…”* Charlene imitated, and a few of her friends snickered. “Lindsay, get on all fours and play with the piggy.” *No…* I internally begged. “Then—”
 
-We never got the luxury of a debrief. Lydia went into an isolation bay with the rest of the recovered subjects. Someone upstairs decided to begin “correction” on Tuesday, but come this afternoon, she wasn’t in her bay anymore.
+“I don’t wanna play with Butt-Ugly Brooke!” I said loudly, before turning to the crawling girl. “So… drag that front-bum across the floor and… get to class, Piggy.”
 
-“Containment breach,” Holmgren said over comms. “Tracker's inactive, subject is the sister of the witness.”
+I had never said anything so awful to anyone, but please don’t judge me. You don’t know the fear Charlene could instil with a glance; a lump of dread congealing in the chest, threatening to stop my very heart. Unbridled fear.
 
-“The *witness*,” Miller repeated.
+I’m making excuses again.
 
-“Grett,” I said. “Move.”
+Was it cowardly to direct the bullies’ attention back to Brooke?
 
-We killed the van in the same spot. No police this time, and no sign of Grett. Or, more worryingly, Lydia.
+Yes.
 
-Holmgren dropped the Field Sphere on the grass and flipped it to sensor-only mode. We kept all shields down in hopes that she would be drawn to us *instead* of Grett.
+Does that make me a bad person?
 
-"KF signature, about a kilometer away and closing in. *Fast.*" Holmgren said, pointing due north.
+I still don’t know.
 
-"How fast?" I asked, but the question soon didn't matter. Silently, and before any of us could react, Lydia had appeared and climbed the side of Grett's house, stopping at the second-floor window.
+Survival instinct, I called it. Weaselly and cunning, I call it now. Whatever the case, the Big Bads howled with laughter, so I saved myself.
 
-“Up,” I said, motioning for the rest of the team, who hadn't even noticed her there yet. All of us except Holmgren made our way through the front door and were going up the stairs when an ear-piercing screech, mixed with the sound of shattering glass, erupted from the bedroom.
+Anyway, that’s the worst thing I ever did.
 
-The bedroom was a snow globe of broken glass and dust that had been thrown up in the blast. Grett lay in the corner, knocked unconscious but with no visible sign of *fresh* injury. The black card clenched in his hand so tight that his knuckles had gone white. He was breathing.
+And this evening, twenty years later, it almost cost my life.
 
-"*Smart man.*" I thought to myself.
+“Lindsay, right?” the man across the supermarket aisle asked.
 
-The light had blown. In the window... what was left of the window... Lydia’s face hovered just beyond the frame, smile wide, eyes painted a malicious shade of patience.
+I instantly recognised him as Brooke’s older brother, Rick. That returned terrible memories to my mind; there’s a reason I rarely return to my hometown.
 
-“Lydia,” Dwyer said, “It’s okay. We’re here.”
+After a minute of chatting, Rick asked me to dinner, and I stupidly said yes. Throughout the meal, I doubted whether I even liked him. Maybe I only agreed out of guilt for mistreating his sister. And maybe that was why I agreed to come back to his place too.
 
-Her head tilted when she heard Dwyer’s words, like she had just heard a joke she didn't understand.
+His parents’ old house.
 
-Thatcher eased to the far side, activating his shield and attempting to block any direct path to Grett. I moved forward, readying my wand.
+“You inherited this?” I asked.
 
-I clicked Null on a low setting and felt the bubble of silence form around me as well. Lydia’s hand twitched. She reached for the line where the shield ended and recoiled like it burned.
+He shook his head. “No. I’m visiting Brooke, remember?”
 
-“Edward,” Holmgren said through my earpiece, “we can pin her with the Sphere if you bring her three steps inside the room; any less than that and we risk *frying* her."
+I had only been half-present during the meal, but my brain was catching up.
 
-“Lydia,” I said, and for a second she looked at me. “We’re going to bring you home. But you have to step inside.”
+*Visiting Brooke*.
 
-Her eyes flicked to me, then the wand in my hand, then to the card in Grett's. The grin widened and trembled.
+*Shit*.
 
-“*Step,*” she said, or rather the thing inside her said, deep and guttural. The glass on the floor chimed like a chorus of bells in tune with her word.
+“I should go…” I said.
 
-She moved. Fast, but we were faster. Holmgren slammed the Sphere to full power as soon as he saw her move. Lydia winced, screamed, and then she was on the floor, hands raking at the floorboards. Her painted nails, long since flaked and cracked, ripped away as the trapped animal within tried to escape the small space between the three bubbles of *Null*.
+Too late; a voice sounded upstairs.
 
-“Now,” I said.
+“Who’s there, Rick?”
 
-Miller dove, pinning her wrists with the polished restraints; Dwyer slid down to her feet and restrained her ankles.
+She spoke more softly than she once had, but it was her.
 
-Lydia screamed; inhuman, maddening. Dwyer and Miller both fell unconscious to the floor, but it was too little, too late. She was restrained and no longer a threat.
+Brooke.
 
-The scream thinned, softened, turned into a breath. Lydia blinked once, twice. The grin had vanished from her face; in its place, she wore a scowl of pure malice.
+“Sorry,” Rick called back. “I met her at the supermarket and—”
 
-Holmgren came upstairs at that moment. "Help Dwyer and Miller, they weren't in the shields when she screamed. I think it may have affected them."
+“‘Her’?” She was coming down the stairs. “You’ve brought a ‘her’ to my family home? Unbelievable. I’ve just put the kids to bed, and you’ve brought a…” Brooke saw me, “… *her*.”
 
-I directed, and Holmgren obeyed. In no time, the two were back on their feet, only a faint line of blood running from their ears as evidence they had ever been unconscious.
+She recognised me, but I didn’t recognise her.
 
-Thatcher and I lifted Lydia and carried her like a prisoner down the stairs, out into the quiet street. Holmgren shut down the Sphere; the local KF reading came back at 0.013Hz, like it should be. The restraints on Lydia prevented the entity from altering any of the Kyrie Field beyond her body, and even prevented it from *leaving* said body while they were attached. We loaded Lydia into the cage in the back of the van, locking it and closing the doors.
+Slim; hair obediently velvety; teeth straight; eyes noticeably closer together, suggesting she had undergone plastic surgery.
 
-We left Grett in his bed, unconscious. Dwyer checked his vitals before we left the room and assured me he would be okay. I'm not sure how much he will remember. Hopefully he wasn't awake to see us dragging his sister away from him for the *second* time.
+*Beautiful Brooke now*.
 
-At the curb, Dwyer squeezed my arm. “You did good, boss. That was a tough situation, and *you* led us through.”
+I hated myself for that thought.
 
-Miller glanced up at the sky, and I followed his gaze. The clouds on the horizon were glowing the dark purple of a Georgia sunset, with beams gleaming out of gaps in the cloud layers.
+Rick gestured at me. “This is—”
 
-"Beautiful, isn't it?" I said aloud.
+“I know who it is,” she said.
 
-"It's almost as if Heaven could be just beyond those clouds." He said, reaching his hand out and squeezing the clouds between his fingers.
+I had to get out. “Rick, I’m sorry, but I’m leaving. And Brooke, I’m sorry for… what I did.”
 
-"If there is a Heaven, I'm sure that Dr. Kruger nutjob would find *some way* to blow it up for evoking *too* much curiosity." Thatcher joked, joining us in our cloud watching.
+Rick looked gormless as I backed out of the front door. I expected one of the siblings to stop me, but they started to bicker about Brooke “ruining” her brother’s date.
 
-"If there is a Heaven, I'm sure Elliot has every Angel and the Big Man himself cataloged already," Dwyer added to the joke.
+I waited for an Uber on the front lawn, preferring that to standing in the hallway with her. Preferring that to confronting what I’d done.
 
-"I can still hear you, you know..." Elliot cracked over our comms. We all chucked slightly.
+*Coward*.
 
-"But there *is* a Heaven. It's in Sweden, and my brother works there. He's an engineer too." Holmgren said, serious as a heart attack.
+The front door opened behind me, but I kept looking out at the road ahead.
 
-We all turned to look at him, hoping this was some kind of dry humor.
+“Lindsay?” called Brooke as she walked across the grass. “We got off on the wrong foot.”
 
-\---
+I turned in time to see a split-second flash of the ceramic vase before losing consciousness.
 
-Night has fallen now. The crisp Autumn air blows over my face as I gaze out into the countryside through the rolled-down window of the van. Thatcher volunteered to drive back, since I still have a little trouble feeling the whole right side of my torso after what happened during the Pigg incident. Holmgren assures me this is temporary, and I should be back to normal by next week. I trust him.
+And when I woke, an unknown length of time later, my head and ankles were throbbing. With great difficulty, I sat up to find myself in an attic, dark save for the orange glow of a lightbulb overhead. I was sitting outside that pool of light, blind to my own body; not blind to the pain though, and my ankles wouldn’t allow me to stand.
 
-A faint hum is growing in the air now, and the trees and fields have taken on a hue of familiarity as the headlights pass over them.
+Panic took hold.
 
-***We must be pretty close to Calloway.***
+I’d been *hobbled*.
+
+I let out a little murmur of horror as I reached forwards, finding ankles swollen and damp to the touch.
+
+Under the dingy lightbulb, Brooke sat at a wooden worktable laden with metal utensils too distant to discern; but even the least adventurous of imaginations could take a well-aimed stab at what purpose those tools might serve.
+
+The sound of me shuffling into a sitting position alerted her.
+
+She swivelled in her creaking desk chair to face me. “You’re awake.”
+
+“*Rick…”* I whispered in a failed cry for help.
+
+“Don’t bother,” was Brooke’s advice. “He’s out. By the time he’s conscious, we’ll be done.”
+
+True terror set in.
+
+I rattled my limp legs about, willing the bones in my ankles to miraculously heal, but succeeding only to send fresh surges of pain through them. Then I let out a little blubber of fright and braced for death.
+
+*Death?* I scoffed. *If she were going to kill you, you wouldn’t be awake right now*.
+
+I cleared my throat. “Brooke…”
+
+“Don’t you mean Butt-Ugly Brooke? What about Babbling Brooke? That was the only one I liked. The only creative one. I *was* a loud-mouth.”
+
+I wanted to scream at her that I’d *already said sorry*. That this was an *unjust punishment*; it *didn’t fit the crime*. But I listened to my trusty survival instinct.
+
+I needed to placate her.
+
+“We’re even, Brooke. I hurt you. You hurt me. It’s over now. I won’t go to the police.”
+
+“No, you won’t.”
+
+She got up and started to back into the dark corner of the attic, telling me to *stay put*. This made her giggle, as I evidently wasn’t going anywhere. Not on those ankles.
+
+At that point, I didn’t fully know terror.
+
+I would.
+
+There was a murmur from the shadows, and a dull shuffle against the floorboards.
+
+“Come on…” Brooke grunted, re-entering the light with a dog leash.
+
+She was leading something past the worktable.
+
+*Someone*.
+
+On all fours was a woman with a ballooned body, weighing possibly 600lb. Clumps of her blonde hair were gone, most likely due to ill health beyond obesity, judging by the discolouration of her skin; marred with bruises and unknown stains. She had no teeth, and her face had been surgically altered. But unlike Brooke, this crawling creature’s eyes had been pushed farther apart.
+
+I wouldn’t have recognised the enslaved woman if not for the rags of an old cheerleader outfit hugging her otherwise nude form.
+
+*Charlene*.
+
+Gummy lips quavering and speech impeded, the toothless woman begged.
+
+“Ki… Kiww me…”
+
+Brooke backhanded her captive’s bloated face.
+
+“Animals don’t speak, Butt-Ugly.”
+
+The deformed woman oinked through blubbers.
+
+“Good,” Brooke said. “And don’t even think about standing… *No, no, Piggy. You walk on all fours, okay?*”
+
+It’s a strange thing, feeling empathy for someone so monstrous. Though what I felt most of all was horror, because—
+
+“Now we need to talk about what happens to *you*, Lindsay,” said Brooke as Charlene crawled backwards into the shade, oinking as if performing a rehearsed routine.
+
+“This is crazy. What are the odds you and I would meet again?” Brooke said. “Talk about good fortune. For *both* of us, actually. This is your chance for redemption, Lindsay. I took away your ankles because you’re a worm. So you’ll crawl, Lindsay. *For your life.”*
+
+Brooke opened the attic door and light erupted into the loftspace from below, revealing another horror. On a filthy mattress opposite me, breathing gently, was the limbless—perhaps also tongueless, judging by his muteness—torso of a man. It would have been less horrific if he were dead, I realised.
+
+And there was little by which to identify him, but I knew.
+
+*It was Daniel*.
+
+“Don’t mind my husband,” Brooke said, then she raised a brow at me. “I showed you the exit, Lindsay. Aren’t you going to crawl out… *before I catch myself a new pet?*”
+
+Terrified by the prospect of ending up like Charlene, I dug my fingers into the floorboards and clawed my way towards the attic door. Dragging my broken ankles across the floor, I wailed in pain, but managed to dangle them out through the attic opening.
+
+Before I had a chance to wonder what to do next—
+
+“Down the hatch,” Brooke said.
+
+She pushed hard on my back, and I shrieked as I fell through the opening.
+
+It’s a miracle I didn’t break anything else as I slid bottom-first down the ladder, but there was certainly far more excruciating pain as my ankles met the upstairs landing.
+
+“*HELP!”* I sobbed, a crumpled mess on the carpet.
+
+“Soundproofed house, Lindsay,” Brooke said, stepping onto the first rung of the ladder. “Crawl, worm. *Crawl*.”
+
+Every muscle in my body spasming with dread and adrenaline, I pulled myself down the stairs on my front, then I slithered my worm-like form across the front hallway; with Brooke in pursuit.
+
+“There we go, Lindsay,” she said as I clambered to my knees. “I knew you’d do it.”
+
+I pulled the unlocked front door inwards, bringing in a gust of what I feared would be my last taste of fresh air, for I could hear Brooke striding hurriedly across the entryway. I whimpered, expecting this all to have been nothing. That I would become Charlene anyway.
+
+“Quickly, little worm,” came a whisper from behind me.
+
+I hurled myself over the threshold.
+
+The door slammed behind me.
+
+I had made it.
+
+From there, I crawled across the front path and up the pavement whilst calling the police. They tell me they arrived to find Brooke had fled with Charlene and Daniel. Rick was unconscious in the spare room.
+
+As I lie in this hospital bed, the police officer keeps telling me I’m *safe now*.
+
+I’m not.
+
+Not with these crippled ankles.
+
+Not while she’s still out [there](https://www.reddit.com/r/dominiceagle).
