@@ -1,126 +1,462 @@
-# I Killed My Best Friend, but He Won't Stay Dead [Part 2]
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1p2evm3/i_killed_my_best_friend_but_he_wont_stay_dead/)
+# I took a job as a Private art Curator. There are strange rules in the Red Room. -Pt 1
+There comes a moment in every man’s life where he has to decide whether his passion becomes a hobby or a career. For me, that choice was obvious. Thinking back on it now, it’s probably the greatest regret of my life.
 
-I suppose I got my longing for another chat with John, but I didn't take the opportunity until a couple days later. While trying to figure out the situation, I decided that visiting John - either one, for that matter - wouldn't help. And in all honesty, the thought of him made me sick, more sick than the sight of his corpse, which I presumed was still resting under the layer of dirt and leaves.
+Back then, though, I was prouder than anyone could reasonably be. I remember the day I received my Bachelor’s degree in Fine Arts. It was my passion, my life, and my love.
 
-He noticed my absence, as he called regularly to ask where I was, if I wanted to go to a bar with him, the usual. Even just picking up the phone made me shake. I declined until he told me to stay with Dahlia while he was out in town. I couldn’t pass up the opportunity to finally talk to her. The need to confirm what she knew finally got me out of the house. When John left us alone and we made sure he was gone, I felt Dahlia's hand on mine.
+My father was a bit miffed about it. He wanted me to succeed him as the next in a long line of family lawyers, but he eventually learned to celebrate my success with me. My mother, on the other hand, supported me wholeheartedly from the beginning.
 
-“Where have you been-” she started, but in my frenzy I accidentally cut her off.
+At the time, I thought I was the luckiest man alive.
 
-“Have you noticed anything weird about John?”
+But as all good things go, time eventually took it all away.
 
-“...like what?”
+A series of unfortunate events would lead me to where I am today.
 
-I sighed. “Like…” I wasn't sure myself what I was asking for, as John had seemed completely normal to me when I talked to him earlier. When I came back a week ago to find him alive on his couch, and today when I came in, he acted as if nothing had happened. “Just anything.”
+First, my father, at the age of fifty-three, was struck by a semi-truck on the highway. Drunk driver. The truck crossed the median and smashed headfirst into his car. There was no open casket.
 
-“Not really. Have you?” I stayed quiet, not able to bring myself to lie. Her answer stumped me for a moment, making my stomach twist. I had anticipated this answer, but it wasn’t what I wanted to hear. “Why are you asking?”
+I might’ve eventually gotten past that, but my mother fell ill right after. The depression from losing my father triggered her dormant heart issues, and I lost her six months later. I wish I could say she went peacefully, but she didn’t. It was long, painful… and I had to watch every minute of it.
 
-I debated telling her what was wrong with John, what had happened to me a week ago. I couldn’t find a way to start without sounding crazy. Dahlia was already looking at me with concern.
+Needless to say, it broke me.
 
-“Last time I was here, did you… hear anything? Unusual, I mean.”
+I withdrew into myself and pushed everyone away. My girlfriend of five years, Katie, tried her best. Eventually, she couldn’t take it anymore. Something about needing someone “more stable.” I can’t say I blamed her.
 
-“I… no.”
+My job suffered too. Too many absences, too little effort, and a few no-call, no-shows. My boss was patient for a while, but grief only buys you so much leniency. Eventually, I lost that too.
 
-“No gunshot?”
+So there I sat, on my twenty-seventh birthday , alone at the kitchen table in my parents’ empty house, staring at a pile of foreclosure notices. Maxed-out credit cards, overdue loans, threats to shut off the utilities.
 
-“Gunshot? What? No…” I stared blankly at her with furrowed brows, with her looking just as confused as me, until she put a hand on my face and rubbed my temple with her thumb. “Did something happen? Are you okay?”
+I buried my face in my hands and sighed deeply. Then, something caught my eye. A glint of metal on the table.
 
-“Yeah, yeah - no, I’m fine.”
+A business card. But not a normal one.
 
-“You feel hot.” She wiped a bead of sweat from my head before I took her hand in mine. She guided me to sit down on the bed, surprisingly firm in her gesture. “Are you sure you’re okay?”
+It was made of brushed steel, cold and heavy in my hand.
 
-She got on the bed next to me, close enough to where her body touched mine. Her hand moved mine to her waist and allowed me to rest it there. From her touch to the way she was looking at me, I took it as an invitation.
+S. Holtman. Fine Arts Collector and History Enthusiast.
 
-“John will be back in an hour.” I reminded her, clearing my throat. I welcomed the topic change and she didn’t press further.
+That was all that was etched into it.
 
-“Isn’t that enough time?” 
+Flipping it over revealed only a phone number and an email address.
 
-“Should be.”
+My lips were dry as I stared at it, my mind flashing back to half an hour earlier, the sound of the front door.
 
-My mind still lingered on what I didn’t manage to tell her while she kissed me. It wouldn’t do me any good to rack my brain over it. While she continued asking in between kisses, curious about my sudden questions that must’ve been nonsensical to her, I realized I couldn't tell her without sounding insane. So I forced myself to focus on something else. I let her straddle my lap and kissed her back.
+It had startled me. I hadn’t had visitors in months, let alone deliveries. With mild annoyance and more than a little curiosity, I’d gone to the peephole.
 
-“Dahlia?”
+A well-dressed, older gentleman stood on the other side. Affluent, composed, smiling.
 
-“Yes?”
+Right before he reached for the bell again, I unlatched the door and cracked it open.
 
-“Where do you wanna go?”
+“Can I… help you?” My voice came out raspier than I expected after so long in silence.
 
-She understood me immediately, and thankfully accepted my refusal to answer. “Anywhere, as long as there's a beach. Somewhere by the coast, maybe south? Just not here. I've had enough of Oregon.”
+The man looked me up and down, then smiled wider.
 
-A beach house with Dahlia. I liked the idea. Away from people, no dark woods around us either. Just us two and a view of the wide ocean to wake up to. I surely had enough savings to get us a place to stay. If only we could be on our way already. I let myself get lost in the fantasy and her company until we heard John’s car stop in front of the house.
+“Charles Langston, am I to presume?” His voice was smooth and practiced, almost oily.
 
-“Did’ya have a nice time?” John asked when he came back. Dahlia had excused herself to the couch, careful with her request, but John granted her privacy with an uncharacteristic kindness. I realized she had learned quickly how to not upset him, much quicker than most people did.
+The hair on my arms stiffened. “Depends who’s asking,” I said.
 
-“Yeah.” I shrugged, watching him pull out two beers from his fridge, handing me one. There was no warning undertone this time, just smalltalk.
+He chuckled softly. “Forgive my lack of manners. My name is Samuel Holtman.” He reached into his coat and handed me the metal card. “That’s my personal contact information. May I come in to discuss a business proposition? Assuming, of course, that you are Mr. Langston.”
 
-“What was up the past few days?” He asked. I stalled by taking a sip, muttering something like ‘*you know, the usual*’, but John didn’t let up. “No, I'm serious. You were doing fine until last week.”
+I hesitated, then stepped aside. Whatever he was selling, I needed the money.
 
-“I don’t know, it was just… you know how I get about this whole thing sometimes.”
+“My name is Charles Langston. Please... come in.”
 
-He gave me a smile, sly and condescending, and I watched him lean against the kitchen island. “There’s nothing to worry about.”
+He nodded and entered before the words had fully left my mouth, like he already knew I’d say yes.
 
-“Not *nothing*.”
+“Yes, yes, let’s get straight to it,” he said, looking around the kitchen with mild distaste.
 
-“How often have you worried and nothing happened?” I didn’t give him a reply. “You’re good at this, you know? Why would I involve you in this if you weren’t?”
+He sat down at the table and gestured for me to do the same. His demeanor shifted instantly from friendly to formal.
 
-This compliment somehow managed to make me smile, much to my annoyance. He pointed it out immediately with a poke to my ribs.
+“I’ll be frank, Charles,” he said. “I’ve done my research on you. I know who you are, and what you’ve lost. My condolences.”
 
-“Whatever..” I gave him a soft push, watching him saunter over to the counter and unpack his groceries. I found myself unable to pull my eyes away from him. John grabbing the food and putting it in his fridge couldn't have been less exciting, but it held me hostage. He was talking about something that had happened while he was out, but I couldn't focus on it.
+He paused. “But that’s precisely why I think you’re perfect for the job I have in mind.”
 
-What was I doing? I had a plan and I was somehow letting myself get paranoid about… what even was it? The more I thought about it - maybe because I had put a week between the initial catalyst and now - the dumber I felt for being so hung up on it. It’s hard to describe, but in a moment of clarity, when I saw John laugh and talk to me and Dahlia, and be so obviously real, I couldn’t believe that the corpse in the woods was real as well. It felt like a figment of my imagination, and try as I might, I couldn’t bring myself to feel the same horror as then.
+I said nothing, just stared, fists tightening on my jeans.
 
-It was a dream. Yeah.
+He continued smoothly. “Your background in Fine Arts, your experience at your previous employment… I need someone who understands what they’re looking at. Someone who appreciates it.”
 
-For some reason, I hadn’t considered this possibility in my week-long isolation. But now that it had suddenly come to my mind, it seemed plausible. More even, it felt like the one right answer. I hadn't ever had dreams as lucid as this one, but it wasn't out of the question. I must've woken up at some point and just mistaken it for real life. It could’ve transitioned perfectly into reality. And I couldn't possibly be dreaming now, because when John had jabbed a finger into my ribs, it hurt.
+He leaned back, the chair creaking. “Still with me so far?”
 
-“I gotta grab something from my car.”
+I nodded meekly. “What exactly would I be doing? And… What's the pay like?”
 
-“How about you help me unpack?”
+He laughed, loud and confident. “Now you’re getting there. It pays well enough that you won’t need to worry about money again. It’s a long-term opportunity, assuming your performance holds. But your first contract will be a 5 day period.”
 
-“In a minute, okay?”
+My throat felt dry.
 
-“Fine.”
+“The work involves managing a personal warehouse for me. A private collection full of old, valuable art. Think of it as security, but with an artistic touch.”
 
-I left the house and made my way down the short path to my truck. This realization suddenly flooded me with tranquility and I cursed myself for going crazy over a dream. Though I supposed, with how real it felt, I couldn't fault myself too much. Nevertheless, I felt calmer. I opened the glove compartment and pulled out my handgun.
+“Why me?” I asked. “Why not someone stable?”
 
-It was only natural to process stress through dreams. How often have my teeth fallen out in a dream because I had a job interview coming up? I could imagine my subconscious working through the nervousness before I got to realize my plan. I let out a short, quiet laugh at this. It was something I would've told John about, and he would’ve laughed too, but that wouldn't happen now. I'd tell Dahlia instead, maybe when we were on our way to the coast.
+He smiled knowingly. “Because you have nothing left to lose.”
 
-This time wasn’t as well planned as the last. Despite my newfound clarity, I hesitated longer than in my dream. It was only a second or two, but John had enough time to turn around and offset my aim. I had aimed square at his chest, but the bullet bore into his shoulder and the impact knocked him against the kitchen island. I cursed under my breath and before John could even say anything above a raspy gasp, another bullet shot through his head and he collapsed. Bits of brain and skull splattered the white marble. I grimaced at the mess getting in the gaps and crevices of the kitchen and considered whether a deep cleaning would be necessary. 
+I froze.
 
-Before the blood could spread I packaged up John’s body in a couple black bags. I couldn’t get to the blood as I noticed Dahlia by the doorframe when I straightened back up. She stood by it, eyes glued to the blood on the counter, then looked at me. 
+He stood, brushing invisible dust from his coat. “Nothing in this world is free, Charles. Nor without consequence. The salary includes hazard pay. Should you choose to accept, contact me via that card. I have high hopes for you.”
 
-“Ah-” I opened my mouth to speak, but didn’t know what to say. She shrunk away when I walked towards her, making me stop. My hands were stained with blood, so I ran them under cold water in the sink. “Hey, it’s alright.”
+He turned toward the door, his smile still fixed in place. “Good day, Charles. I trust I’ll hear from you very soon.”
 
-I approached her again and this time she let me lay a hand on her arm. It left the faintest pink handprint on her shirt, to my dismay. “You…” she mumbled, finally looking up again. She took a deep breath and I nodded, gently pushing her out of the kitchen.
+The metal card wasn’t just heavy, it felt like an anchor.
 
-“I know, I know, I’m taking care of it. I know what I’m doing.” I saw Dahlia’s eyes gloss over and I held her steady by her waist. Her face was growing pale. “I’ll just get this taken care of and then we can-... are you okay?” 
+When the door closed behind Holtman, it sounded final. Like the period at the end of a long, tragic sentence.
 
-Dahlia nodded, but her body became heavier in my arms for a few seconds before she regained consciousness. “Yeah, y-yeah, I’m… sorry, all the blood…” 
+He hadn’t asked if I’d call. He knew I would.
 
-I led her to John’s bedroom, setting her on the bed. “Are you gonna throw up?” I asked, worried by her unsteady breathing and refusal to speak. I gave her a moment in which she just sat and tried to compose herself, staring at nothing in particular. Eventually, Dahlia shook her head. 
+I sat there for three hours, staring at the card. Then I picked up the phone.
 
-"N-no, I don't... think so."
+He was right. I had nothing left to lose.
 
-“Stay in here for a bit, okay?” I said only when I was sure her nausea was mostly gone. Dahlia nodded. “I’ll be done in… I don’t know, it might take me a few hours. I’ll pick you up when I’ve got it all taken care of.” She nodded again, this time laying down on the bed. Her body was shivering. I placed a bucket by her side, gave her a quick kiss on the head and left her to herself.
+My degrees, my passion, my love for Katie, none of it mattered compared to that stack of foreclosure papers.
 
-I spent a tedious hour and a half cleaning the kitchen before I arrived at the clearing and repeated the process. As convinced as I was that this had been a dream, I decided to dig in a different spot. When I had John’s body covered with dirt, my eyes fell on the spot where I had buried him in my dream. I debated with myself whether or not I should check if he was there. I must’ve stood there for at least a few minutes, just staring at the patch of dirt as if hypnotized.
+He answered on the first ring. “Charles,” he said, tone full of satisfaction. “A wise decision. We begin tonight.”
 
-I came to the conclusion that I didn’t need to check, because John obviously wouldn’t be there. I’d just be wasting my time, and if I’d dig up the grave, I’d end up feeling dumb when I’d eventually find nothing inside. I didn’t need to entertain my delusions.
+The address he sent was an hour outside the city, buried deep in a suffocating forest.
 
-I stepped over the spot and left it behind myself as I returned to my car. In the naive belief that the events from last week wouldn’t repeat, I drove back to John’s house. The drive back was filled with silence. I didn’t bother turning on the radio and I tuned out the sound of the tires on the uneven ground.
+Holtman didn’t own a house. He owned a fortress. A massive Gothic-revival manor of dark gray stone that seemed to swallow the light.
 
-I hesitated at the door, and as I reluctantly pressed my ear against it, I heard the muffled sound of soft jazz on the other side. My bodily reaction was immediate, my head swimming as if I was no longer inside my body, but I told myself I wouldn’t let it cloud my judgement. Could it make sense - *yes, it could* \- that Dahlia had left her room and, with John dead, she decided to put on some of his vinyls? I imagined the relief on her face when she saw that I had kept my promise, and I imagined her avoiding the kitchen and choosing to sit in the living room instead, waiting for me. It was convincing enough for me to feel a small shock when I entered and saw John in the kitchen, swaying his shoulders to the music as he cooked dinner. I didn’t bother driving back to see if the body was there, neither the fresh nor the week-old one that I now knew was still buried. 
+It looked less like a home, and more like a mausoleum.
 
-“Oh, look who decided to show up.” John greeted me with a glance over his shoulder, which I barely reciprocated. I looked at Dahlia, who was sitting at the dinner table, holding her glass of water with steady hands. The spot on her sleeve had turned into a desaturated light brown, but I was evidently the only one who noticed. She gave me a smile, a genuine one. “Didn’t I ask you to come over at nine? Where were you?”
+At the wrought-iron gate, a silent, broad-shouldered man named Gus met me and drove me up the long, winding drive. He never spoke. Never looked away from the road.
 
-“What? I *was* here-” But I hadn’t been here, not in John’s recollection at least. I remembered the gap in memory between him and me. “I mean-...”
+Inside, the manor was a labyrinth. The air smelled of ozone and old wood. Every hallway was lined with art: Roman busts, Renaissance carvings, Impressionist landscapes. It was magnificent… and utterly lifeless.
 
-“My *ass* you were here.” he finally turned around, irritation on his face. “Didn’t think about giving me a call or anything?”
+Holtman was waiting in the “Executive Suite.” He didn’t offer a drink. Didn’t shake my hand.
 
-“Sorry, I… got caught up. Work ‘n shit.” I muttered, sitting next to Dahlia. I put my head in my hands as John acknowledged my answer with a grunt.
+He just smiled and slid a leather-bound contract toward me.
 
-“Long day?”
+“Everything you need to know about your compensation and duties is here,” he said. “Your job is Curator and custodian of the most sensitive parts of my collection.”
 
-“Very.”
+He paused, eyes gleaming. “You live here now. Your quarters are comfortable. The salary begins tonight. You are not permitted to leave the grounds until your contract is complete.”
 
-I didn’t go home that day. I stayed for dinner, of which I didn’t eat any. The memory of the bits of brain and blood clinging to the counter killed my appetite. I agreed to watch a movie with them while trying to push down the despair that was starting to set in. Dahlia had definitely noticed it. She was shooting me glances, and the ones I managed to catch looked like she was silently asking if I was okay. I just gave a subtle nod in return, a forced smile before I returned to my tense posture. John was blissfully unaware.
+My primary duty was the sub-level chamber Holtman called The Red Room.
+
+A concrete bunker, sealed by a steel vault door, bathed in an endless, sterile white light.
+
+It wasn’t empty.
+
+Lining the walls were marble and bronze statues, all priceless, all needing maintenance. But the true focus was the easel on the far wall.
+
+On it sat The Observer’s Gaze.
+
+A small, Symbolist painting of a cloaked figure at the edge of a foggy lake.
+
+Technically perfect… but wrong. The cracking patterns were too deliberate, too new.
+
+Holtman stood beside me, hands folded neatly behind his back. “Tell me,” he said softly, “what do you see that is irregular?”
+
+I leaned in, professional instinct kicking in. “The varnish is new. The canvas is aged artificially. The pattern’s been forced.”
+
+He smiled faintly. “Precisely. The painting is unstable. It requires precision to maintain its state. The hazard, Charles, is not an intruder. The hazard is failure to pay attention.”
+
+He handed me a small ledger and a cheap digital watch.
+
+“You’ll start tonight, eight hours. Everything you need to know is in the book. Understand this: your life depends on following every rule perfectly.”
+
+He turned to a typed page in the ledger and read aloud.
+
+"Rule One: The Thirty-Minute Report. The painting must be observed and verbally logged every thirty minutes, on the minute.
+
+Rule Two: The Gaze’s Denial. After the report, you must not look at the painting for the next twenty-nine minutes.
+
+Rule Three: The Proximity Test. Once every night after four hours, you must touch the paint with your bare hand for five seconds."
+
+He closed the book gently. “Do not forget, Charles. Precision keeps you alive.”
+
+The heavy steel door closed behind me with a deafening clunk.
+
+I checked my watch: 11:58 PM.
+
+Two minutes until my first report.
+
+I had two minutes to memorize three absurd rules.
+
+It felt childish. Like “don’t step on the lava” for grown-ups. But the money was real, and the rules were the only thing standing between me and homelessness.
+
+12:00 AM.
+
+The lights flicked from white to a deep red. The shadows became darker and gave the room a deeper feeling.
+
+“Status report, twelve A.M.,” I said into the silence. “Figure is stationary. Environment static. No visible change to color or cracking pattern. Paint layer stable.”
+
+I logged it in the ledger. Then I turned away, obeying Rule Two.
+
+That’s when the real isolation hit.
+
+The statues around me, cold marble, gleaming bronze, felt less like art and more like silent witnesses. Their eyeless faces seemed to follow the pulse of the red light.
+
+I cleaned the headless marble torso, forcing my attention to the texture of the brush against stone. The silence pressed against my eardrums. Every breath, every heartbeat sounded deafening.
+
+My work began quietly, ignoring the pressure of the room and the staring blank faces around me. I like to pride myself on being a rational man, but even a rational man gets unnerved once in a while. Still, my work went smoothly.
+
+I made it to 12:30 AM. Perfect timing.
+
+Turning back to the easel, shining the penlight onto the canvas.
+
+“Status report, twelve-thirty,” I announced. “All things normal. No...”
+
+I froze.
+
+Where the shadowed hood had been pitch black before, there was now a faint sliver of pale pigment. No bigger than a grain of rice.
+
+It looked exactly like the tip of a fingernail.
+
+The rule demanded I announce every change. But my brain refused. To speak it aloud would make it real.
+
+So I lied.
+
+I logged the report as normal, adding a note about “possible pigment contraction due to temperature.”
+
+And that was my first mistake.
+
+I turned away again, cleaning the next statue, but I could feel the painting behind me. Watching.
+
+At 12:35 AM, I heard it. The soft drag of fabric across stone.
+
+Then a faint, rhythmic tapping. Like a fingernail on bronze.
+
+The satyr statue’s reflection seemed… wrong. A shadow passing behind me.
+
+I almost turned around. Almost.
+
+Instead, I stared at the marble bust in front of me and realized the emperor’s head had tilted slightly toward me.
+
+Its eyeless gaze was locked on my back. Then I heard it.
+
+I froze.
+
+In the farthest shadow, a human shape seemed to coalesce, faint, tall, and watching.
+
+It’s the light. It’s fatigue. It’s my mind, I told myself.
+
+I clung to rationality like a lifeline.
+
+My hands continued moving on the statue and I pretended to not notice the looming shadow. My breath quickened and I fought with every nerve in my being to not turn and look.
+
+I somehow knew If i did, things would not go well for me. 20 minutes passed like that as I scrubbed the same statue over and over, it's blank eyes boring into me. Then it disappeared from the corner of my eye, and my breathing finally returned freely.
+
+I turned slowly and walked to where I had seen it. Nothing.
+
+A slight nervous laugh came from my mouth as I began to work again and convince myself I was being ridiculous. I was just tired.
+
+At 12:57, I stopped cleaning and walked back toward the easel. I’d followed the rules. I’d survived the hour.
+
+I spent the next 7 hours, from 1 AM to 8 AM, in a state of hyper-vigilance, successfully completing the rest of my maintenance and my 4 AM Proximity Test without further incident.
+
+It was an unnerving, agonizing experience, but I survived. I convinced myself right then and there that the painting hadn't shifted. I just hadn't noticed it before.
+
+But when Holtman's assistant, Gus, unbolted the steel door and let me out at 8:00 AM, my first night was over. The relief I felt was overwhelming.
+
+I walked back to my quarters, the morning sun streaming through the manor's ornate windows. The light felt weak, almost fake, after the perpetual red gloom. I looked down at the ledger.
+
+A simple enough job so far. Nothing to worry about except my own mind playing tricks on me.
+
+The job felt simple, the hazard pay a bonus on top. I didn't know why Holtman felt the need to mess with me mentally, but I knew I would be back in the Red Room at 11:58 PM.
+
+By next evening, Holtman called it “a good first night.” His voice was flat, businesslike, as if I’d cleaned an office.
+
+He asked only one question: “Did you follow every rule precisely?”
+
+I hesitated, and that hesitation was all it took for him to smile.
+
+“Be careful, Charles,” he said. “Deviation invites attention.”
+
+Attention. That word lingered in my mind all day.
+
+By the second night, the Red Room felt different.
+
+The hum of the light wasn’t constant anymore, it pulsed faintly. Like breathing.
+
+Gus escorted me down the hall as before. He didn’t speak, didn’t meet my eyes. When the vault door closed, it sounded heavier than the night before.
+
+I checked my watch. 11:58.
+
+I took a deep breath and fixed my eyes on the easel. The figure stood motionless, as if waiting.
+
+12:00.
+
+“Status report, twelve A.M. Figure stationary. No visible alteration. Paint layer intact.”
+
+I logged it and turned my back, obeying Rule Two.
+
+I forced myself to focus on the statues again, dusting, cleaning, pretending this was just another job.
+
+At 12:11, I froze.
+
+A sound.
+
+Not loud, just wrong. A faint creak, like stretched canvas.
+
+I turned halfway before catching myself, stopping just short of breaking the rule.
+
+“Don’t,” I whispered to myself. “Twenty more minutes.”
+
+My breathing sounded like thunder in that room.
+
+Something tapped the floor behind me. Once. Twice. Three times.
+
+A cold wave washed over my whole body, my limbs freezing up. It had come from the painting. I knew it, but couldn't explain how.
+
+I clenched my jaw and gripped the broom in my hand like a weapon.
+
+Then like a prey being stalked by a predator, I felt eyes on the back of my head. Something was watching me. Stalking.
+
+Every ounce of my being screamed at me to turn around. Face the threat before it attacks me unguarded. But just as I was about to turn and confront it, Holtman's words echoed in my head.
+
+“Be careful, Charles, Deviation invites attention.”
+
+I snapped my eyes shut and forced myself to breathe deeply, listening as more creaking and tapping happened behind me.
+
+My figure stood motionless in that room, the red light bathing me from above and highlighting every statue's gaze. Everything, all of them. Had they all been looking at me before?
+
+Time seemed to stop and I did nothing but wait, immobilized by fear.
+
+My eyes flew down to my watch.
+
+12:25 AM.
+
+By the time my watch hit 12:29, my heart was slamming against my ribs.
+
+I turned around the moment the second hand hit 12:30 and all the pressure vanished.
+
+The sensation of being watched evaporated instantly, and my lungs no longer felt crushed.
+
+I scanned the area around the painting, looking for any signs of... something. But nothing was there.
+
+Another nervous laugh came from my throat, ready to chalk it all up to paranoia again.
+
+“Status report, twelve-thirty,” I said quickly, just to fill the air. “Figure stationary...”
+
+The words caught in my throat.
+
+The figure’s head, that faint shadow under the hood was no longer centered. It was turned slightly to the left.
+
+Toward me.
+
+Its eyes were gazing underneath the hood, tiny pinpricks of white looking directly at me.
+
+The paint along the neck was thicker, darker. Like someone had touched it while it was wet.
+
+My hands wrote what my mouth refused to admit.
+
+I forced my hand to write in the ledger. “A shift in the painting. The.. the eyes now stare at me. The neck turns to face the room.”
+
+I sat there for a long moment, refusing to break eye contact with the hooded figure before the noise on my watch broke me out of a trance.
+
+12:32.
+
+I had broken rule 2.
+
+That finally forced me to say it out loud.
+
+"The hooded figure now looks at me. Head turned slightly."
+
+Then I turned away again, faster than before.
+
+But I could feel it behind me. Watching. Aware.
+
+Something shifted after that. Something changed. It was as if calling out it's changes verbally acknowledged it and encouraged it's behavior. The activity escalated. The painting no longer content on staying the same.
+
+Hours passed, each thirty-minute cycle a new test of endurance. Each cycle the head turned a bit more in my direction. As if trying to face me fully.
+
+Then came the four-hour mark - the Proximity Test.
+
+I approached the painting cautiously, counting my steps.
+
+There the figure stood, closer than ever. It's white eyes cutting through the red light. Looking deep into my being.
+
+I placed my hand flat on the frame for five seconds. One… two… three… four… five.
+
+The surface was cold and smooth, but something prickled the back of my neck. The red light seemed harsher now, casting shadows that didn’t belong.
+
+The statues bronze satyrs, Roman busts, marble torsos all seemed closer somehow, more imposing. I focused on the frame.
+
+Pulling back, I felt the room exhale with me. The figure in the painting had shifted slightly, just enough to make me aware I wasn’t alone.
+
+When Holtman came in the morning, I didn’t speak at first. I couldn’t.
+
+He scanned the painting with a slow, professional eye, then nodded once. “Acceptable.”
+
+“What happens,” I finally managed, “if I break one of the rules?”
+
+He smiled soft, almost kind. “You already have, Charles. But it seems you survived it.”
+
+He turned toward the door.
+
+“For now.”
+
+By the third night, I had lost track of how many hours I'd been awake. The Red Room was no longer a room. It was a machine designed to watch me, measure me, and break me.
+
+But tonight felt different. Tonight, the figure in the painting had moved again substantially. The hooded head was now fully turned toward where I stood during reports.
+
+And beneath the cloak, I could see the suggestion of an arm, extended, as if reaching toward the frame's edge.
+
+I logged it mechanically, my hand shaking as I wrote. "Figure rotation approximately 45 degrees. Arm extension visible beneath the cloak. Pigment darkening along edges."
+
+I was so focused on the painting that I almost missed it.
+
+As I turned away to begin my cleaning routine, my foot caught on something—a loose floor tile beneath one of the marble statues.
+
+It shifted.
+
+I froze, staring down at the concrete floor. The tile was slightly raised, deliberately loosened. I glanced at my watch: 12:07 AM.
+
+Twenty-three minutes until my next report. Kneeling down, I pried the tile up carefully.
+
+Underneath was a small hollow space. Inside a crumpled piece of paper and something else. Something small and metallic.
+
+A key. My hands trembled as I unfolded the paper. The handwriting was frantic, deteriorating across the page:
+
+Day 3 - Still time. Found something on the second floor of the East Wing — master key in the kitchen drawer, third one down under silver. Day 4 - Checked the rooms. Oh God, there are so many. Same age, same story, same desperation. Counted at least 10. How long has he—? Day 5 - I can feel it pulling now. The painting knows. Tried to leave. Gus stopped me. Locked in until shift. No time, no time. If you're reading this, you're already feeding it. Check the painting's date. Check when it was made. Check who made it — not a collector. HE'S THE-
+
+The writing devolved into illegible scratches, then stopped completely.
+
+Below it, in calmer handwriting, like it had been written earlier, before the panic. There was a single coherent line:
+
+Kitchen key is a copy. Mine's under the tile. Third drawer. East Wing. Find the truth. —M.R....
+
+I stared at the note, my pulse thundering.
+
+The message was fragmented, panicked. Whoever M.R. was, they'd been in the same position I was now. Curator, prisoner, victim of... something.
+
+But they'd found something. Something in the East Wing.
+
+Something about Holtman.
+
+I checked my watch: 12:29 AM.
+
+I quickly pocketed the key and note, replaced the tile, and stood just as the second hand hit time.
+
+"Status report, twelve-thirty A.M.," I said, my voice hollow. "Figure orientation shifted forty-five degrees. Arm extension visible. Significant pigment darkening along the lower quadrant."
+
+I logged it, my hands shaking so badly I could barely write.
+
+Check the painting's date. Check who made it.
+
+I looked back at the painting. Really looked at it this time, not at the figure, but at the frame.
+
+In the bottom right corner, barely visible in the red light, was a small brass plate.
+
+I'd never noticed it before.
+
+I approached slowly, squinting at the engraved text:
+
+"The Observer's Gaze" S. Holtman, 1924
+
+My blood went cold.
+
+Samuel Holtman.
+
+The man who'd hired me, who looked maybe fifty years old had created this painting a hundred years ago.
+
+That was impossible.
+
+Unless...
+
+I stumbled backward, my mind racing.
+
+The painting wasn't just old.
+
+And Holtman wasn't just a collector.
+
+I had to get to the East Wing.
+
+I had to find out what M.R. had discovered.
+
+But first, I had to survive the rest of this shift.
+
+\-End Part 1
