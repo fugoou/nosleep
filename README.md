@@ -1,270 +1,156 @@
-# All We Do Is Take - Entry One
-“I promise, every piece I take will be painless. So long as you promise to do me the same kindness when it’s your turn,” he said.
+# My High School Crush Works as a Dog Psychic and She Found Something Strange
+Have you ever heard someone’s voice you recognize call into a podcast? Once, while sitting in traffic listening to one of my favorite comedians’ podcasts, my high school crush called in. Her voice, raspy and sweet, brought me back to high school.
 
+Jade is unforgettable because she didn’t forget me on the first day of high school. Coming in halfway through the year, my new school assigned me a ‘buddy.’ My ‘buddy’ wasn’t interested in sitting with me at lunch. Guess who was? Jade.
 
+Maybe the star-shaped brown birthmark plastered on her face made her understand what it was like to be an outcast. That beauty mark on her face could never stop me from having a four-year-long secret crush on her.
 
-How many times had I heard those words? How many times had I said them to him? How many times had we made good on that deal? How many times had we not? Everything has a price. Everything.
+Chasing her affection was a constant subplot in my high school story. Sprinting between classes to find her and dancing over the line between friendship and flirtation in cherished hallway moments were my daily quests.
 
+Our classmates predicted we’d end up dating. Rumors would come to me that she liked me. Jade heard the same rumors. But someone liking me that much seemed impossible. No leaps of faith for me to ask her out, but if you don’t leap, you’ll drown.
 
+Jade’s voice drowned my hope when she told me someone asked her to the homecoming dance freshman year. It took until senior year prom for our romance to meet a climax. What a night we had. Jade’s voice was scratchy and deep—a baritone for a woman. She was mocked for it in high school, but it also had a do-gooder level of innocence.
 
-I didn’t know I was paying for anything, or paying with anything until Sunday morning. My usual nightly ritual of waking up right before dawn with a guttural scream was uninterrupted. The dark of my room blocking my vision allowed me to feel the texture of drenched sweat in the sheets and scorch in my vocal cords much more vividly than I ever preferred.
+Even as a grown man, sweating in his suit in his car without air conditioning in the LA sun and sitting in five o’clock traffic, Jade’s voice had me floating away, smiling, and dreaming of better days.
 
+My world had a breeze. For once, I enjoyed traffic because it allowed me to enjoy my old friend.
 
+I’ll change everyones’ names to respect her. This was the voice message she left seeking the comedians’ advice:
 
-Another dream. With him within. There weren’t many dreams I had that weren’t with him. Black stubble around the chin, those piercing blue eyes, that crooked smile. A table made of wood, soldiers with pikes and polearms around me were feasting, he was next to me. A great battle on a field, my feet splashing up blood in puddles, he marched beside me. Topless women in a brothel squeezing good coin out of patrons, he was across the bar a lady in his lap and mug raised to me. No matter the place, no matter the context, he always showed up.
+“So, I’ve been doing bookkeeping for a local psychic here. It’s just me and the psychic—we’re the only employees. She sat me down the other day and told me business hasn’t been great.
 
+“But pet psychics have been really big lately, so she’s thinking of bringing one on, which is just people who do readings on pets. I said, ‘Okay, that sounds cool.’ Then she offered me that position. I do not possess psychic ability.
 
+“She basically told me she wants me to lie to these people and tell them that I can communicate with their dead animals. But I would be paid double what I earned and obviously less work. So right now, I’m doubting everything she’s ever told me.”
 
-The endings were always the same however. The inside of a dark chamber with stone walls, lit by an unseen hearth. One of us in the other’s arms, pouring blood and bile from a wound. A cloaked figure standing behind us holding a chain weaved through severed fingers and tongues. It touches us, searing pain shooting into our brainstem. It’s then I wake up.
+The professional funny men burst into laughter.
 
+“Wait, wait, wait,” one said—let’s call him Davy. “You were working for a psychic and you thought this was real?”
 
+The two laughed at this for a while. Usually the laugh of the main host—something between a great uncle’s gaffe and a wheezy supervillain—gets me to laugh, but Jade’s predicament made me feel bad for her.
 
-Trying to wipe the memory of the cloaked figure from my mind until our next nightly meeting, I brushed the hair away from my face back atop my head. Something about it felt off in my hand, like new tufts grew overnight. I reached up with the same hand and felt the strands to find the same feeling between my middle and ring finger. My ring finger. Like the hair passed through it as if incorporeal. Slowly my other hand rose and met its counterpart and felt around the fingers. One. Two. Three. Four. Four. Four?
+The comedians cooked Jade to a crisp with jokes that normally don’t bother me, but again, this was about Jade. With one minute left, they got to the actual advice portion.
 
+“You have the opportunity to learn the truth,” Davy said and coughed away a laugh. “Like, it seems like being honest is something that matters to you, so you thought you were helping people. Maybe dig into that. You could do bookkeeping for something that’s truthful. Yes, you’ve been lied to, and it does suck, but the fact that you care about lying to people is unique and says a lot about your character. You don’t want to go down this path of lying to yourself.”
 
+“Nah,” the other comedian said. Let’s call him Danny.
 
-With a worried gasp I shot up from the soaked mattress, ran to the wall, flipped the switch, and was illuminated. It was gone. The finger was gone. Between the first and second knuckle a patch of skin grew over the knob like an age old wound.
+“What do you mean, nah?”
 
+“Forget all that, just lie to yourself,” Danny said.
 
+“Danny?”
 
-“What the fuck?!” I muttered under my breath, my panic taking away any potential for shouting. “What the fuck?!”.
+“Don’t be evil, but lie to yourself. Only accept money from nepo babies and rich idiots.”
 
+The funny men laughed, but Davy forced himself to become serious.
 
+“I mean, yeah,” Davy said. “Look, we’re lying to ourselves right now. It’s not going to be a bunch of nepo babies and rich people. It’s going to be a bunch of poor people who always fall for scams. Look, you care about truth. That’s rare. Go and seek truth.”
 
-I dashed back to the bed and scanned the blotches of perspirant for any sign of red. Nothing. Rifling through the sheets next I found no detached appendage hiding within the folds. The digit had disappeared, leaving nothing but a half inch lump of flesh as a goodbye.  
+“Well, those are your options: lie to yourself and lie to people and make great money, or be honest and be a broke loser,” Danny said, and the call moved on.
 
+The episode was a month old. Jade had heard it by now. My phone was in my hand before I knew it, searching through her LinkedIn to find out what she chose. A horn blared at me because I had to go a couple of inches forward.
 
+Buddy, we’re stuck here. I’m not moving for the delusion of getting to our destination sooner. Huh, I guess he was lying to himself as well.
 
-My next surprise was the clock on my wall chiming 7:00am on the dot. I was gonna be late for work. Leave it to America to pressure you into feeling bad for a late clock in when you’ve just lost a finger. But I needed the job and I couldn't handle finding another. And how do you explain that? Someone would notice. Lena would notice.
+Anyway, nothing on LinkedIn about any job. Next, I checked Facebook. The guy blared his horn again. This time I ignored it because her Facebook showed where she worked: Madame Z’s Readings. With the guy behind me going ballistic, I made my appointment. The drive made me realize how much I missed Jade.
 
+Although I didn’t have a pet alive or dead that I wanted to talk to, I lied on the application form. “Didn’t want to” is maybe a stretch; “afraid to” is more like it.
 
+I had one pet, and it died in 24 hours, so I never had the heart to get another. It was a frog I found and stuffed in this cheap plastic container with air holes at the top. It probably felt like prison for it. How unfair was that? You’re living your nice little frog life, then some kid enslaves you. Anyway, I named it well: Starfire from Teen Titans, my first crush.
 
-I swallowed my fright best I could and scrounged around my 400 sq/ft hovel for a solution. In a drawer rested my sleek winter gloves which I had retired for the season seeing as how it was July. But I was out of time and out of answers so on they slipped and out the door I went.
+As a kid, I lived with my grandmother, my best friend, the sweetest woman, but she dropped out of middle school as a child, so she didn’t know that not all frogs could breathe underwater 24/7.
 
+So, trying to help make Starfire comfortable, she accidentally drowned it by filling its water to the brim overnight. Starfire died. Devastated, I vowed to never have a pet again.
 
+Thinking about that still made me sad. I never told anyone that story, and I didn’t think telling “Madame Z” was the best time to share. So I made up a short story about a dog named Zippy. I’d keep my story with Starfire to myself and my long-deceased grandmother.
 
-\* \* \*
+Madame Z’s Readings sagged between an adult video store (didn’t know they still had those) and an adult arcade, a place notorious for the poor and addicted to gamble away their money. Both places seemed to take more care in their appearance than Madame Z.
 
+I imagined the type of person who would go to all three in one day.
 
+Walking in, I faced the entrepreneur herself. She stood behind a foldable table with a cash register on it. Behind her hung a poster board menu of various marijuana edibles, so I guess they doubled as a dispensary.
 
-If, in orientation, a company states they are a “family” do yourselves a favor and run. The Super Steal Grocery had it plastered all over their slideshow when I showed up on my first day and after three years I can say without a doubt if there’s a hell it has numbered aisles. I stepped into the fiery automated gates of the Super Steal, heart still pounding and mind still racing as to the location of my extremity.
+“Mr. Adam, nice to meet you,” the psychic said and shook my hand. Have you seen the movie Holes? If so, you’ve heard the accent Madame Z was faking. Fake Romanian accent and stereotypical clothes: a baggy colorful dress bouncing with every step, hoop earrings swinging with each dramatic gesture, and a head wrap close to slipping off at all times.
 
+“You as well,” I said.
 
+“Come, let us begin.”
 
-“Just get back from the slopes?” A woman’s voice called out. Lena’s voice.
+With no sign of Jade, I had to make a move.
 
+“Hey, sorry if this is awkward, but um, and I don’t want to change anyone’s schedule. I can come another day, but um, could I see the other girl?”
 
+“What other girl?”
 
-I snapped my head to the origin of the joke to see her standing at her usual spot at the check out. Her hair done up and clothes picked out as the rulebook specified. She smiled and waved at me. I eked out a nervous grin and started to raise my injured hand, stopped myself, lowered it, raised the other hand, and waved back. A joke from Lena usually warranted a response from me so when I abruptly walked away into the maze of shelves, she glowered.
+“Oh, um, woman or um… they, if they’re going by that… I don’t know.”
 
+“Mr. Adam, I’m the only psychic that works here.”
 
+“Oh, but I thought…”
 
-I rushed to the stockroom, slapped on my name badge, and spun around to dash for my first u cart when I was stopped in my tracks by David. My manager, the ever watching eye drenched in powder blue and horrible khaki. A man of which you get the impression his much younger wife starts drinking at noon. Apparently she started earlier today as David’s face was not pleased. Not pleased less than usual anyway.
+“Maybe you are seeing into my future, Mr. Adam. Maybe you have the sight. We are hiring more psychics if you’re interested.”
 
+Jesus, lady, you never stop recruiting, huh?
 
+“No,” I said. “Um, sorry, I just thought…”
 
-“It’s 7:35. Did you know that?” he sighed.
+Madame Z’s thin, cold hand grasped my face and pulled me close. She tapped her long acrylic nails on my face.
 
+“What pretty eyes. Surely, they see something… missing. No? That’s all the sight is. Seeing gaps in the world that others can’t. What do you see missing, Mr. Adam?”
 
+“Just personal space,” I said with squished chipmunk cheeks.
 
-“I was awa-,” I began, then cut off by David’s nasally, piercing drone.
+Madame Z pulled away.
 
+“No, Mr. Adam, I’m the only psychic that ever has or ever will work here.”
 
+She led me to a room only a couple of steps wide with black walls and blacked-out curtains and a circular table covered in black cloth.
 
-“Twenty minutes. As opposed to 7:15. Your start time,”.
+“Now, let’s talk about your pet, Zippy. What a name.”
 
+A husky puppy scurried from under the table and through the other door, so quickly I only saw its tail.
 
+“Oh, um, is that your pet?”
 
-He had this way of getting to a point without ever really arriving at it that drove me crazy. I stood there in silence. He stared at me expecting a response to a question he never posed. But apparently my silence was good enough as he grunted and moved on to his next subject.
+“No, I own her. Just a puppy. Some clients prefer to have one in attendance, but I sense you won’t be needing her. Right, Mr. Adam?”
 
+“Uh, yeah, sure, I guess not.”
 
+Madame Z made some fake conversation with Zippy, and everyone got what they wanted, I guess. I got to see that Jade didn’t take the job. Madame Z got paid. And I figured Jade, wherever she was, got what she wanted as well.
 
-“What’s with the gloves?” David snarked.
+On my way out the front door, the same puppy scratched at the door like it wanted to leave. It barked incessantly, making a scene. It scratched the door and pushed it, making the bells on the door sing.
 
+It was blocking my exit, and I didn’t want the dog to escape, so I got on one knee and called for it.
 
+“Hey, girl. Hey, girl. Come here, girl,” I said, and the dog turned to me.
 
-“Oh… uh…” I looked around for any help, luckily I found it stacked all about. “The boxes,”.
+Once it saw me, it dropped its mouth in surprised silence. Something I had never seen a dog, much less a husky, do. We stared at each other, eerily. The husky had a brown patch on the side of its face, almost identical to Jade’s.
 
+My face crunched. I couldn’t speak. Sound. Words. I couldn’t make them. How do you say what you’re thinking when I’m thinking this and sound sane?
 
+My heart hammered, then slowed, then trickled. The chime of the door stopped. The gentle hum of the husky’s breathing was the only noise.
 
-“The boxes?”.
+But why did a dog look like Jade? Why did this happen? What is this?
 
+“What?” I said to the dog as if it could answer. “Wait, no, wait.”
 
+Silent, frozen, we watched one another. A single tear plopped down the dog’s face.
 
-“Dry hands, y’know? Figure I’d try something different,”.
+“Jade, come!” Ms. Z commanded the dog, and with a pitiful whimper, the husky dragged itself to her.
 
+“What?” I stuttered out. “What’s her name? You said Jade?”
 
+“You should be able to leave now, Adam.”
 
-“Gloves are not a uniform standard. Get some lotion. And show up on time,” David finished, then quickly walking away before I could respond.
+“Madame, uh, Madame Z. Who does your books?”
 
+Madame Z did not answer me. The beast looked back at me. Mouth dropped, tongue hanging and swinging like a noose on a chill Sunday morning. But in that sweet, deep voice that could be Jade’s, the husky spoke.
 
+“Starfire said she does not forgive you.”
 
-I would’ve worried more about David if I thought he’d be worth the capacity to worry. After that ordeal I stormed off, a cart stacked with various super processed cereals, and got to work. If it wasn’t for the empty finger sleeve of the glove getting caught under heavy tins, I might’ve had five seconds of a clear mind. But that wasn’t in the plans.
+The words chilled me to my core. There was no way on Earth she should know about that. I pushed my way out of the door and ran for at least three blocks until I was comfortable enough to stop and call an Uber. I haven’t gone back there since. I won’t go back there.
 
+The comedians were wrong about there only being two options: lying to yourself or finding out the truth. Jade did try to lie to herself, but unfortunately, she found a much stranger truth. Truth mankind was never supposed to know.
 
-
-I mean really it wouldn’t be a clear mind, how could you not constantly think about it? Between the mac and cheese boxes and the peanut butter jars I hypothesized theories. Perhaps a parallel dimension butted up against ours and other me, minus one counter, and I fuzed? Or maybe I hadn’t woken up yet, a vivid dream mimicking my life trying to parse through years of trauma symbolized in a lost finger? Had I lost it a long time ago and through some complicated self delusion thought I had it? But why would I decide today of all days to let the delusion go? None of my calculations added up, as you would guess.
-
-
-
-Almost done with the day and not nearly done with my panic, I was caught off guard by a tap on the shoulder. Turning around I saw a receding hand with all fingers counted for, connected to an arm, connected to Lena. She smiled at me. I smiled back.
-
-
-
-Lena was the only person in this town or in my life I could really call a friend. She had moved here with her parents last year to finish out high school and worked part time. I trained her and she immediately weaseled her way into my life, a feat all my past friends said was impossible. She had good magnetism like that, knew who to pick and who they were. I mean I’ve been out of school for almost 8 years and she’s almost out. That’s a very creepy combo if you pick the wrong “pal”. But she never did. She was good like that.
-
-
-
-“Hey, nerd, what was with this morning?” she asked.
-
-
-
-“I-I mean I was already late and-” I stuttered, and she laughed.
-
-
-
-“I’m fuckin’ with you. I was just wondering if we’re still on for Tuesday,”.
-
-
-
-Tuesday. I had completely forgotten. The boardwalk festival. It was her first and as she put it she ‘wanted a townie aka me to show her all the good digs’. I didn’t know how I felt about being called a townie. Or being one.
-
-
-
-“Yes. Definitely. Still happening. Yep,” I covered my absentmindedness. 
-
-
-
-“Good. Now get to it glove man,” she said as she walked away.
-
-
-
-“Glove man? You’ve done better,” I called to her.
-
-
-
-“I’m sure I will later,” she answered back one last time.
-
-
-
-Bouncing between my existential dread and the plans with Lena made the day go by pretty fast but not enough to forget to punch out and leave as soon as permitted. As I exited the Super Steal I was warned to a presence at my right side. Before I got a chance to look, the presence spoke.
-
-
-
-“Sir?” he asked me. 
-
-
-
-I turned around, and at the sight of the man another medical miracle happened upon me. In the onset of great fear or shock sometimes the lungs will reverse their function and squeeze the breath out of themselves, leaving a pseudo suffocated feeling within the user. I was pseudo suffocating.
-
-
-
-The seemingly homeless man had that black stubble around the chin, those piercing blue eyes, that crooked smile. Him. From within. The man who only my dreams allowed visitation. Right in front of me. Like he leaped from my brain onto the pavement.
-
-
-
-“I think we should talk,” he said.
-
-
-
-“Get-get the fuck away from me,” I stammered. If it was a hallucination: I didn’t want to talk to myself in public. If it wasn’t: I had no interest in whatever he brought with him.
-
-
-
-I sped my way down the parking lot, glancing back at him to which he gave chase but only for a moment before falling back.
-
-
-
-“It’ll only get worse until you talk to me!” he shouted across the concrete and cars.
-
-
-
-Nope. I had clearly snapped. I had problems, some of which affected me since childhood. But never had they manifested. Literally. I glanced back once more to see the man had gone, then immediately whipped out my phone and dialed.
-
-
-
-\* \* \*
-
-
-
-“I told you Dr. Adler I just need a new prescription,” I told my therapist after being scurried into his office. “I’m not doing well off of them,”.
-
-
-
-“Well my boy I haven’t seen you in some months, I think a session would help me understand,” Adler motioned me to sit. Reluctantly I did.
-
-
-
-Another billable hour, good for him. Dr. Adler was my therapist as you may guess. And at this moment the only thing keeping me from blurting out a delusional rant was the fact his office couch’s springs were stabbing my ass like a downed gazelle.
-
-
-
-Dr. Adler had the same wording condition as David, although he was paid to; David was just born annoyingly vague. He pulled out his notebook and casefile on me and got to work staring me down and scratching his chin at me. I got to work figuring out a way not to be sent to the hospital.
-
-
-
-“I’m feeling… unstable. Like all of the pieces of me aren’t there?” I tried to explain. Don’t blame me, ironic metaphor was all I had.
-
-
-
-Adler scribbled a word or two down. “And what is the source of this uneasy feeling?”.
-
-
-
-“I don’t know. The nightmares won’t stop. My job is hellish. I have a pick of the litter for sources to my problem. But I know the solution which is why I’m here for my medicat-”.
-
-
-
-“Your mother, did she reach out at all since our last session?”.
-
-
-
-This is what I meant, he asked this knowing the answer already. And I know he did it because shrinks want you to get to the answer yourself for impact. The only problem was we had this mother breakthrough 4 years ago. See, I was a paying customer and Dr. Adler knew without better quality treatment there was nowhere else to go for me. But then I wouldn’t pay him anymore. So he took a note from the bible of all television stations: if all else fails, re-run it.
-
-
-
-But there was a snag with his approach: it was something completely different. It was a missing appendage, a dream talking to and following me. I had lulled Adler into a sense of routine, that there was no more to me. Why would he have reason to assume something else? He wanted to go no further because to him I was open and shut. I couldn’t go any further because what was happening to me only happens to padded cell patients. I knew I just needed the meds, so I played along. Open and shut.
-
-
-
-“No, she has not. I told you we went no contact,” I said quietly.
-
-
-
-“Does it maybe hurt you that it’s so easy for her to respect that wish?” he asked.
-
-
-
-“No. I don’t know. Maybe. But I know it’s for the best,”.
-
-
-
-“People with trauma sometimes develop an unhealthy relationship with it. For the first time your life is becoming stable and thus you feel the opposite because it is ‘uncharted territory’,”.
-
-
-
-He wasn’t wrong. But he scored a goal on a completely different field than mine. My mother was a touchy subject for me, one I don’t care to go into right now. I knew I wasn’t going to get anything from him. I didn’t really, from anyone. I was never one to have groups of friends or family until Lena. And I knew I couldn’t tell her either. I was used to being lonely, but the feeling of loneliness always rears its head to remind you in new and piercing ways. An unsolvable puzzle that made you not only the solver but the puzzle itself, enthralled in its twisting mazes leading to nothing. 
-
-
-
-I played along with his act for the rest of the session, both of us catching one another staring at the clock. I stood up at the chime of the hour, he stood as well handing me a script and I exited. I spent the rest of the night downing a pill with water, staring at my ceiling until my eyelids could no longer take the weightless weight of sleep forcing them to shut.
-
-
-
-\* \* \*
-
-
-
-He layed in my arms this time, crimson leaking from a slash to the stomach that had found its way also exiting the mouth with each rattled breath. The heat from the hearth warmed my back inside my armor, I wiped the blood away from his mouth. 
-
-
-
-“Anything?” the woman said, her chains with bloody pieces strung around it clanging about as she paced about us, taking us in for all our mortal weakness.
-
-
-
-“Anything. Just save him,” I say back to her, desperation stuck in my throat.
-
-
-
-And of course, after all of this, I woke up again.
+I like to lie to myself as well, because I’m never going back [there.](https://www.reddit.com/r/Finchink/)
