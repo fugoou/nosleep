@@ -1,156 +1,84 @@
-# My High School Crush Works as a Dog Psychic and She Found Something Strange
-Have you ever heard someone’s voice you recognize call into a podcast? Once, while sitting in traffic listening to one of my favorite comedians’ podcasts, my high school crush called in. Her voice, raspy and sweet, brought me back to high school.
+# I think my family is erasing someone from existence, and I'm the only one who can remember
+I never really knew my paternal great-aunt, Annette. My family are, for the most part, quite tight-knit, and my mom’s and dad’s sides get on great together, but she was the exception. Her life was one of solitude, and that was the way she liked it. She’d never married or had children of her own. I knew that she was an avid birdwatcher, because my dad mentioned it once or twice, she only ever left her house to do her weekly shopping, and that was about it. I’d been to her house only once or twice, I’d say, and that was when I was a very young child. I remembered it smelling like mould, and I remember thinking she was nowhere near as nice to me as her sister, my grandma was.
 
-Jade is unforgettable because she didn’t forget me on the first day of high school. Coming in halfway through the year, my new school assigned me a ‘buddy.’ My ‘buddy’ wasn’t interested in sitting with me at lunch. Guess who was? Jade.
+When she died a few years back, most of the family went to her funeral, but I remember thinking that they seemed to be mourning the idea of her more than they were actually mourning her. Dad had passed away by then and so had grandma, so I was her only remaining family. That’s why it fell to my Mom and I to settle her will. Everything of any financial value was taken care of, and what remained was kept in cardboard boxes, collecting dust in our respective homes. Recently, my Mom’s been organising some renovations for her house, and she asked if I’d give her a hand clearing out all the old junk in her basement. What I discovered down there, and what that led me to, has been haunting me since. I just need to get it out somewhere.
 
-Maybe the star-shaped brown birthmark plastered on her face made her understand what it was like to be an outcast. That beauty mark on her face could never stop me from having a four-year-long secret crush on her.
+When I went over to get the job done, I had the day off work but my Mom didn’t. She’d given me a spare key the day before so I could get going sooner rather than later and have everything ready by the time she was home. For two hours or so, I was just hauling up broken kitchen appliances, old toys of mine, that sort of thing. Deciding what could be thrown in the trash right away and what should be left for Mom to consult. I didn’t mind the job at all – there was a pleasant nostalgia to a lot of the things I was unearthing down there. Once I’d all but finished, I came to a small cardboard box sitting in the far corner of the basement that had my great-aunt’s name on it in sharpie.
 
-Chasing her affection was a constant subplot in my high school story. Sprinting between classes to find her and dancing over the line between friendship and flirtation in cherished hallway moments were my daily quests.
+I took it upstairs like I’d done with all the other boxes, satisfied that the job was done. Since I had nothing to do now other than wait for Mom to arrive, I figured I’d have a look inside, since it’d been quite a while since I’d even thought of Annette.
 
-Our classmates predicted we’d end up dating. Rumors would come to me that she liked me. Jade heard the same rumors. But someone liking me that much seemed impossible. No leaps of faith for me to ask her out, but if you don’t leap, you’ll drown.
+The box had felt packed full when I was carrying it, so I was expecting a lot of random knick-knacks. But instead, all that was in there was a very thick photo album, with the title *“Family”*. The thought of pouring over old, possibly new-to-me family photographs filled me with a sentimental kind of excitement. Though, I did think to myself absently that it was more than a bit surprising Annette seemingly had so many family photographs, given how reclusive she was in life. I opened the album, and that’s where things started to get odd. Really, really odd.
 
-Jade’s voice drowned my hope when she told me someone asked her to the homecoming dance freshman year. It took until senior year prom for our romance to meet a climax. What a night we had. Jade’s voice was scratchy and deep—a baritone for a woman. She was mocked for it in high school, but it also had a do-gooder level of innocence.
+For a start, I’d never seen any of the photos before. Not a single one. They were all of family gatherings, holidays, birthdays, normal stuff. But in every single photo, one person is always missing. Not blurred or out of frame, mind you, but simply absent. An empty space between two people where a third should be. Arms draped over invisible shoulders. A spot at a dining table table with a plate of food steaming but no one sitting before it.
 
-Even as a grown man, sweating in his suit in his car without air conditioning in the LA sun and sitting in five o’clock traffic, Jade’s voice had me floating away, smiling, and dreaming of better days.
+My first thought was that maybe Annette had a specific grudge against someone in the family, and she’d gotten some super-skilled photoshopper to erase them from the album. It was hard to imagine her knowing what photoshop even is, but it was the only explanation I could come up with. The trouble with that, though, was that I was pretty certain I could see everyone in our immediate family at least a few times throughout the pictures. When Mom arrived, I asked her what she thought. She told me it must be her own cousin, that she’d always thought Annette didn’t approve of him on account of him being gay. Sure, I’d met my Mom’s cousin Anthony a few times – but would he really have been in the original version of every single one of these photos?
 
-My world had a breeze. For once, I enjoyed traffic because it allowed me to enjoy my old friend.
+Mom seemed very adamant on her theory, so I didn’t challenge her on it. I dropped the subject, since we still had all the other stuff from the basement to sift through, but it never left the back of my head. Something just wasn’t right about it all. Once we’d sorted everything into a keep and dump pile, Mom invited me to stay for dinner, which I would never say no to. Before I said goodbye, I asked her if I could take the album for a little while. I made up some reason about wanting to copy some of the photos or something. She didn’t mind at all.
 
-I’ll change everyones’ names to respect her. This was the voice message she left seeking the comedians’ advice:
+Over the next few days, I continued to puzzle over the album. I asked other people in the family what they thought about it. However, everyone I asked had contradictory, fiercely held memories about who it was, some making even less sense than others. My Aunt Emma insisted it was her Uncle Jeffrey. My third cousin Nathan swore it was one of his ex’s. A few people claimed it was various in-laws. They all remembered the events of most of the photos vividly, but no two people I asked believed it was the same face missing from them all.  I noticed something else around then, too. In the majority of the photos where I appeared as a child, I looked terrified, staring directly at the empty space where a person should be.
 
-“So, I’ve been doing bookkeeping for a local psychic here. It’s just me and the psychic—we’re the only employees. She sat me down the other day and told me business hasn’t been great.
+This whole thing was starting to get to me more than I’d like to admit. I was losing sleep over it. And when I did sleep, I kept having the same dream, where it’s a family picnic, and I’m playing catch with a smiling man whose upper face is a blur of light. One night, I jolted awake with a name on my lips: Arnold. But there’s nobody in my family called Arnold.
 
-“But pet psychics have been really big lately, so she’s thinking of bringing one on, which is just people who do readings on pets. I said, ‘Okay, that sounds cool.’ Then she offered me that position. I do not possess psychic ability.
+I was determined to get to the bottom of it. So, I decided to have a look in my own basement, to see if I had anything else belonging to Annette sitting around. After spending what felt like an age searching through boxes of Christmas decorations, buckets of paint, and gardening tools, I finally landed on a similar box with Annette’s name on it, hidden behind my broken minifridge. When I opened the cardboard box, a pungent smell of chewing tobacco and pond scum exploded out at me. I’ve got no idea how an odour like that could’ve stewed in that box for years and still be so strong. All I could see in the box were layers of bubble wrap. And what’s worse is that I knew that smell. Smelling it now, I was hit with a flood of memories that I’ve tried for a long time to bury.
 
-“She basically told me she wants me to lie to these people and tell them that I can communicate with their dead animals. But I would be paid double what I earned and obviously less work. So right now, I’m doubting everything she’s ever told me.”
+This was back when I was about ten years old. My best friend at the time was a kid called Lucas. I don’t have any contact with him these days; his family moved to Canada less than a year after this time. But anyway, something we used to do to occupy ourselves over the Summer was play ding-dong-ditch around my neighbourhood. It was a ton of fun for us to take turns hiding behind trees and cars while the other knocked on someone’s door and then ran. And my parents were well-liked in the area, so if I did get caught people tended to just laugh it off and tell me not to do it again.
 
-The professional funny men burst into laughter.
+Lucas lived past the outskirts of our town though, down past some country roads, so we couldn’t really do it over there. Usually, my parents trusted me enough to let me walk over myself if I wanted to hang out there. There was only one house I’d pass by on my way, and the front yard always seemed to emanate that putrid stench. Chewing tobacco and pond scum. It was a pretty normal looking house, all things considered, but something about it just always put us on edge. There was never a vehicle parked in its driveway.
 
-“Wait, wait, wait,” one said—let’s call him Davy. “You were working for a psychic and you thought this was real?”
+One day, Lucas and I had stolen one of his dad’s beers and split it, so we were feeling like real daredevils. That’s right, Lucas dared me to play ding-dong-ditch at that house. I told him that would be a piece of cake. He hid on the left side of the house while I swaggered up to the door.
 
-The two laughed at this for a while. Usually the laugh of the main host—something between a great uncle’s gaffe and a wheezy supervillain—gets me to laugh, but Jade’s predicament made me feel bad for her.
+Almost as soon as I knocked on the door, a man opened it. It was as though he’d been waiting there, knowing I was coming. The man looked normal enough, bald and with a tight grey beard. But his eyes just didn’t look right. Big and dark, like those of an animal. He was wearing a suit, which struck me as odd too. And his lips were bleeding in a few places, like he’d bitten into them. I panicked to think of a good reason for knocking while he just stared at me.
 
-The comedians cooked Jade to a crisp with jokes that normally don’t bother me, but again, this was about Jade. With one minute left, they got to the actual advice portion.
+“It’s too late to pick another door,” he said in a deranged sounding voice. Looking behind him, I could see how strange the house was on the inside. The man had the lights turned off, but I could see a grandfather clock behind him that was missing its arms. The floorboards were painted a strange shade of blue. And I could hear music playing from somewhere deeper inside – “Reelin’ in the Years” by Steely Dan. I only recognised it because it was one of my dad’s favourites.
 
-“You have the opportunity to learn the truth,” Davy said and coughed away a laugh. “Like, it seems like being honest is something that matters to you, so you thought you were helping people. Maybe dig into that. You could do bookkeeping for something that’s truthful. Yes, you’ve been lied to, and it does suck, but the fact that you care about lying to people is unique and says a lot about your character. You don’t want to go down this path of lying to yourself.”
+“W-what?” I stammered.
 
-“Nah,” the other comedian said. Let’s call him Danny.
+“Yes,” he said, smiling fervently. “You’d go up to their door and knock on it, knock knock! Just like that, knock knock, let me in!” He mimed knocking on a door by rapping his cold knuckles on my forehead lightly. I didn’t like that one bit. Then as my eyes adjusted more to the darkness of the inside of the house, I realised that there was a swarm of buzzing bees in there. I’ve got no idea why they weren’t trying to get back outside. It was all just too weird. I wanted to leave.
 
-“What do you mean, nah?”
+“You’ve been a nosy boy,” the man whispered, still smiling. “A bad, bad, nosy little naughty nosy boy.”
 
-“Forget all that, just lie to yourself,” Danny said.
+“I’m sorr-” I tried to say, but the man instantly lost his smile and leant forward, screaming straight into my face like a wild animal, hurling spit at me. His breath reeked of cough syrup, like he’d been drinking it by the bottle. I’d never been more scared in my life.
 
-“Danny?”
+He stopped screaming as instantaneously as he’d started and went back to staring at me while I shook in fear. One of the bees landed on his face and crawled right up his nostril. He didn’t even seem to notice.
 
-“Don’t be evil, but lie to yourself. Only accept money from nepo babies and rich idiots.”
+“You won’t tell anybody what you saw,” he said quietly. It wasn’t a question. “Because if you do, I’ll creep into your room late at night when you’re asleep and slit your throat.”
 
-The funny men laughed, but Davy forced himself to become serious.
+That’s too much. I think I pissed myself. That was when the man slammed the door shut, and I ran away for my life. Lucas seemed to have already done so. I didn’t blame him. I ran all the way home. Even at that age, I had enough sense to know it was always better to tell someone when it’s this serious, so I told my Dad what happened. I’ve never seen him look so angry and scared at the same time. He asked me what house it was, and called the police to tell them some meth addict had threatened to kill his son. Later, we were informed that the house was between owners at the time. There shouldn’t have been anyone in there. The police continued to patrol the area for a while, but they never found that man. And I never played ding-dong-ditch again.
 
-“I mean, yeah,” Davy said. “Look, we’re lying to ourselves right now. It’s not going to be a bunch of nepo babies and rich people. It’s going to be a bunch of poor people who always fall for scams. Look, you care about truth. That’s rare. Go and seek truth.”
+Going back to Annette’s box, I pulled out the bubble wrap to find only a few things in there – a VHS tape, a singular photograph, a pair of binoculars and a notepad with a watercolour of a robin on the cover. I figured it must’ve been related to her birdwatching, and I opened the notepad expecting to see a list of birds she’d seen on different dates. But not at all. On every page there were sketches of complex geometric patterns and shapes. I was baffled. Then I noticed something strange about the binoculars, too. I peered into them to confirm my suspicions. The lenses had been painted entirely black – you couldn’t see anything at all. None of this made any sense. I could only assume that Annette had been developing dementia.
 
-“Well, those are your options: lie to yourself and lie to people and make great money, or be honest and be a broke loser,” Danny said, and the call moved on.
+The photograph didn’t have any missing person for a change, at least as far as I could see. It was of me and my Mom sitting with Mr. Carter and his son Miles. Me and Miles seemed to be around seven in the picture. Mr. Carter was my Uncle Trevor’s best friend, so we’d see him at family events every now and then. I don’t really remember Miles very well but I remember us getting on fine. Mr. Carter died in a car accident – not too long after this picture must have been taken, as it happens. Miles got taken into a foster home and I don’t really know what happened to him after that.
 
-The episode was a month old. Jade had heard it by now. My phone was in my hand before I knew it, searching through her LinkedIn to find out what she chose. A horn blared at me because I had to go a couple of inches forward.
+The only thing left to do was check out the VHS tape, so I dug through my things until I found my old VHS player. I was hoping this would help somehow. But it didn’t.
 
-Buddy, we’re stuck here. I’m not moving for the delusion of getting to our destination sooner. Huh, I guess he was lying to himself as well.
+The VHS had just one short home video. It’s of one of the gatherings from Annette’s photo album. The family is all there at a picnic, laughing happily. And there, clear as day, laughing along was that man I saw as a child at the strange house. Just looking at him again made the hair on my arms stand up. He seemed more normal here – no bleeding lips, no suit. Just getting along happily with the rest of the family. Was this man’s name Arnold? I couldn’t be sure. Then the camera panned away for a second to a child crying inconsolably. I recognised the child as Miles. He looked the same age as he was in the photograph earlier. When the camera panned back, the man was gone. The family didn’t react. They continued laughing and talking as if he was never there.
 
-Anyway, nothing on LinkedIn about any job. Next, I checked Facebook. The guy blared his horn again. This time I ignored it because her Facebook showed where she worked: Madame Z’s Readings. With the guy behind me going ballistic, I made my appointment. The drive made me realize how much I missed Jade.
+Since then, I’ve tried to show the VHS to the people in my family I’d spoken to. Their reactions were absolutely bizarre. When I showed my Mom, she got irrationally angry and told me to never show her that again. I’d invited her over for lunch but she just left. I’d never even seen my Mom remotely annoyed at me for years but she was furious. She wouldn’t answer any of my calls. I took a video on my phone of the tape and sent it to some other family members. I didn’t get a response from any of them. My cousin Nate even blocked my number. I’d always thought we were a family of straight talkers. I don’t understand why that was changing.
 
-Although I didn’t have a pet alive or dead that I wanted to talk to, I lied on the application form. “Didn’t want to” is maybe a stretch; “afraid to” is more like it.
+The only thing I could think of to do was talk to Uncle Trevor. Whatever all of this meant, Miles seemed to be tied to it. Trevor was my best connection to Miles. I sent him the video of the tape. After a while I got a call from him. That gave me hope. He was the only person so far who didn’t immediately avoid me.
 
-I had one pet, and it died in 24 hours, so I never had the heart to get another. It was a frog I found and stuffed in this cheap plastic container with air holes at the top. It probably felt like prison for it. How unfair was that? You’re living your nice little frog life, then some kid enslaves you. Anyway, I named it well: Starfire from Teen Titans, my first crush.
+We talked for a while. He told me he had no idea who the man in the video was. I asked him if the name Arnold meant anything to him but he said no. What he did tell me, though, is that he heard Miles ran away shortly after the foster system placed him with a family. He was never found. That was all he knew. I got him to tell me what foster home he was in, and thanked him for his help before saying goodbye.
 
-As a kid, I lived with my grandmother, my best friend, the sweetest woman, but she dropped out of middle school as a child, so she didn’t know that not all frogs could breathe underwater 24/7.
+The next day, I contacted the foster home over the phone. I got put on hold for a long time. And instead of the usual elevator music you hear on hold, I heard “Dirty Work” by Steely Dan. That bothered me a lot, even though I’ve always liked their music. Eventually, I got to speak to a weary, elderly sounding social worker who seemed to barely remember the case. The conversation was full of half-remembered details and dead ends.
 
-So, trying to help make Starfire comfortable, she accidentally drowned it by filling its water to the brim overnight. Starfire died. Devastated, I vowed to never have a pet again.
+She told me she couldn’t find a full file on Miles, but she did have an old, partial log entry. It wasn’t digital, it was a photocopy of two handwritten notes. She said she would type them out for me and asked for my email so she could send them on. I agreed and she hung up. Later that day I received the email.
 
-Thinking about that still made me sad. I never told anyone that story, and I didn’t think telling “Madame Z” was the best time to share. So I made up a short story about a dog named Zippy. I’d keep my story with Starfire to myself and my long-deceased grandmother.
+The email confirmed Miles was placed in the foster system. Then it contained two notes, which I’ll give you here verbatim.
 
-Madame Z’s Readings sagged between an adult video store (didn’t know they still had those) and an adult arcade, a place notorious for the poor and addicted to gamble away their money. Both places seemed to take more care in their appearance than Madame Z.
+“12/04/2002: Follow-up call to foster home. Mrs. Peterson states Miles has been “quiet, no trouble.” Says he spends a lot of time alone in his room. Claims he has an imaginary friend he talks to. Scheduled home visit next week.”
 
-I imagined the type of person who would go to all three in one day.
+The next entry was from a different social worker, dated a month later:
 
-Walking in, I faced the entrepreneur herself. She stood behind a foldable table with a cash register on it. Behind her hung a poster board menu of various marijuana edibles, so I guess they doubled as a dispensary.
+“Case file update. Foster family reports Miles ran away. No belongings taken. No signs of struggle. Police report filed. Case status: INACTIVE.”
 
-“Mr. Adam, nice to meet you,” the psychic said and shook my hand. Have you seen the movie Holes? If so, you’ve heard the accent Madame Z was faking. Fake Romanian accent and stereotypical clothes: a baggy colorful dress bouncing with every step, hoop earrings swinging with each dramatic gesture, and a head wrap close to slipping off at all times.
+I still don’t know what to make of it. But it was clear at this stage that what was going on, Miles was involved. I just couldn’t understand why I was the only one who seemed to be aware of it.
 
-“You as well,” I said.
+The next day, I went back to watch the VHS tape again. To see if there was anything I hadn’t picked up on. But, somehow, the video had changed. That man wasn’t in it at all anymore. Miles was playing happily with me and the other kids. I couldn’t believe my eyes. It’s like, the more I tried to remember and understand, the more the world revolted and covered it all up. I spoke to my family again. Now they were all denying the existence of Mr. Carter and Miles. Telling me they didn’t know who I was talking about at all. Even Uncle Trevor. I argued desperately over the phone with him.
 
-“Come, let us begin.”
+“How can you not remember him?” I shouted. “He was best man at your fucking wedding!” He denied that too. Told me that my father was his best man, asked what was coming over me. And what’s worse is that he sent me some of his wedding pictures. Sure enough, I could see my dad at the front of the crowd making a speech. I gave up at that point. Returned Annette’s photo album to my Mom. Told myself I had to just forget about it.
 
-With no sign of Jade, I had to make a move.
+There’s just one more thing. The next morning, I went downstairs to see a polaroid photograph sitting on my kitchen table. The photo showed a teenage boy sitting on a wooden floor. He was unharmed, but he looked so, so miserable. Just from looking at the picture, I don’t think I’ve ever felt sorrier for another person. Next to the photograph was a jar of golden honey.
 
-“Hey, sorry if this is awkward, but um, and I don’t want to change anyone’s schedule. I can come another day, but um, could I see the other girl?”
+I’ve been thinking back to that man I saw at the strange house all those years ago, and what he said to me. *“You won’t tell anybody what you saw.”* Maybe that was still an active threat. So, I’m giving up on all of this. I’m going to try to go back to my normal life. I don’t know what sets me apart. I don’t know why I’m the only one burdened with this knowledge. I’ve been brooding on all of this since it happened and the more I do, the more it bothers me. And what’s maybe even more troubling is that I can feel my own memories of that man, of Miles, of Mr. Carter slipping. It’s almost a physical sensation, like the computer programme of my mind is being written over by a virus to blot out what it doesn’t want me to know. 
 
-“What other girl?”
-
-“Oh, um, woman or um… they, if they’re going by that… I don’t know.”
-
-“Mr. Adam, I’m the only psychic that works here.”
-
-“Oh, but I thought…”
-
-“Maybe you are seeing into my future, Mr. Adam. Maybe you have the sight. We are hiring more psychics if you’re interested.”
-
-Jesus, lady, you never stop recruiting, huh?
-
-“No,” I said. “Um, sorry, I just thought…”
-
-Madame Z’s thin, cold hand grasped my face and pulled me close. She tapped her long acrylic nails on my face.
-
-“What pretty eyes. Surely, they see something… missing. No? That’s all the sight is. Seeing gaps in the world that others can’t. What do you see missing, Mr. Adam?”
-
-“Just personal space,” I said with squished chipmunk cheeks.
-
-Madame Z pulled away.
-
-“No, Mr. Adam, I’m the only psychic that ever has or ever will work here.”
-
-She led me to a room only a couple of steps wide with black walls and blacked-out curtains and a circular table covered in black cloth.
-
-“Now, let’s talk about your pet, Zippy. What a name.”
-
-A husky puppy scurried from under the table and through the other door, so quickly I only saw its tail.
-
-“Oh, um, is that your pet?”
-
-“No, I own her. Just a puppy. Some clients prefer to have one in attendance, but I sense you won’t be needing her. Right, Mr. Adam?”
-
-“Uh, yeah, sure, I guess not.”
-
-Madame Z made some fake conversation with Zippy, and everyone got what they wanted, I guess. I got to see that Jade didn’t take the job. Madame Z got paid. And I figured Jade, wherever she was, got what she wanted as well.
-
-On my way out the front door, the same puppy scratched at the door like it wanted to leave. It barked incessantly, making a scene. It scratched the door and pushed it, making the bells on the door sing.
-
-It was blocking my exit, and I didn’t want the dog to escape, so I got on one knee and called for it.
-
-“Hey, girl. Hey, girl. Come here, girl,” I said, and the dog turned to me.
-
-Once it saw me, it dropped its mouth in surprised silence. Something I had never seen a dog, much less a husky, do. We stared at each other, eerily. The husky had a brown patch on the side of its face, almost identical to Jade’s.
-
-My face crunched. I couldn’t speak. Sound. Words. I couldn’t make them. How do you say what you’re thinking when I’m thinking this and sound sane?
-
-My heart hammered, then slowed, then trickled. The chime of the door stopped. The gentle hum of the husky’s breathing was the only noise.
-
-But why did a dog look like Jade? Why did this happen? What is this?
-
-“What?” I said to the dog as if it could answer. “Wait, no, wait.”
-
-Silent, frozen, we watched one another. A single tear plopped down the dog’s face.
-
-“Jade, come!” Ms. Z commanded the dog, and with a pitiful whimper, the husky dragged itself to her.
-
-“What?” I stuttered out. “What’s her name? You said Jade?”
-
-“You should be able to leave now, Adam.”
-
-“Madame, uh, Madame Z. Who does your books?”
-
-Madame Z did not answer me. The beast looked back at me. Mouth dropped, tongue hanging and swinging like a noose on a chill Sunday morning. But in that sweet, deep voice that could be Jade’s, the husky spoke.
-
-“Starfire said she does not forgive you.”
-
-The words chilled me to my core. There was no way on Earth she should know about that. I pushed my way out of the door and ran for at least three blocks until I was comfortable enough to stop and call an Uber. I haven’t gone back there since. I won’t go back there.
-
-The comedians were wrong about there only being two options: lying to yourself or finding out the truth. Jade did try to lie to herself, but unfortunately, she found a much stranger truth. Truth mankind was never supposed to know.
-
-I like to lie to myself as well, because I’m never going back [there.](https://www.reddit.com/r/Finchink/)
+I just wanted to share it all somewhere, where someone might believe me for a change. And where it might be immortalised. Thanks for listening, folks.
