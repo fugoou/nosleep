@@ -1,84 +1,144 @@
-# I think my family is erasing someone from existence, and I'm the only one who can remember
-I never really knew my paternal great-aunt, Annette. My family are, for the most part, quite tight-knit, and my mom’s and dad’s sides get on great together, but she was the exception. Her life was one of solitude, and that was the way she liked it. She’d never married or had children of her own. I knew that she was an avid birdwatcher, because my dad mentioned it once or twice, she only ever left her house to do her weekly shopping, and that was about it. I’d been to her house only once or twice, I’d say, and that was when I was a very young child. I remembered it smelling like mould, and I remember thinking she was nowhere near as nice to me as her sister, my grandma was.
+# I'm an ER nurse, and after last night, I have proof that evil exists -- Part 3
+[Part 1](https://www.reddit.com/r/nosleep/comments/1oa8dx8/im_an_er_nurse_and_after_last_night_i_have_proof/)  
 
-When she died a few years back, most of the family went to her funeral, but I remember thinking that they seemed to be mourning the idea of her more than they were actually mourning her. Dad had passed away by then and so had grandma, so I was her only remaining family. That’s why it fell to my Mom and I to settle her will. Everything of any financial value was taken care of, and what remained was kept in cardboard boxes, collecting dust in our respective homes. Recently, my Mom’s been organising some renovations for her house, and she asked if I’d give her a hand clearing out all the old junk in her basement. What I discovered down there, and what that led me to, has been haunting me since. I just need to get it out somewhere.
+[Part 2](https://www.reddit.com/r/nosleep/comments/1os1swx/im_an_er_nurse_and_after_last_night_i_have_proof/)
 
-When I went over to get the job done, I had the day off work but my Mom didn’t. She’d given me a spare key the day before so I could get going sooner rather than later and have everything ready by the time she was home. For two hours or so, I was just hauling up broken kitchen appliances, old toys of mine, that sort of thing. Deciding what could be thrown in the trash right away and what should be left for Mom to consult. I didn’t mind the job at all – there was a pleasant nostalgia to a lot of the things I was unearthing down there. Once I’d all but finished, I came to a small cardboard box sitting in the far corner of the basement that had my great-aunt’s name on it in sharpie.
+\--
 
-I took it upstairs like I’d done with all the other boxes, satisfied that the job was done. Since I had nothing to do now other than wait for Mom to arrive, I figured I’d have a look inside, since it’d been quite a while since I’d even thought of Annette.
+I know the police are looking for me. I know nothing I say or anything I’ve documented here will convince them I’m not crazy. But everything I’ve written and continue to write is true. 
 
-The box had felt packed full when I was carrying it, so I was expecting a lot of random knick-knacks. But instead, all that was in there was a very thick photo album, with the title *“Family”*. The thought of pouring over old, possibly new-to-me family photographs filled me with a sentimental kind of excitement. Though, I did think to myself absently that it was more than a bit surprising Annette seemingly had so many family photographs, given how reclusive she was in life. I opened the album, and that’s where things started to get odd. Really, really odd.
+As soon as I put the jacket on I felt a shift. But it isn’t what you would imagine. It isn’t pain, not initially. It feels almost intoxicating. Pleasant. Like you’re falling into the nicest, deepest sleep of your life. 
 
-For a start, I’d never seen any of the photos before. Not a single one. They were all of family gatherings, holidays, birthdays, normal stuff. But in every single photo, one person is always missing. Not blurred or out of frame, mind you, but simply absent. An empty space between two people where a third should be. Arms draped over invisible shoulders. A spot at a dining table table with a plate of food steaming but no one sitting before it.
+But it’s right after that pleasant feeling fades where you feel something worse than torture.
 
-My first thought was that maybe Annette had a specific grudge against someone in the family, and she’d gotten some super-skilled photoshopper to erase them from the album. It was hard to imagine her knowing what photoshop even is, but it was the only explanation I could come up with. The trouble with that, though, was that I was pretty certain I could see everyone in our immediate family at least a few times throughout the pictures. When Mom arrived, I asked her what she thought. She told me it must be her own cousin, that she’d always thought Annette didn’t approve of him on account of him being gay. Sure, I’d met my Mom’s cousin Anthony a few times – but would he really have been in the original version of every single one of these photos?
+It tightened around my torso like cling wrap. I could barely breathe.
 
-Mom seemed very adamant on her theory, so I didn’t challenge her on it. I dropped the subject, since we still had all the other stuff from the basement to sift through, but it never left the back of my head. Something just wasn’t right about it all. Once we’d sorted everything into a keep and dump pile, Mom invited me to stay for dinner, which I would never say no to. Before I said goodbye, I asked her if I could take the album for a little while. I made up some reason about wanting to copy some of the photos or something. She didn’t mind at all.
+I tried to rip it off but it wrapped itself tighter around me. I felt my ribs crack. I shouted and a scream barely escaped my lips.
 
-Over the next few days, I continued to puzzle over the album. I asked other people in the family what they thought about it. However, everyone I asked had contradictory, fiercely held memories about who it was, some making even less sense than others. My Aunt Emma insisted it was her Uncle Jeffrey. My third cousin Nathan swore it was one of his ex’s. A few people claimed it was various in-laws. They all remembered the events of most of the photos vividly, but no two people I asked believed it was the same face missing from them all.  I noticed something else around then, too. In the majority of the photos where I appeared as a child, I looked terrified, staring directly at the empty space where a person should be.
+I grabbed my razor from the bathroom sink and sliced into the jacket—
 
-This whole thing was starting to get to me more than I’d like to admit. I was losing sleep over it. And when I did sleep, I kept having the same dream, where it’s a family picnic, and I’m playing catch with a smiling man whose upper face is a blur of light. One night, I jolted awake with a name on my lips: Arnold. But there’s nobody in my family called Arnold.
+That’s when I caught a glimpse of myself in the mirror, *the Old Man was standing right behind me.* His body was riddled with gooey open sores, his teeth jagged and stained yellow. He put his lips right against my ear as he spoke, with every word smoke puffed out from his mouth, like he was exhaling fire.
 
-I was determined to get to the bottom of it. So, I decided to have a look in my own basement, to see if I had anything else belonging to Annette sitting around. After spending what felt like an age searching through boxes of Christmas decorations, buckets of paint, and gardening tools, I finally landed on a similar box with Annette’s name on it, hidden behind my broken minifridge. When I opened the cardboard box, a pungent smell of chewing tobacco and pond scum exploded out at me. I’ve got no idea how an odour like that could’ve stewed in that box for years and still be so strong. All I could see in the box were layers of bubble wrap. And what’s worse is that I knew that smell. Smelling it now, I was hit with a flood of memories that I’ve tried for a long time to bury.
+“Don’t you want to see Hannah, James? You can’t see her if you take me off.”
 
-This was back when I was about ten years old. My best friend at the time was a kid called Lucas. I don’t have any contact with him these days; his family moved to Canada less than a year after this time. But anyway, something we used to do to occupy ourselves over the Summer was play ding-dong-ditch around my neighbourhood. It was a ton of fun for us to take turns hiding behind trees and cars while the other knocked on someone’s door and then ran. And my parents were well-liked in the area, so if I did get caught people tended to just laugh it off and tell me not to do it again.
+“You’re lying!” I screamed back, I didn’t want to believe him.
 
-Lucas lived past the outskirts of our town though, down past some country roads, so we couldn’t really do it over there. Usually, my parents trusted me enough to let me walk over myself if I wanted to hang out there. There was only one house I’d pass by on my way, and the front yard always seemed to emanate that putrid stench. Chewing tobacco and pond scum. It was a pretty normal looking house, all things considered, but something about it just always put us on edge. There was never a vehicle parked in its driveway.
+“Give me a chance to show you. It’s worth it, isn’t it?” He continued “or would you rather live with the agonizing hell of knowing you could have had her back.”
 
-One day, Lucas and I had stolen one of his dad’s beers and split it, so we were feeling like real daredevils. That’s right, Lucas dared me to play ding-dong-ditch at that house. I told him that would be a piece of cake. He hid on the left side of the house while I swaggered up to the door.
+My heart felt like it dropped from my chest, “what did you say?” I stared back at him in the mirror and he winked at me. 
 
-Almost as soon as I knocked on the door, a man opened it. It was as though he’d been waiting there, knowing I was coming. The man looked normal enough, bald and with a tight grey beard. But his eyes just didn’t look right. Big and dark, like those of an animal. He was wearing a suit, which struck me as odd too. And his lips were bleeding in a few places, like he’d bitten into them. I panicked to think of a good reason for knocking while he just stared at me.
+I loosened my grip on the razor.
 
-“It’s too late to pick another door,” he said in a deranged sounding voice. Looking behind him, I could see how strange the house was on the inside. The man had the lights turned off, but I could see a grandfather clock behind him that was missing its arms. The floorboards were painted a strange shade of blue. And I could hear music playing from somewhere deeper inside – “Reelin’ in the Years” by Steely Dan. I only recognised it because it was one of my dad’s favourites.
+The Old Man smiled. “open your hand” he said.
 
-“W-what?” I stammered.
+I did as he told me. Then he reached up and ripped both his eyes out of the sockets in his head. 
 
-“Yes,” he said, smiling fervently. “You’d go up to their door and knock on it, knock knock! Just like that, knock knock, let me in!” He mimed knocking on a door by rapping his cold knuckles on my forehead lightly. I didn’t like that one bit. Then as my eyes adjusted more to the darkness of the inside of the house, I realised that there was a swarm of buzzing bees in there. I’ve got no idea why they weren’t trying to get back outside. It was all just too weird. I wanted to leave.
+He plopped his bloody eyeballs in my palm and told me to “put them in.”
 
-“You’ve been a nosy boy,” the man whispered, still smiling. “A bad, bad, nosy little naughty nosy boy.”
+I raised them up to my face, brought them to my eyes and—
 
-“I’m sorr-” I tried to say, but the man instantly lost his smile and leant forward, screaming straight into my face like a wild animal, hurling spit at me. His breath reeked of cough syrup, like he’d been drinking it by the bottle. I’d never been more scared in my life.
+Was suddenly back at Hidden Gems. I had been instantaneously transported. The store was dark. It was the middle of the night. A faint street light extended through the front windows just enough for me to see. 
 
-He stopped screaming as instantaneously as he’d started and went back to staring at me while I shook in fear. One of the bees landed on his face and crawled right up his nostril. He didn’t even seem to notice.
+Then slowly but surely the overhead lights began to flicker on. One by one lighting up the store. 
 
-“You won’t tell anybody what you saw,” he said quietly. It wasn’t a question. “Because if you do, I’ll creep into your room late at night when you’re asleep and slit your throat.”
+Suddenly the store’s bell rang out and Hannah walked through the front doors. 
 
-That’s too much. I think I pissed myself. That was when the man slammed the door shut, and I ran away for my life. Lucas seemed to have already done so. I didn’t blame him. I ran all the way home. Even at that age, I had enough sense to know it was always better to tell someone when it’s this serious, so I told my Dad what happened. I’ve never seen him look so angry and scared at the same time. He asked me what house it was, and called the police to tell them some meth addict had threatened to kill his son. Later, we were informed that the house was between owners at the time. There shouldn’t have been anyone in there. The police continued to patrol the area for a while, but they never found that man. And I never played ding-dong-ditch again.
+It was like time stopped. It had been two years since I saw her like this, “alive”. I couldn’t believe it. What was she even doing here I thought? Everything else slipped away, nothing before now seemed to matter. 
 
-Going back to Annette’s box, I pulled out the bubble wrap to find only a few things in there – a VHS tape, a singular photograph, a pair of binoculars and a notepad with a watercolour of a robin on the cover. I figured it must’ve been related to her birdwatching, and I opened the notepad expecting to see a list of birds she’d seen on different dates. But not at all. On every page there were sketches of complex geometric patterns and shapes. I was baffled. Then I noticed something strange about the binoculars, too. I peered into them to confirm my suspicions. The lenses had been painted entirely black – you couldn’t see anything at all. None of this made any sense. I could only assume that Annette had been developing dementia.
+She moved throughout the aisles, perusing different items. 
 
-The photograph didn’t have any missing person for a change, at least as far as I could see. It was of me and my Mom sitting with Mr. Carter and his son Miles. Me and Miles seemed to be around seven in the picture. Mr. Carter was my Uncle Trevor’s best friend, so we’d see him at family events every now and then. I don’t really remember Miles very well but I remember us getting on fine. Mr. Carter died in a car accident – not too long after this picture must have been taken, as it happens. Miles got taken into a foster home and I don’t really know what happened to him after that.
+I followed behind her. I didn’t say anything, not at first. I was in shock, wondering if this was real.
 
-The only thing left to do was check out the VHS tape, so I dug through my things until I found my old VHS player. I was hoping this would help somehow. But it didn’t.
+She kept fingering through clothes when she stopped on something, a windbreaker, she pulled it off the rack and held it up to herself. 
 
-The VHS had just one short home video. It’s of one of the gatherings from Annette’s photo album. The family is all there at a picnic, laughing happily. And there, clear as day, laughing along was that man I saw as a child at the strange house. Just looking at him again made the hair on my arms stand up. He seemed more normal here – no bleeding lips, no suit. Just getting along happily with the rest of the family. Was this man’s name Arnold? I couldn’t be sure. Then the camera panned away for a second to a child crying inconsolably. I recognised the child as Miles. He looked the same age as he was in the photograph earlier. When the camera panned back, the man was gone. The family didn’t react. They continued laughing and talking as if he was never there.
+I recognized this windbreaker. It’s the one she had been wearing when she was killed. This is where she bought it. Hidden Gems had something to do with Hannah’s death. I thought maybe now if I stopped her before she put it on, I could save her. 
 
-Since then, I’ve tried to show the VHS to the people in my family I’d spoken to. Their reactions were absolutely bizarre. When I showed my Mom, she got irrationally angry and told me to never show her that again. I’d invited her over for lunch but she just left. I’d never even seen my Mom remotely annoyed at me for years but she was furious. She wouldn’t answer any of my calls. I took a video on my phone of the tape and sent it to some other family members. I didn’t get a response from any of them. My cousin Nate even blocked my number. I’d always thought we were a family of straight talkers. I don’t understand why that was changing.
+“Hannah” I yelled, she turned and headed toward the front of the store with the windbreaker in hand. I said her name again, she didn’t hear me.
 
-The only thing I could think of to do was talk to Uncle Trevor. Whatever all of this meant, Miles seemed to be tied to it. Trevor was my best connection to Miles. I sent him the video of the tape. After a while I got a call from him. That gave me hope. He was the only person so far who didn’t immediately avoid me.
+I moved after her but couldn’t catch her. It was like I was on a walkway that was moving backwards as I ran forward. 
 
-We talked for a while. He told me he had no idea who the man in the video was. I asked him if the name Arnold meant anything to him but he said no. What he did tell me, though, is that he heard Miles ran away shortly after the foster system placed him with a family. He was never found. That was all he knew. I got him to tell me what foster home he was in, and thanked him for his help before saying goodbye.
+She met Agatha at the front counter and asked “how much?”
 
-The next day, I contacted the foster home over the phone. I got put on hold for a long time. And instead of the usual elevator music you hear on hold, I heard “Dirty Work” by Steely Dan. That bothered me a lot, even though I’ve always liked their music. Eventually, I got to speak to a weary, elderly sounding social worker who seemed to barely remember the case. The conversation was full of half-remembered details and dead ends.
+Agatha simply said “Nothing. This one was made for you. It’s yours.”
 
-She told me she couldn’t find a full file on Miles, but she did have an old, partial log entry. It wasn’t digital, it was a photocopy of two handwritten notes. She said she would type them out for me and asked for my email so she could send them on. I agreed and she hung up. Later that day I received the email.
+I shouted at the top of my lungs “No!”
 
-The email confirmed Miles was placed in the foster system. Then it contained two notes, which I’ll give you here verbatim.
+I ran up and tried to intervene. I pleaded, I screamed, I slammed my hand on the counter but they continued talking as though I didn’t exist. 
 
-“12/04/2002: Follow-up call to foster home. Mrs. Peterson states Miles has been “quiet, no trouble.” Says he spends a lot of time alone in his room. Claims he has an imaginary friend he talks to. Scheduled home visit next week.”
+Agatha turned her head and looked right at me without missing a beat or Hannah seeming to notice and said, “she can’t hear you, James. She can’t see you. Just watch.” 
 
-The next entry was from a different social worker, dated a month later:
+Hannah walked out of the store with the windbreaker, I followed her out and onto the street.
 
-“Case file update. Foster family reports Miles ran away. No belongings taken. No signs of struggle. Police report filed. Case status: INACTIVE.”
+But it wasn’t the front of Hidden Gems. I stood on a different street altogether, a quiet residential block that felt familiar in a distant, unsettling way. I was turned around, but I was starting to grasp what the Old Man was showing me. 
 
-I still don’t know what to make of it. But it was clear at this stage that what was going on, Miles was involved. I just couldn’t understand why I was the only one who seemed to be aware of it.
 
-The next day, I went back to watch the VHS tape again. To see if there was anything I hadn’t picked up on. But, somehow, the video had changed. That man wasn’t in it at all anymore. Miles was playing happily with me and the other kids. I couldn’t believe my eyes. It’s like, the more I tried to remember and understand, the more the world revolted and covered it all up. I spoke to my family again. Now they were all denying the existence of Mr. Carter and Miles. Telling me they didn’t know who I was talking about at all. Even Uncle Trevor. I argued desperately over the phone with him.
 
-“How can you not remember him?” I shouted. “He was best man at your fucking wedding!” He denied that too. Told me that my father was his best man, asked what was coming over me. And what’s worse is that he sent me some of his wedding pictures. Sure enough, I could see my dad at the front of the crowd making a speech. I gave up at that point. Returned Annette’s photo album to my Mom. Told myself I had to just forget about it.
+Then I caught a glimpse of Hannah at the end of the block, she was jogging. 
 
-There’s just one more thing. The next morning, I went downstairs to see a polaroid photograph sitting on my kitchen table. The photo showed a teenage boy sitting on a wooden floor. He was unharmed, but he looked so, so miserable. Just from looking at the picture, I don’t think I’ve ever felt sorrier for another person. Next to the photograph was a jar of golden honey.
+I ran after her as fast as my legs would let me. She began slowing down, she was limping and making noises like she was in pain. She tried to pull the windbreaker off, it was stuck to her like the jacket had been stuck to me and Emma. 
 
-I’ve been thinking back to that man I saw at the strange house all those years ago, and what he said to me. *“You won’t tell anybody what you saw.”* Maybe that was still an active threat. So, I’m giving up on all of this. I’m going to try to go back to my normal life. I don’t know what sets me apart. I don’t know why I’m the only one burdened with this knowledge. I’ve been brooding on all of this since it happened and the more I do, the more it bothers me. And what’s maybe even more troubling is that I can feel my own memories of that man, of Miles, of Mr. Carter slipping. It’s almost a physical sensation, like the computer programme of my mind is being written over by a virus to blot out what it doesn’t want me to know. 
+I yelled out for her, knowing in the back of my mind that there was nothing I could do. 
 
-I just wanted to share it all somewhere, where someone might believe me for a change. And where it might be immortalised. Thanks for listening, folks.
+As I got closer she got part of the windbreaker up over her head. She screamed out as she was pulling it off. She stumbled off the sidewalk and into the street just as a van sped around the corner and hit her. 
+
+She flew backward and hit the ground with a thud. I ran into the street, screaming her name, screaming for help,  but it came out thin and useless, like yelling through layers of wet cloth.
+
+“Hannah!” I dropped to my knees beside her. She was still alive. Barely. Her breath fluttered in her chest. Blood began to pool beneath her head.
+
+The van stayed put, its harsh white headlights on and engine running. Then in an instant it sped off as quickly as it could.
+
+Hannah tried to lift an arm, but her body jerked with pain. I reached out on instinct, desperate to help, to do *something* but I knew the ending already, there was nothing I could do. I reached out for her hand and mine passed through hers like I was nothing but smoke.
+
+And then the very next moment, she took her last breath. Seeing her death, experiencing it was completely different. Knowing this was the past didn’t help. 
+
+But now I knew that Hidden Gems was responsible for her death. The van hit her, but only because of the windbreaker. And right then, all I wanted to do was make them pay.
+
+Then it hit me…
+
+There was no reason for me to see this. The Old Man just needed to get me to put on the jacket. 
+
+“James”, I heard Hannah’s voice call out behind me.
+
+I turned and there she was. Alive and well. She looked amazing, the healthiest and happiest I had ever seen her.
+
+“Wake up” she told me. I stared at her a moment longer, then she insisted,  “Wake up now!”
+
+I snapped awake, face-down on the bathroom floor, my cheek pressed against the cold tile. The jacket had cinched itself around me, clamping my arms to my sides like a straight-jacket.
+
+The Old Man was lying on top of me.
+
+His body flattened and spread across mine. His face was pressed against the side of my own, our cheeks mashed together, his breath leaking hot and putrid against my skin.
+
+Then something worse happened.
+
+He started pushing into me. His face began fusing with mine, like his skin was melting wax pouring over my face. His temple began sinking into my own. 
+
+The pain was excruciating. I screamed and he echoed my shouts. I could feel his yells vibrating through my teeth, like it was coming from my own mouth. 
+
+I tried to push myself up, I rolled over, I struggled to fight free but the jacket tightened even more. It had a vice grip on me.
+
+The Old Man’s lips found my ear and he whispered, “make room, Jamie boy. I’m coming in… and I’m going to wear you forever.”
+
+I thought of Hannah. I couldn’t let Hidden Gems get away with her death. A rage like I had never felt took over. 
+
+I pushed myself up again. The Old Man laughed as I did, mocking me. I kept moving through the resistance of the jacket, fighting it. I pushed through the pain. It tightened more, my ribs popped but I kept pushing. I reached up and got a hold of the sink, I gripped it, wrapping my fingers around its lip. I used my other arm to leverage my weight against the floor and pulled myself up.
+
+I grabbed the razor from the sink and began slashing at the jacket, desperate to loosen its grip.
+
+The Old Man growled as I kept cutting into it. “There’s nothing you can do. She already belongs to the store” he said.
+
+I sliced even more. I sliced so deeply that blood began flowing from my forearm.  But I could feel the jacket soften, it’s clutch beginning to give way. 
+
+I looked at the Old Man in the mirror, our temples still fused together. He had a panicked look in his eyes. I sliced the jacket across my torso one more time and it completely gave way.
+
+The Old Man disappeared, but my temple where he had fused to me was bloody and raw. I slid the jacket off, it looked like it had been chewed up by a lawnmower.  I was cut badly across my arms and torso, bleeding significantly in several places.
+
+I got my first aid kit and stitched myself up the best I could. I stopped the bleeding for the most part but I’m hurt. My ribs are broken in a few places and I need more help than I’m able to give myself.
+
+But I have to get to Hidden Gems. I can’t let them get away with what they did to Hannah or kill anyone else.
+
+This may be the last time I write. 
+
+I’m going to burn the store to the ground and make sure it never hurts a living soul again. They have to be stopped.
+
+Please make sure this is seen, in case I fail, everyone needs to know: Stay away from Hidden Gems. 
