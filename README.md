@@ -1,426 +1,406 @@
-# Stillwater Farms [Part 6]
-[< Previous Part](https://www.reddit.com/r/nosleep/comments/1p94ggv/stillwater_farms_part_5/)
+# I'm A Contract Worker For A Secret Corporation That Hunts Supernatural Creatures. Revelations.
+[First: ](https://www.reddit.com/r/nosleep/comments/1fz6zph/im_never_doing_door_to_door_sales_again/)
 
-The last of the slab of the floor came up with a tired groan. Beneath, a crawl of space: joists, cold stone, and a tunnel of black water shouldering past like something late for an appointment. The draft breathed onto our faces: wet, old, not the clean of rain but the deep of ground. The whispering wasn’t louder; it was nearer, as if the floor had been translating and now we finally understood a word. Not mercy. Not welcome. A direction.
+[Previous: ](https://www.reddit.com/r/nosleep/comments/1nvlo97/im_a_contract_worker_for_a_secret_corporation/)
 
-Nick tied a blanket rope to the table leg and tested the knot. It held. He looked at me, no speeches, no last rites. “Ready?” He said.
+[Next:](https://www.reddit.com/r/nosleep/comments/1o1hsdf/im_a_contract_worker_for_a_secret_corporation/)
 
-“Ready.” I answered.
+After I had the brief talk with the copycat, I went back to Harp to make sure she was alright. She had had some time to think about our relationship. She wanted to remain friends if possible. I didn’t have the heart to tell her about the thoughts brewing inside my head. I thanked her and promised we would talk again soon, well aware that I was ready to break that promise.  
 
-He nodded once, jaw tight. And then we were gone.
+I headed back to Evie’s place. Her cut wasn’t as bad as it looked after she cleaned it up. I still fussed over her feeling guilty; she’ll now have a scar cutting through her eyebrow. She claimed it would make her look cool and that she wouldn't worry.   
 
-The heat hit first. Not sharp, not scorching, just warm, like someone breathing against my skin in the dark.
+“My birthday is coming up. Normally, I don’t make a big deal over it, but Lucas wants us to have a get-together. It's in two weeks, so we hope the house is fixed up by then. You need to be there or else Lucas will be upset.” Evie explained.  
 
-We lowered ourselves into it and the warmth wrapped around us, thick and stale. The tunnel forced us onto our hands and knees. Our palms sank into black, viscous Stillwater that felt body-temperature. Wrong. Human.
+We were sitting on her couch alone. August was watching over Lucas and April and had fallen asleep. She hadn’t gotten much since the fire, so we let her get some rest.   
 
-The tunnel didn’t feel carved. It felt grown.
+I nodded again, making a promise I wasn’t expecting to go through with.  
 
-The stone skimmed my back, a small reminder of the earth stacked heavy over our heads.
+“How old are you going to be? Twenty-five?” I asked her.  
 
-For the first few minutes, neither of us spoke. Our breathing was loud, ragged, too close to our ears. The darkness wasn’t empty; it shimmered with suggestion, with the idea of things just out of sight. Water dripped somewhere ahead: slow, measured, like a clock with a dying battery.
+She raised a now cut eyebrow at my guess.  
 
-The first crossroads came quick.
+“Add ten years to that.”  
 
-Left: dead air, and a heat that felt like an oven with its door open.
+I was a little shocked. She did not at all look that old.   
 
-Right: a current of cool air and—beneath it—a pulse. A real, rhythmic pulse, steady as a thumb pressed to a throat.
+“Oh, I guess we’re a year apart. I’m a little bit older.” I said, arms crossed, trying to pin down my own age.   
 
-Nick exhaled. “You hear that.”
+After my mother passed away, I sorta lost track, but I assumed I was one year older than Evie. Our birthdays might even be on the same date.  
 
-It wasn’t a question.
+“A little bit? Like ten years? More?” She said, not at all joking.  
 
-We took the pulse.
+“You thought I was like, over forty?” I said, fearing her honest answer.  
 
-The tunnel widened enough for us to crouch instead of crawl. My knees crackled when I stood. Nick took one step, then froze.
+She was silent for a few seconds. It hurt a little.  
 
-Roots veined the ceiling like a web of tendons. Thick, pale, half-translucent. When he brushed one with the back of his hand, it flexed. Not from the movement of the air—it flexed.
+“You should take care of yourself better.”  
 
-“It—Alex, it moved.” he whispered.
+That was a given. But did I really look so much older? I sighed and shook my head, letting it go. People mistaking my age wasn’t my top worry at the moment.  
 
-The pulse traveled through the roots. A slow throb. Like they were carrying blood.
+I decided to stay over for the night. The three-day time limit remained at the back of my mind. I couldn’t eat anything at breakfast, and I made sure to give everyone a tight hug before I left. Lucas could sense something was up. He handed me a rock he claimed to be a fossil he found all by himself. He was proud of it and made me promise I would return it after I saw him next. It was like he knew I wasn’t planning on coming back.   
 
-We kept moving. Water slicked the walls, ran in thin streams down the channels carved between the roots. The whole tunnel felt like the inside of something’s throat.
+Again, I lied and left Evie’s place and went back to my empty apartment.  
 
-Then the walls tightened.
+Alone with my thoughts, a darkness overtook my brain. It felt like I was drowning. I kept thinking of what the easiest way was to get the gruesome task done with limited damage to others.  
 
-We hit a squeeze.
+I didn’t want someone to have to find bloody remains. I oddly came out alive, no matter how hard I tried not to, on jobs, so dying while fighting a monster was off the table. Were there any kind of poisons I could get my hands on? If I messed up the amount, someone could find me and know what I tried to do., I did not want to get stuck in a hospital or go through a botched attempt.  
 
-It wasn’t a passage—it was a seam. A split in the earth just wide enough to take a human shape if the shape didn’t mind being broken first.
+The answer came when my phone rang. Cameron called, so I answered it. I didn’t want to talk to anyone, but hearing her voice one last time would be nice. We talked about nothing too important. I valued that kind of friendship. I wish we had gotten to talk a bit more often since I met her. Before she hung up, she offered to hook me up with a relative since she heard I had such a rough time lately.  
 
-The water here stilled. Warm before, but now *hot,* almost alive.
+I hesitated. A succubus could easily kill me. If I gave them permission to do so. Most needed to drain one or two people fully per year to stay alive. I accepted her offer, a tight knotting my stomach.  
 
-Nick stared at the gap, jaw tight.
+I think the person who showed up was her cousin. We didn’t exchange names. They knew what they were there for. I took the risk and made it clear I wasn’t planning on surviving this encounter. They didn’t appear bothered by the statement. They even agreed not to tell Cameron the plan. Sure, she may be a little upset that a family member killed a friend, but it was just their nature, and it was my choice. No one was forcing me to do this.  
 
-“We’re doing this together,” he said. His voice sounded smaller in that space—or maybe we did.
+I think even if the copycat hadn’t threatened the people I cared about, this was always going to be my final outcome.  
 
-“We don’t stop,” I answered.
+I almost felt guilty for picking a pleasant way to go out.   
 
-He nodded. Then we went in.
+I won’t go into details of what happened over the next two days. I think anyone can guess. Since I was from a Hunter family, I had some resistance. One more day being with them would finish me off without any doubt. I turned off my phone, so when I woke up to the sound of one ringing, I was confused.  
 
-The stone met me everywhere at once: chest, spine, ribs, skull. My cheek mashed sideways against slick rock, my breath bouncing back at me. My left ear went under first, then my jaw, then my mouth. Stillwater slid into my nose and burned. Breathing became something I had to steal in little sips, nothing more.
+I was drained right down to my very soul. It would take a few minutes to regain enough energy to sit up. I heard my temporary partner speak in the other room, but I made out a few words. Something about the fact that I had pants on. Which I did. I made sure to shower and put on boxers before I passed out.  
 
-I dragged myself forward with my fingertips, blind, ribs scraping one by one. My legs kicked for leverage, but found none. The water climbed to my eyes. My lashes dipped under, vision blurring into ripples of darkness. My hair floated up around my face like weeds reaching for the surface.
+Closing my eyes, I expected them to come back into the room. When my brain finally caught up to what was going on, it was too late. The door opened, and it was not the person that I asked to take my life on the other side.  
 
-Behind me, Nick grunted—a sound caught between effort and the edge of fear.
+“Oh, hey, you look like shit. Are you ready to talk?”  
 
-He was bigger. Too big for this.
+Sitting up, and weakly threw a pillow at August. What was he even doing here/ suddenly, everything clicked.  
 
-If he got stuck, I’d feel it happen inches from my boots.
+“Did you set all this up?” I hissed in a cracked voice.  
 
-“Keep—” he forced out, voice strangled by the stone around his throat. “—going.”
+“Yupe. I promised to introduce your new friend to September in exchange for them coming over.” he explained, and I felt disgusted. “Sometimes you need to break things before you can put them back together.”  
 
-I didn’t answer. If I opened my mouth the water would claim it.
+He was well aware something was going on. And I would refuse to ever talk to him, or anyone, about it. He needed to catch me in a very weakened state to ever have that chance to get to the bottom of the issue. Rage flared up, and my stomach was full of acid. I shot up on unsteady legs, faintly away. This was the first time he’d seen most of my legs. I’d tried to hide the old scars that not even Ito’s final gift could heal. The blackness from my bad legs started to spread beyond my hip, also covering the entire side of my torso. Since I had a skin cover on the leg, I wasn’t certain how bad it looked.  
 
-A root slid along my collarbone. Slow. Curious. Not brushing—searching.
+“What the hell is wrong with you? Peddling off a family member for something like that? Do you find this all fun? Do you just want to torment a person from a Hunter family? Are you mad that what I’m doing will hurt Lucas, is that it? Just let me die in peace. God, you really are a monster.” I said, wanting to scream at him, but I didn’t have the strength to raise my voice.  
 
-It paused at my throat, like it was deciding where to anchor.
+I wanted it all to stop. The way I was feeling, the suffocating, constant thoughts and fears. And I didn’t want to deal with another person asking me what was wrong. At this point, there was nothing anyone could do to fix things.  
 
-I pushed harder, lungs squeezing themselves thin around the last scrap of air.
+“Well, sometimes a big brother needs to be the bad guy.” He replied, ignoring my outbursts and angry expression.  
 
-My shoulders jammed. A perfect lock, my body the key that didn’t fit.
+The dimpled smile on his face was the warmest I’d ever seen from him.  
 
-Panic flared, bright and animal. The pulse in the stone throbbed against my ribs. Or maybe that was my own heartbeat trying to leave my chest.
+His words were like a punch to the stomach.  
 
-Behind me, Nick’s hand shoved against my boot. A wordless, desperate push.
+August was strange and scary in a way. He loved Evie like a sister. He adopted Lucas without a second thought. Regardless of whether they weren’t even the same species, the boy was his son. Full stop. He would do anything for his family, even hurting them if that meant helping them in the long run.  
 
-I twisted. My shoulder ground into rock until something in it sparked hot and pain surged into my neck.
+It wasn’t too hard to accept that he saw me as a brother. He didn’t care about my bloodline, my faults, or any issues I had; I was family. His family.   
 
-I screamed.
+“I’m going to puke,” I said, and didn’t make it to the bathroom.  
 
-The hot Stillwater filled my mouth.
+He carefully took over and guided me there and helped clean off my chest of the thick black liquid that just erupted from my stomach. I hadn’t eaten in days, so I wasn’t sure what the vile sludge was.  
 
-It was metallic, so metallic it felt sharp, like sucking on a coin that had rusted in sea brine. A thick saltiness coated my tongue, not like ocean water but like blood left to dry on metal. The water itself was viscous, almost gelatinous, as if it carried strands of something suspended in it. It moved slow in my mouth, clinging to my teeth, leaving a film that felt more like slime than liquid.
+I sat on the floor, leaning against the toilet, legs outstretched in the small bathroom. He sat on the edge of the bathtub, waiting until I was ready to speak.  
 
-I swallowed.
+“I think there’s something wrong with me...” I finally said.  
 
-Then—slow, brutal, like the earth exhaling—I slid forward.
+“I mean this in the nicest way possible, but no shit.” He said, smiling.  
 
-First an inch. Then another.
+I wanted to punch him, but he was too far away.  
 
-The pressure broke just enough for my head to rise out of the water.
+“Why didn’t you tell me about Ito.” He said, and the air grew heavy.  
 
-And suddenly—
+I realized that I hadn’t once mentioned Ito to him after his death. He must have heard about it, but we never talked about what happened.   
 
-I was through.
+“I just... didn’t want to.” I admitted.  
 
-My torso spilled into space and I gulped the air. I twisted around immediately, reaching back into the seam.
+If I mentioned it, he would want to help. I just didn’t bear to deal with his kindness. I just wanted to escape into work or into bed with another person, trying to forget everything. I had always done that. I just ran away from my problems. August would have made me face them.  
 
-“Nick—come on, come on—there’s room—”
+“I’ve been pretty selfish lately. Sorry... I never should have considered leaving without... I duinno. Leaving the way I was going to. I should at least try to pay off my medical debt. God, my brain has been so foggy I don’t even know how much I have left on that.” I let out a long sigh, resting my head against the cool bathroom wall.  
 
-The stone vibrated with his struggle. His hand shot through first, searching, shaking. I grabbed his wrist, braced my feet against the far wall, and hauled.
+August, resting his chin in his hand, was amused at the statement. He had been a few steps ahead. I was never going to go through hurting myself because he wouldn’t let me.  
 
-He burst out like something being birthed. He hit the ground beside me, coughing, choking on the water he’d swallowed. And then he laughed: one broken breath of disbelief.
+“I’ve heard human medical debt was bad. I had no idea how bad. I pray Lucas never breaks anything.” He commented.  
 
-“Fuck that,” he wheezed.
+I’d closed my eyes and didn’t open them again when he spoke.  
 
-“Yeah,” I said, pausing for a moment. “I swallowed some of that shit.”
+“No, I owe Dr. Fillow for my bad leg.” I said, not raising my head.  
 
-“Me too.” Nick said, meeting my eyes as if to say we were both in it now, like it or not.
+A very, very long silence came between us.  
 
-The seam looked smaller. Like it had already begun to close.
+“Dr. Fillow...? The supernatural one?” He said, sounding odd.  
 
-We turned.
+I glanced over at him to see that he raised his head, his hand hovering as if I’d said something overly shocking.  
 
-The passage ahead sloped downward, carved cleaner than the rest, almost intentionally. And there, hammered deep into the left wall, was a metal stake. A rope hung from it, thick and older than anything in the cellar. Stiff with dried mud. Frayed from use. Leading down the passage.
+“Well, yeah. I don’t think there is another one.” I confirmed.  
 
-Nick touched the rope with two fingers.
+“For that leg.” August said his long finger was pointing down at the leg in question.  
 
-“They’ve been coming down here,” he said.
+“Yes. I lost the other one. He needed to replace it with this.” I explained with an odd feeling in my stomach.  
 
-I swallowed against the dryness in my throat. “Then we’re on the right path.”
+“That leg.” He said again, almost like a demand.  
 
-The pulse came again: stronger now, pushing through the water, through the walls, through us.
+I had no idea why he was acting like this. I glance between the bad leg and his face. A set of eyebrows creased in concern met my gaze.  
 
-Downward.
+“Yes...?” I said, feeling like I wanted to get away from this conversation.  
 
-Always downward.
+He suddenly slapped his thighs and then stood up. I couldn’t move fast enough as he hauled me off the floor and onto his shoulder.   
 
-We moved slowly at first, mostly because we had no choice. The tunnel sloped unevenly, the floor slick with a sheen of water that clung to our ankles like fingers. The air thickened behind us, warmer with every foot downward. Not like weather. Like breath.
+“Well, let’s see him for a check-up!” He chirped and reached for the door.  
 
-Roots webbed the ceiling, thin at first, then thicker, branching and re-branching like nerves. The deeper we went, the more they twitched—tiny contractions, a pulse traveling through them like a message we weren’t meant to understand.
+For some odd reason, I panicked. No matter how much I struggled, I did not want to go into the clinic. In fact, I've never been to the clinic before. I’d always had home visits. Aside from being dragged around in only my boxers, I didn’t want to go for another reason. I was scared as hell and almost feral. I kicked, scratched, and cursed him out. August did not set me down.  
 
-Our own breathing started working against us. It echoed off the stone, too loud, too fast. My vision flickered at the edges every time I turned my head too quickly. Hunger made my legs shake. Nick stumbled once and caught himself on the wall; the roots there recoiled.
+We entered a small white hallway, and I grew even more tense. I did not want to be here. Something was so wrong, and I couldn’t understand what.  
 
-The pulse ahead started faint, just a tremor in the rock.
+“Oh, hey, cousin! Can we borrow you for a minute!” August spoke out.  
 
-Then it grew.
+“I’m busy. Please sign in.” A voice came that sounded familiar.  
 
-Not quickly. Not all at once.
+He placed me down but kept an arm around my side to make sure I didn’t try to run. The man with dark hair in the hallway looked a little similar to August. He must be a bug-based supernatural creature. I doubted they were blood-related cousins. Most creatures would call each other cousin, aunt, or uncle if their species were similar. I’ve seen wolves call dog creatures cousins before.  
 
-Minute by minute, it filled the tunnel. A slow, huge heartbeat that thumped through the stone, then the water, then our bones. Not the kind you hear. The kind you feel.
+The man had a sharp face, dark eyes, and square glasses. He looked very much like the Dr. Fillow I knew. A brother, maybe?  
 
-We kept going.
+“Please, Civil, it’s important.” August pleaded in a sweet tone.  
 
-Another bend. Another drop. The Stillwater rose to our shins. The warmth thickened into something humid, almost feverish. My skin felt slick, my clothes stuck to my back. My head buzzed, dizzy from heat and hunger and the pressure rolling through the earth.
+“It’s Dr. Fillow to you.” The man corrected.  
 
-The tunnel narrowed. The roots stroked our shoulders as we ducked through.
+“Oh, there are two of them?” I asked, and suddenly all eyes were in my direction.  
 
-Nick flinched when one brushed his mouth.
+A nurse made up of a transparent pink substance came out of one of the rooms. The doctor handed them the bundle of papers in his hand, asking them to take over the patient in the other room, his attention now all on us.  
 
-The air changed again: shifted colder, sharper. A current whispered past us, carrying a faint silver glow.
+“What do you mean by that?” He asked carefully.  
 
-We stopped at the same moment.
+“Well, you’re not the Dr. Fillow that treated my leg. So there has to be...” I said, trailing off as something finally clicked in my head.  
 
-Ahead, the passage exhaled light. Not torchlight. Not firelight.
+My mouth became dry, and August had to keep me upright. I wasn’t even aware of my surroundings as everything finally dawned on me. I had been so stupid for over two years and only now realized it.  
 
-Moonlight.
+They gave me some time, and finally, Dr. Fillow spoke, his words snapping me from my sheer horror over the situation.  
 
-Soft. Cold. Impossible this far underground.
+“Do you have anyone who might hold a grudge against you?” He gently pressed, aware that I was having a minor mental breakdown.  
 
-We pushed forward, slow at first. Cautious.
+“I...” The words refused to come.   
 
-Then the heartbeat deepened.
+Considering my job, I did, but this all happened before the fact that I came from a Hunter family came out. I’d lost my leg when my partner died. We had worked on easy jobs. Nothing like what I had been through the past year or so. Back then, I had no enemies. So why did someone pretend to be Dr. Fillow and, what? Replace my leg with a bad one to make me suffer? I placed a hand over my eye, fighting back a migraine.  
 
-The walls trembled with each pulse. Dust fell in thin veils. The water jittered at our ankles in tiny rings. The pressure made my ears pop, my jaw ache, my vision blur.
+“When did this start? I mean, when did you get your leg replaced?” he pressed on.  
 
-Another pulse. Bigger.
+Someone pretending to be him was a big deal. We needed to figure out if I had been the only victim.  
 
-A groan followed it: low, human-enough to be recognized, but wrong. Like dozens of voices had been braided together, all speaking on the same breath.
+Two years ago. No longer. When my partner died. They never found her body. I lost both legs. One was sewn back on and the other...” I started to feel sick again, feeling every ounce of pain coming from the tainted limb.  
 
-Nick stiffened. “You heard that.”
+“I heard about that. You were missing for two weeks. Do you remember anything from around that time?” August mentioned.  
 
-“I heard it.”
+He might have asked around about my past just to know what sensitive topics to avoid. I shook my head, not wanting to think about memories I wanted to avoid  
 
-The next groan came louder. Longer. A ripple of sound that dragged through the stone like something scraping its way awake.
+“No... wait, yes. Some. Just flashes. I was in bed recovering. Oh...” Something came to mind that I didn’t understand. “I saw my partner’s body. That doesn’t make sense. I was holding her hand. She fell into the sea, right? And her body was never found. It all doesn’t match up.”  
 
-We didn’t walk after that.
+The two men glanced at each other, wanting to breach an uncomfortable theory.   
 
-We moved as fast as the tunnel allowed: half-stumbling, half-pulling ourselves down the slope using the rope. My lungs burned. My legs shook with every step. The air ahead thrummed with pressure so heavy it felt liquid.
+“How well did you two get along?” Dr. Fillow suggested.  
 
-The pulse grew so loud it drowned our breath. It wasn’t sound anymore. It was *impact*, slamming through the ground, rattling my teeth. The same thunder that had shaken the woods. The same rhythm that had stolen Clara’s blood. The same hum that the stag carried.
+A sudden rage flared up, and I felt my face get hot.   
 
-Nick muttered, broken and breathless, “It’s getting louder—fuck—Alex—”
+“I cared about her! We both did! What are you suggesting? She, what? Planned all this, pretended to be dead, and tormented me for two years? She doesn’t have that kind of skill to start with, and she wasn’t that kind of person.” I snapped, unable to hold back.  
 
-“I know—keep moving—”
+“When I asked around, since her body is missing, they never confirmed she was dead. I don’t think she’s the one pretending to be Dr. Fillow, but your old partner may have something to do with all of this?” August suggested.  
 
-A final bend. The rope curved with it, toward the widening glow.
+I felt disgusted by him. I pushed away from him, hard. He stumbled back a little, startled by my reaction. If they ever met her, they would know that she was a victim in all this. A kindhearted, yet not very bright person, I deeply cared about.   
 
-The tunnel ahead opened into a vertical throat of silver light. The roots along the walls thickened into bundles: limb-like shapes merging toward the light, as if everything down here had been growing toward that one place for centuries. The air blasted warm then cold then warm again, as if the whole place was inhaling.
+“Don’t you dare even hint that sort of thing! You know nothing about her!” I yelled, almost seeing red.  
 
-The light spilled over our faces.
+This kind of reaction wasn’t like me. I never got heated like this. Something was wrong, and I couldn’t control myself. If I got even a little more upset, I risked actually hurting one of them.  
 
-Nick swallowed hard.
+“I’m just saying-” August started again, raising his hands in front of him as if he was trying to calm down a wild animal.  
 
-“We’re close.”
+“Shut up! She wouldn’t-” I found my throat almost too tight to speak. Yet the words forced their way through. “Jayce has noth-”  
 
-I nodded, though my stomach twisted. It wasn’t fear. It was something heavier, a kind of recognition that bordered on reverence.
+For the first time in over two years, I let myself say her name. It hurt to even think it. I couldn’t even finish my thought when things happened in slow motion. It felt like something snapped around my hip, and I started to fall back. A burst of heat came, then pain. August had lashed out, his hand turning into a set of claws that sliced through the bad leg, taking it off just below the hip. He grabbed it just as Dr. Fillow took hold of my body.  
 
-Another pulse shook the tunnel.
+I watched in horror, and August turned away, pressing the limb against his chest, curling around it as the flesh wriggled and started to expand. Dr. Fillow swiftly placed his body between us, acting like a shield to protect the weak human from what happened next.  
 
-This one shook *us.*
+I heard a deafening sound, some screaming, then my vision went dark.  
 
-We steadied ourselves against the roots. They throbbed back.
+I had no idea how long I was out for. I woke up in a clean yet stiff bed. The room was bright white, which took a while for my eyes to adjust to. I stayed on my back, trying to figure out what happened.  
 
-The rope dipped into the brilliant silver glow ahead, disappearing past the edge of the tunnel.
+I felt... fine. It was a shock. Some pain in my hip, but overall, just fine. The heaviness in my chest disappeared. It was as if I were a completely different person. Mentally, I went over what happened. I said my partner's name, August cut off my leg, then what?  
 
-Wherever it led, the heartbeat finally had a home.
+“Jayce...” I said out loud to the empty room.  
 
-\*\*\*
+I could say it. I could think about her without the brutal mental pain it brought. Yes, I still missed her. And Ito, but I could handle it. Whatever major depression I had since she died had lightened.  
 
-We stepped into a chamber the size of a concert hall.
+I sat up, spotting a pair of crutches near the bed. Aside from an IV, I wasn’t hooked up to anything. I must not have been out for very long. It took a while to get up and take hold of the crutches to head toward the door. I’d used them before when I was recovering, so it wasn’t overly hard to move around. Missing a leg felt very odd, though.  
 
-Moonlight poured down from above through a jagged circle in the ceiling. The well. We were underneath it. 
+I made my way into the hallway following a smell. Turning a corner, my stomach dropped seeing part of the building. It was black and burned and poorly roped off. Whatever happened with my leg had caused this. What about August?  
 
-There was something massive suspended in the center of the room. At first I thought it was a boulder. Then it moved.
+“You shouldn’t be up. Sit down.” A voice came from behind.  
 
-A ripple passed through it—slow, deliberate—like the flex of an animal testing its weight.
+Dr. Fillow stood with a loose sheet of fabric over his face. His hands and neck were wrapped in bandages.  A guilty feeling stabbed my stomach, and yet it wasn’t on the same level as before.  
 
-My stomach caved in.
+“Your face...” I started, and he helped me into a chair against the wall.  
 
-It wasn’t a stone.
+“I just burned away my human mask. It's fine, it’ll regrow. I find most people are put off by my real face.” He explained.  
 
-It wasn’t a creature.
+“And August?” My pressing worry nearly caused me to stand up to look for him.  
 
-It was a heart.
+“He just went to the washroom. He should-”  
 
-Not human. Not animal. Something older. Something built by the earth itself. Folds of muscle the size of car hoods glistened wetly. Each chamber swelled and collapsed in slow sequence. 
+He was cut off by a chirping noise, and then I was tackled into a very tight hug. After nearly crushing my ribs into dust, August pulled away so I could see the damage. His human skin had also been burned off. I looked at his insect face and dark, wavy hair flowing over it. He couldn't speak until he healed, so he kept chirping, trying to get his point across. His eyes were wide and dark. His jaw was long with sizable teeth that would be off-putting to most. I think I would have found him frightening when we first met. Now, I thought he looked cute.  
 
-Roots as thick as tree trunks plunged out of its sides. Some dug straight into the rock. Others spread across the ceiling and down the walls, branching smaller and smaller until they disappeared into hair-thin threads. Veins ran along them, dark and glistening, pumping black Stillwater instead of blood. Every beat forced more of it through the network, down into the floor, back out into the tunnels.
+I wrapped my arms around his neck, thankful he was alive. A warm feeling swells in my chest. I hadn’t felt like this in a very long time.  
 
-The light hit the heart in a pale column, making the slick surface shine like something freshly skinned.
+“I’m so sorry. For everything since we met. I wish you didn’t have to deal with that version of me.” I rambled as he clicked and chattered some inhuman language as a response. Somehow, I understood what he was trying to say. “I love you too. Thank you for everything so far.”  
 
-And then I noticed it. 
+Dr. Fillow, the real one, gave us a little bit of time before he wanted to get into everything.  I let August pull away, not wanting to think of not only how stupid I'd been, but also face the horror of what I went through. For over two years, I had a tainted body part attached by some mystery person who clearly had it out for me. They could have killed me at any time, but sat by and watched me suffer while pretending to help.  
 
-The faces on the walls.
+“It seems the leg was a mixture of curses and spells sown together. I’m shocked it stayed on for so long and that you didn’t die. From what I pieced together from the leftovers, it did a few things. First, it amplifies your negative emotions. A stubbed toe might feel like the end of the world. Seriously, you’re fairly mentally strong to have dealt with that for as long as you did. However, that doesn’t change the fact that you went through a lot and had certain feelings or thoughts. Just because the leg is off doesn’t mean you’re fully cured of any issues.” Dr. Fillow explained, arms crossed.  
 
-At first they read as shapes: bulges in the root, knots in the wood, dark stones caught in the mesh. Then one turned. Just a millimeter. An eye tracking us.
+He must have heard that I have yet to go to therapy. His stern tone was a warning to do so once everything was sorted out.   
 
-There were dozens. Maybe hundreds. Bodies, or the pieces of bodies, woven into the rootwork like fruit into a tree.
+“Do you remember how much you paid this person, or who you were even sending money to?” He asked, and I shook my head.  
 
-A shoulder fused to a pale bundle of roots, the arm hanging loose but still twitching at the fingers. A torso half-sunk into the wall, ribs spread like something mid-breath. Hands, so many hands, cupping nothing, reaching for nothing. A jaw locked open in a permanent scream, teeth threaded through with fine roots like stitches.
+My memories were still foggy. Most of the money I’d made went to the imposter. I assumed it was to keep me dirt broke, then taking risks with dangerous jobs to make me suffer.  
 
-Heads bloomed from the tangle like flowers gone bad. Some had no eyes left, just soft pits where the roots pushed through. Others watched us with glassy awareness, tears running sideways into the bark that held them. A few mouths moved, lips shaping words the throbbing chamber swallowed.
+“I asked a friend to look into your accounts. We may be able to find where it went, but it might not lead us to who it went to.”   
 
-The sound we’d heard through the stone wasn’t just the heart.
+I muttered a small thanks, feeling embarrassed that not once did I question the money issue. Curse and tainted magic or not, I should have realized something was up sooner.  
 
-It was all of them.
+Dr. Fillow put a hand on his hip, trying to get more details straight.   
 
-A constant low groan, hundreds of voices stretched across the same breath. Some sobbing. Some chanting. Some only humming the same thin note until it blurred into the pulse.
+“I heard a fake version of you appeared and attacked some of your friends. We can assume that the person set the fire to scare August. The issue is, we don’t know what kind of creature it could be. I assume they’re working with someone. Copycats and mimics are not talented spell-wise. Neither of them would be smart enough or strong enough to create this leg.”  
 
-Nick made a sound I’d never heard from him. Not a sob. Not a curse.
+I frowned, crossing my arms, thinking back to the fake version of myself I saw and briefly spoke to. They must be the person behind all of this. But I had no idea what kind of creature they could be.  
 
-Just a broken “Oh.”
+“Copycats or mirror creatures need to take the originals, right? I’m still here, so it wasn’t one of those. Mimics need to eat part of a person to copy them. It’s possible one ate my missing leg, but what about August? If he left some blood at a job, then... No. The fake Dr. Fillow wasn’t perfect. It was as if they only heard what you looked like and did their best with that.” I said mostly to myself.  
 
-Hailey was halfway up the right wall.
+August chirped, and I shook my head.  
 
-For a second my brain refused to put it together. I saw pieces before I saw her.
+“I’ve only met the real Dr. Fillow now. I wasn’t doing risky jobs before and was lucky enough to never need to come to the clinic.” I explained.  
 
-An arm I recognized by the scar near the elbow. A foot in the wrong place, skin still freckled. A spine threaded through with root, bent at an angle no human back should hold. Then my eyes found her face, and everything else fell away.
+It was the reason why I had been fooled by the fake.   
 
-Her severed head was cradled in a nest of roots that cupped her jaw and temples like fingers. Her hair fanned behind her, tangled into the wall. One eye was half-lidded, the other wide, fixed on the middle distance. Stillwater seeped from the corner of her mouth in thin black strings.
+“Then they transformed with a spell?” Dr. Fillow suggested.  
 
-Where her torso should have been whole, roots had replaced what was missing. Thick cords crawled through the holes the stag had made, weaving out through her back, down her legs, up her arms. She wasn’t hanging. She was being held in place like part of the system. A limb, not a person.
+“No. I saw them. I would be able to see if it was a spell or not.”  
 
-Her chest rose. Not much. Just enough to prove that whatever the heart did, it didn’t let its pieces rest.
+I sighed, and the two of them kept thinking. Since there were so many different creatures, it was almost impossible to figure out what we were facing with so little information.  
 
-Nick stepped forward until he was standing in the shallow water beneath her, his shoulders directly under her ribs. His hands lifted, hovering uselessly like he didn’t know where to touch.
+“A half breed may have shapeshifting abilities unlike other full-blooded creatures. Some that we have never seen before. Again, they could not have created this leg. They must be working with someone. If only we knew anyone you sinned against from the past.”  
 
-“Hailey,” he whispered.
+The other man shrugged, unaware his words gave enough clues for me to figure things out. My head had been foggy because of the tainted leg. Now that I was thinking clearly, things came rushing back.  
 
-Her eyes moved. Slow. Like someone trying to surface through thick ice.
+“Oh! A half breed!” The words slipped out once things mentally fell into place. “I dated one when I was younger. Around the time my mother was sick! They were half mirror, half mimic with some human mixed in somewhere.”  
 
-Her gaze found him.
+Dr. Fillow appeared alarmed under the cloth that was covering his face. August looked between us, trying to follow along.  
 
-Her lips parted. The sound that came out was half-breath, half-liquid, pulled through a throat full of roots.
+“That’s a bad combination. Humans need a sense of identity. Adding that to those two kinds of creatures causes a great deal of mental instability. You wouldn’t need to do much to get on the bad side of a half breed like that. Still, they would not be strong enough to harm your friend Harp. Or create the leg. From the looks of things, it was rigged to explode when you said your old partner's name. Yes, the half breed you dated may hate you enough to think of such a thing, but not create the means to do so.”  
 
-“Nick.”
+I looked over the blackened and ruined hallway, my stomach dropping, and fear again spiking through my veins. I had been walking around with a bomb that could have gone off at any time. I felt sick when I considered what might have happened if I said Jacye’s name at the wrong time. The trigger was meant to hurt me. I could have lived through the explosion, but what if I had been around Lucas when it went off? By the time I healed enough to talk about her, it would have been with someone I cared about. August was strong enough to live through the attack. After shaking my head, I kept speaking about what else I figured out.  
 
-Just that. One word, mangled and wet, but hers.
+“Have you ever heard of being infected by Sin?” I asked Dr. Fillow.  
 
-The chamber roared around it. Every other mouth seemed to wake at once, groans rising, mutters spilling, a crowd of agony that swallowed the name. The heart shuddered. The roots clenched.
+Again, he looked alarmed. August was confused, and I realized I had never fully explained it to him. After a brief catch-up, Dr. Fillow nodded at my suggestion.  
 
-Nick’s legs shook. He didn’t look away.
+“Before Jayce... what happened to her, I did a job saving mimics and similar creatures from a trafficking ring. We failed to save at least one of them. When we caught up, the creature was gone, and there was evidence of a ritual left behind. There is a chance that the creature was the one I dated years ago. And they may have been infected around that time. If they realized I failed to save them, then maybe... I don’t think they set up the job that caused Jayce’s death. They saw me barely alive and decided to do whatever it took to make me suffer to get back on failing them.”  
 
-I wanted to reach for her too. To do something. Anything. But there was no version of “help” here. No way to unthread her from what she’d been sewn into. No way to fix a body that had been grafted into something else’s anatomy.
+Dr. Fillow nodded along, listening to my theory. It was the best idea we had.  
 
-So I looked at the heart instead.
+“Wrath. It makes sense. I’ve heard you might be part of the Dougherty family. They have extreme cases of luck. Good and bad. It’s entirely possible that all of this fell into place. Since we have a lead, I’ll call the Corporation t-’  
 
-It filled the center of the space, suspended from the ceiling and anchored to the floor by knots of root thicker than Harlan’s arms. Every beat made the whole chamber move. The moonlight glinted off its wet surface, streaked with old blood and newer things I didn’t want to name.
+“No!” I shot up, forgetting I was missing a leg, and August needed to keep me in my seat.  
 
-This was what the family served. What the well fed. What Hailey was tied to now.
+“This is my problem! If they get involved, they’ll either kill them or collar them. I don’t know if it was the tainted magic or my own selfishness, but I can’t seem to remember their name. I don’t think it’s right that they attacked people I care about, but I understand why they lashed out at me, considering how I’ve treated them...”  
 
-Grief boiled into something sharper. Shock, guilt, rage—all of it finally picked a direction. It pointed me at that thing.
+Back then, I just left them behind. I know I had their phone number, but without a full name, it was impossible to find them again after that number went out of service. They often shifted their body from one gender and would take different nicknames. No matter how hard I tried, I couldn’t remember what they went by when we were together. It was my first relationship, and I ended it poorly, then failed to save them when they needed it the most.  
 
-“If we kill it,” I said, voice hoarse, “maybe it lets them go.”
+“It’s nice you want to deal with this yourself, but how are you going to do that, missing a leg?” Fillow pointed out.  
 
-I didn’t know if that made any sense. It didn’t matter.
+“I don’t suppose you have a spare?” I asked, hopeful.  
 
-There were rocks scattered along the floor of the chamber, chunks of stone that had fallen from the ceiling long ago. I grabbed one. It fit my hand like it had been waiting for it, edges jagged enough to tear.
+“No. The damage the tainted magic has done would make a new one impossible to stick. At least a flesh one. If I made one for you, it wouldn’t last very long. The other issue is that I provide my services for free. I don’t have the funds to drop on the materials you need. We would need to contact The Corporation because they normally cover things like this. If you want them to stay out of things, you’ll have to pay up.”  
 
-Hailey groaned again, roots flexing around her chest. Nick just stood there, staring up at her. His hands had finally found home: one on her cheek, one on the root curling through her wrist.
+I sighed, closing my eyes, feeling stuck. I was dirt broke. August chattered away, but I shook my head. I didn’t want him to pay for my mistakes.  
 
-“Alex,” he said without looking back. I didn’t know if it was a warning, a plea, or permission.
+“Um... Sorry, I we couldn’t help but overhear...” A new voice came, and I opened my eyes again.  
 
-I moved.
+A taller man stood next to a lizard creature standing on two legs. He had a beard and very kind blue eyes. The lizard beside him had a broad chest with a simple light green cardigan covering part of it, and dark black pants to hide the well-built legs. He was holding the lizard’s clawed hand, and I assumed they were a couple.  
 
-The water sucked at my boots as I crossed toward the heart. Up close, it was worse. The smell hit like a wall: copper and rot and something sweet underneath, like fruit left in heat until it blistered. Veins as big as my arms throbbed along its sides, pushing Stillwater through clear, tube-like roots. With every beat, cavities opened and closed, trying to drink.
+“Oh, sorry, were we talking too loud?” I asked, feeling guilty.   
 
-“I’m ending it,” I heard myself say. I didn’t know if I was talking to Nick, Hailey, or whatever listened through the stone.
+The damage to the building was my fault. And most likely the reason why these two could hear us in the waiting room is because of all the new holes in the walls.   
 
-I raised the rock.
+“Not at all. Sound just travels well in here right now...” He trailed off for a second, then got back onto the reason why they came over in the first place. “I’m Skyler West. This is my girlfriend, Hot Sauce.” he introduced themselves.  
 
-Something hit me from the side.
+The lizard next to him gave an open-mouth smile. Her body looked very masculine, but most lizard creatures did. Her smile was cute, though.  
 
-The impact knocked the breath out of me. I hit the root-matted floor hard enough to see white. The rock slipped from my fingers and vanished into the shallow water. Hands like iron clamps dug into my shoulders, pinning me.
+“I’m sort of a Contract Worker like you. I would like to help out if I could. My brother is loaded, so we can cover the cost of a new leg.” He offered.  
 
-The smell above me was familiar: old sweat, bad breath, damp wool, and the metallic tang of the well.
+I was stunned that a stranger would offer such a thing. I started to shake my head, embarrassed to accept such an offer.  
 
-I looked up.
+“His place has floors made of gold. We can afford it.” Skyler said, sounding a bit shy admitting such a thing.  
 
-The grandfather loomed over me.
+“Super duper loaded.” Hot Sauce confirmed in a raspy voice.  
 
-Up close he didn’t look old. Not in any way that meant fragile. His skin was drawn tight over the bones of his face, but the sinew under it was corded, dense. His eyes were pieces of polished stone jammed into deep sockets. Veins like threads of mold branched from the corners of his mouth into his cheeks.
+“That would be... Thank you.” I said, wondering what the chances of a person who could solve one of my problems not only being here but overhearing the entire thing.  
 
-His teeth were wrong. Too many. Too long. When he snarled, they caught the moonlight.
+I would really need to pay them back for this once everything gets sorted out.   
 
-And his breathing.
+The nurse I’d seen before arrived just as we were talking about a timeline of getting me fixed up. She had some papers in her hands, asking if the pair wanted to go into a private room to speak about the checkup results.  
 
-That slow, rattling inhale. That wet, hungry exhale.
+“Nah. You can tell all of us.” Hot Sauce nodded, not caring who heard her medical results.  
 
-I knew it. I had always known it.
+“Well, nothing has changed since the last time. The second egg seems a bit small, so it would be best to rest more and add more calcium to your diet.” The nurse said and handed over the papers for more information.  
 
-It was the same breath that had fogged under our bedroom door the first night. The same that had paced the hall in the dark. 
+Skyler froze on the spot. His face turned pale as his head very slowly turned toward his girlfriend.  
 
-It was him.
+“Second... egg....?” He asked slowly. For a bigger guy, his voice was on the softer side. “We’re... having two?”  
 
-He pressed one hand against my throat, not quite cutting off the air but close. The other flattened over my chest like he was checking a pulse.
+Hot Sauce looked over completely, forgetting to let him know about that detail. Her mouth opened wide, showing off all her teeth.  
 
-“You don’t touch it,” he rasped. His voice sounded like stones grinding under water. “You don’t even perceive it.”
+“Surprise!” She said cheerfully.  
 
-Spit flecked my face. His pupils were blown wide, swallowing the gray.
+Dr. Fillow and August needed to catch our new friend before he smashed his face against the floor from fainting, hearing such news. I mentally promised him to babysit whenever he wanted in the future. I think he might need the help.   
 
-I clawed at his wrist, but his grip didn’t move. My ribs protested under his weight. The heart thumped behind him, so loud now it felt like it was beating inside my skull.
+My new savior was hauled off to collect himself in another room. It was odd how easily things were falling into place.  
 
-The root under my back twitched.
+Now that we were aware of the threat, we could take precautions against it. Klaus agreed to request some Agents to watch over my loved ones on the down low and keep it off the books. He didn’t want Lupa to get wind of a creature with rare shape-shifting abilities.  We needed to solve this all soon, or else someone would start asking questions about why some Agents suddenly became friends with people I had connections with and wanted to hang around them.  
 
-He leaned closer. I could see where thin strands of root had crawled up his neck and into the flesh behind his ears. Little pulses moved under his skin.
+Once I knew everyone was safe, August collected my phone. It needed to be charged before I made a very important call.  
 
-“Land keeps what it takes,” he hissed. “You’re nothing but feed.”
+The fake Dr. Fillow’s number was still at the top of my contact list. I dialed it, feeling on edge with each ring. I didn’t expect anyone to pick up, yet they did.  
 
-He raised his other hand. The nails weren’t nails anymore; they were thick, yellowed claws, curved like hooks. He drew back, ready to drive them down.
+Silence overtook the other end of the call, and I thought they hung up for a second.  
 
-Something cracked.
+“You’re not dead yet. Such a shame.” The voice said, sounding oddly calm.  
 
-The grandfather jerked.
+Fear crashed through my body in waves. I’d faced a lot in my life. Death of loved ones, monsters, Gods, limbs being ripped off, and my body being torn apart. However, this person scared me in a completely different way compared to all of that.   
 
-For a second I thought it was the heart.
+They created my suffering and watched quietly for years. They used my faults against me, using tainted magic to muddle up my brain enough that I would blame myself for my suffering. I had been in the palm of their hand without knowing for so long. Aside from the outburst when I spoke to them after they harmed Harp, they never showed any outward sign of anger. The deep, endless hatred felt so cold that I almost couldn’t bring myself to speak.  
 
-Then his expression twisted, not in rage but in surprise. He looked down, slow.
+“Who are you?” I asked in almost a whisper.  
 
-The length of root jutting out of his stomach wasn’t part of the chamber. It was sharp at one end. Stained dark at the other. Pushed clean through him, just under the ribs.
+That was the wrong question to ask. I could almost feel the rage over the phone.  
 
-He made a sound like a pipe being cut off: air choking itself in his throat. His grip loosened. I rolled sideways, coughing, scrambling away on hands and knees.
+“One week. I’ll be at your old house, where we first met.” The call went dead after those words.  
 
-Nick stood behind him.
+I closed my eyes, a headache forming. No matter how hard I tried, I could only remember bits and pieces from that time in my life.   
 
-He held the root with both hands, knuckles white, shoulders shaking. For a heartbeat he looked like he didn’t know where he was. Then his eyes found mine.
+I had dated a mimic creature that changed its gender and body type often. Also, their name. What did they start off as? We lived next to each other. Since we were around the same age, we became fast friends, and then things led to another. My mother was sick around that time, and when she died, I left. I just left them behind.  
 
-His hands were covered in blood that wasn’t the grandfather's.
+Could I not remember because of the tainted magic left over in my system? Or because of my mother’s death? Or because I was a dumb kid who hurt someone very important without a second thought?  
 
-Hailey’s.
+I had time to try and remember. Even if it didn’t come back, I needed to make things right.  
 
-I glanced sideways, up at the wall.
+Now, with what seemed to be access to an unlimited amount of cash, getting a new leg was fast. Two days after the phone call, a new fleshy one had been replaced where the old, tainted one had been. Dr. Fillow warned that this was temporary. This limb would last a week to a few months, depending on how much I used it. Then, I would need a prosthetic.    
 
-Her head hung at a softer angle now. A clean, plunging hole through her left eye.
+I doubted I would be able to keep working as a Contract Worker once I lost this leg. I wasn’t worried about that. I just needed it to last long enough to deal with what I had left behind.  
 
-Nick had finally put Hailey to rest.
+Dr. Fillow wanted me on bed rest. I refused. I needed a test run. Against his wishes, I accepted an easy-looking job.  
 
-The grandfather roared.
+August came with me. His human flesh has not regrown yet. I felt guilty that he was missing out on time with Lucas simply because he couldn’t let his son see his true face. Whenever he sensed those feelings coming off me, he would ambush me in a tight hug. The affection was odd but not rejected.  
 
-It wasn’t a human sound. It came from everywhere at once, vibrating up through the floor, down through the roots, out through the mouths on the walls. He swung an arm back, catching Nick in the shoulder hard enough to send him staggering.
+The job was, of course, in a forest. The normal story of hiking disappearing. I hated how often innocent people died simply because a creature got hungry. There was simply no system that could ensure humans and monsters lived together peacefully.  
 
-“Run!” I choked out.
+I couldn’t get over how much lighter my body felt. I wasn’t aware of how weighed down I had been from mental exhaustion until it was mostly gone. Using my eyesight to find the threat lurking inside the dense woods was far too easy. It was a very good thing that the eyesight couldn’t be used by Hunters. If the wrong person has access to it, they would be a major threat. In fact, if I were able to keep a good leg, I was positive I could now handle myself in a fight against someone as powerful as Klaus or Lock.  
 
-Nick didn’t argue.
+Just as I was getting far too confident in myself, I was taken down a notch. The creature snatching up hikers was a mess of flesh and plant matter. But also with patches of holes where deadly small insects made their home inside. Seeing it made my skin crawl.  
 
-The grandfather stood. Black Stillwater and something thicker spilled down his chest. The roots nearest him writhed like awakened snakes, reaching to catch what fell. He turned toward us, jaw unhinging wider than should have been possible.
+August held his own against the attacks directed towards him. I found myself flinching and unable to focus whenever I saw the batches of holes get closed. It made the top of my head prickle. The spots started to spread further on the lumpy body, and I needed to turn away, holding back a scream that was caught in my throat.  
 
-There was only one opening we hadn’t come from.
+I’d forgotten that when it came to magic, battles weren’t always won by the person with the better abilities. I now understand why August couldn’t figure out how to fight against spider creatures. This newfound phobia of mine kept me from being able to attack or even get close to the threat. When a clawed hand with patches of those small holes grazed my chest, I wanted to cry. The jacket kept me protected from any damage.   
 
-At the far side of the chamber, opposite the tunnel we’d followed down, a narrow passage climbed upward at a sharp angle, half-hidden behind a curtain of roots. No rope marked it, but the air that rolled from it was fresher, edged with the ghost of night wind.
+I had access to unlimited magic I could control, a crazy healing ability, and a tanked-up jacket most Contract Workers would dream of having. After everything I’d been through, I was now on the same level as some top Agents, power-wise, despite being human. And yet, I was hiding behind a tree like a scared little girl, unable to face a basic creature that should have taken second to deal with.  
 
-I grabbed Nick’s arm and pulled.
+If August hadn’t come with me, I would have been screwed. While I was hiding, he ripped the creature apart into such small pieces that it would not be able to heal itself again. The job was finished with no help from his all-powerful friend. He peeked behind the tree, dark shiny eyes reflecting my shaky expression. He raised a thumb, asking if I was alright. I raised one back, holding back tears.  
 
-We splashed through the shallow water. Hands snagged our clothes as we passed, fingers tightening on sleeves, on pant legs, on bare skin. Mouths on the walls tried to form words. One got close enough to my ear that I heard it.
+At least I found out my body was ready to face the meeting in my old home a few days from now. Mentally, I wasn’t so sure.   
 
-“Mercy,” it breathed.
-
-I didn’t look back.
-
-The heartbeat hammered at our backs, each thud a shove. The grandfather’s steps shook the floor, heavier than any human weight. Roots lashed at our ankles, trying to pull us off balance.
-
-We hit the steps cut into the rock and climbed. The chamber roared behind us, voices climbing, breath booming, heart trying to drag us back into its rhythm.
-
-Nick’s hand grabbed mine once when his foot slipped. I hauled him up.
-
-We kept going.
-
-Upward. Away from the heart. Toward whatever waited above.
-
-We weren’t escaping.
-
-Not yet.
-
-Not without Elenor.
-
-[Part Seven >](https://www.reddit.com/r/nosleep/comments/1paze5k/stillwater_farms_part_7/)
+ 
