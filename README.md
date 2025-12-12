@@ -1,102 +1,82 @@
-# The Joke’s on Me - Part 1
-My name is Thomas. I’m twenty-five years old, and I’m writing this because I don’t think I’ll be alive for much longer.
+# I Think I Slipped Out of the World (Part 2)
+[(Part 1)](https://www.reddit.com/r/nosleep/comments/1o9arb3/i_think_i_slipped_out_of_the_world)  
+  
+Hi, my name is Brian.
 
-When people ask me why I hate clowns, I usually laugh it off. I say I just find them creepy the painted smiles, the fake laughter. But that’s not the truth. The truth is a lot darker.
+I'm 29 years old.
 
-It started fifteen years ago, when I was ten. Back then, life wasn’t easy. My dad was the kind of man who could turn a good day bad with just a look. He drank a lot. When he came home, we never knew what version of him we were getting the quiet one who sat on the couch staring at nothing, or the storm that broke everything in its path.
+And I found a talking, severed mouth to neck thing named Justin.
 
-My mom, Anna, tried her best to protect me. She worked two jobs to keep food on the table and somehow still managed to tuck me in every night. I remember her perfume lavender and laundry detergent. It always made me feel safe.
 
-But Dad didn’t like it when she stood up to him.
 
-There’s one night I’ll never forget. It was raining so hard that the gutters outside overflowed. Mom was standing by the kitchen sink, her back to him, and he was screaming about money how she was wasting it, how she was trying to turn me against him. She told him to leave. I still remember the exact words she said:
+Before I get into any of that, I should pick up from where I left off in my first post. After I saw that squirrel get torn apart by rain drops of all things, the reality of my situation finally hit me. Before that, it felt like some strange nightmare that I could not wake up from, but that moment made it real. Across the street, I saw a lost child crying. I couldn't do a damn thing.
 
-“If you ever loved either of us, you’ll walk out that door and never come back! The joke is on you Evan!”
 
-He laughed, that dry, broken sound that made my stomach twist. Then he threw his beer bottle against the wall, and it shattered just inches from her head. I remember her scream. I remember the way the glass sparkled on the floor like ice.
 
-He left that night. Mom locked the door behind him and slid down to the floor crying. I wanted to go to her, but I was too scared. I just sat on the stairs and listened to her sob until she fell asleep there on the kitchen tiles.
+I stayed by the entrance half a day. People came and went; the doors opened for them, never for me. The sensors saw everyone but me. The isolation was getting old fast, hollowing me out. My right hand was gone now, same as the fingers. I hope that woman from the park isn't suffering. It doesn't get easier to think about.
 
-For a while, things got better. She smiled more. We’d eat dinner together, just the two of us. We even laughed again. I thought maybe we’d be okay.
 
-Then the nightmares started.
 
-At first, it was just the usual sleep paralysis that terrifying feeling where you can’t move, can’t scream, but you can see. I’d wake up frozen, staring into the dark corner of my room, certain something was there. And one night, there was.
+I didn't see Kyle once. Waiting is easy when you never get tired. I still haven't needed to sleep, eat, or drink. No hunger, no thirst, no exhaustion. Not even the urge to piss. My body doesn't seem to function at all anymore. No pain from the cold, no chills, no runny nose. I did not feel any other urges either. For a while, I really believed I was a ghost.
 
-A clown. He stood right beside my bed.
 
-He wasn’t like the clowns you see at birthday parties. His paint looked old, cracked in thin spiderweb lines across his cheeks, as if it had been there for years. The colors on his face had faded yellowing white, dull red but the painted grin was still impossibly bright, stretched almost to his ears. His nose wasn’t even round; it looked like it had been glued on crooked, half peeling away.
 
-And the smell God, that smell it wasn’t makeup or sweat. It was something sweet and spoiled, like fruit left too long in the sun, with a sharp metallic sting that caught in my throat.
+With nothing else to do, I thought things through. Maybe I missed Kyle on his way out. He's the type who would start worrying if I did not show up within thirty minutes. Maybe he left before I got there and went looking for me. I stayed near his building anyway because I did not know where else to go. It was the closest place for me to sit and think. He never came back, so I left.
 
-He didn’t move at first. Just stood there beside my bed, hands dangling at his sides. The air felt heavier with every second. I could hear the slow wheeze of his breathing, like air escaping through a slit in a balloon.
 
-Then, without a sound, his head began to turn toward the door. Not the way people turn it was too slow, too steady, until I could hear the faint crackle of his neck joints. When his head faced the hallway, his body followed, one foot after another, shoes squeaking faintly against the floorboards.
 
-I don’t know why I got up. Maybe it was curiosity. Maybe it was fear that felt too big to stay inside me. My body just moved.
+When I finally decided to check my place, I moved carefully. Wildlife was the biggest danger, unpredictable and quick. A single bird or rat could end me. I had a few close calls, but I made it. I shuddered at the thought of a murder of crows swooping my way. The front door to my building was propped open like it was welcoming me back. I ran inside, and slipped through my half-open front door.
 
-The hallway light flickered the moment I stepped out. For a second everything went dark, and when it came back on, he was standing halfway down the hall rocking side to side in a strange rhythm, like a child humming to himself. Then he began to dance.
 
-It wasn’t joyful. Each movement was stiff and jerky, like someone pulling invisible strings. His shoes scuffed the wood in uneven circles, the bright pom-poms on his chest bobbing with every twitch. I wanted to laugh. I wanted to believe it was some horrible prank. But then I saw the edges of his smile twitch not the paint, but the skin underneath, trembling like something trying to escape.
 
-And then he stopped.
+I saw my mom, dad, and brother in the kitchen talking. I stayed around the corner, careful not to get too close. They had filed a missing persons report. My mom was crying into my dad's chest. My brother was scrolling frantically through his phone. Kyle sat on the living room couch, hands locked together on his lap, staring at the floor, silent. I could see the guilt in his eyes. He probably thought my disappearance was his fault. But it wasn't. It was mine for messing around with things I don't understand. If I hadn't gone back and tried to recreate that strange sensation that pulled me into this place, I would still be fine. We would have watched some dumb horror movie and laughed and gone on with our lives. But I could not tell him any of that. Maybe never.
 
-He reached slowly into the deep, sagging pocket of his costume. I heard something scrape against the fabric before a faint glint caught the light a kitchen knife, the blade dull and stained with something dark.
 
-He turned his head toward my mother’s door.
 
-The moment he stepped inside, the house changed. The air felt thicker. I could hear the soft creak of the floorboards beneath his shoes, then a single breath my mother’s sharp, startled.
+I stepped close to my mom and yelled in her ear. Mom, mom. Nothing. I already knew it wouldn't work, but I did it anyway to get it out of my system. I looked at all of them, and at Kyle, who is like a brother to me. Then I went outside and sat on the stairs. I started piecing together the rules, or what pass for rules here in this trap dimension. A game between motion and stillness. The faster the contact, the harder it hits us. That's the closest thing I have to science here.
 
-Then came the sounds. Muffled first. Then sharper. Rhythmic. Something hitting, slicing, breaking the stillness in steady, awful bursts. I didn’t understand what I was hearing, but my body did I could feel my chest tighten, my vision blur. The light flickered again, and for a second, her shadow and his merged into one on the wall.
 
-When the noises stopped, the silence was worse.
 
-I took one step forward, then another. The floorboards groaned under my bare feet. The smell hit me before I reached the doorway copper and rot and something else I’ll never be able to name.
+And then it hit me. What if alleyway 3 was not the only place where the phenomenon could occur. Maybe there are more spots. Maybe there is a way out after all. I turned around, dashed into the lobby, almost bumping into a fake plant in the first floor hallway, ran into my place, and started testing everything. I tried walking at my normal pace in the kitchen, the living room, the bedrooms, the bathrooms, the closets. Every hallway, every corner. Nothing. I felt stupid after a while, but at least I tried.
 
-The clown stood there, motionless, facing me. His costume was darker now, soaked and dripping. Something hung from his hand I didn’t see what it was at first, because I was too focused on his eyes. They were wide, unblinking, and filled with a joy I can’t describe.
 
-Then I realized what he was holding. He was holding my mother’s decapitated head.
 
-And he smiled a slow, deliberate curl of his lips that didn’t match the painted one. Then that wheezing laugh started again, low and uneven, building into a childish giggle that bounced off the walls.
+By the time I stopped, my parents were gone putting up posters. Only Kyle and my brother were still there, sitting at opposite ends of the couch. I sat between them. The couch didn't react to me. It felt like I was trying to make myself comfortable on top of a rough boulder. I shifted around, forgetting I couldn't affect the physical world anymore. The couch began swallowing me. Slowly at first, then faster, like quicksand. I panicked as I sank through it, into the floor, through the beams, until I fell into the basement.
 
-He stepped closer. I couldn’t move. The sound of his shoes against the wood echoed like tiny screams. Then, without warning, he threw her head at me heavy, wet, thudding against the floor just before my feet.
 
-The clown looked at me and whispered ”Now the joke’s on you buddy!”
 
-I screamed until my throat tore. The last thing I saw before I passed out was the clown standing at the end of the hallway, bowing, as if finishing a show before he slipped into the dark and was gone.
+I hit the concrete halfway inside it, right next to the washing machines. Forcing myself out felt like swimming through thick tar. I went back upstairs and my front door was closed. I looked at it for a long time and smiled a little. I could have forced my way back through the door, but I didn't. The floor still felt soft under my feet, like it remembered trying to swallow me. I left. Next time I step into that building, it'll be in the home dimension... and I'm hugging everyone until they can't breathe.
 
-When the police arrived, I couldn’t say anything. I just kept repeating the same thing over and over:
 
-“The bad clown killed my mom.”
 
-They thought I was in shock. They thought I’d imagined it. There were footprints, but they led nowhere. For two years, no one believed me.
+After that grim, one sided reunion, I wandered the streets again. The sky was gray. The angels were spitting on me, each raindrop pushing me down a little further, not into the ground but to my knees. Small things barely affect me, but heavier things hit harder, especially in clusters. It seems like mass still plays by the rules here, at least a little.
 
-Then they arrested my dad.
 
-He’d been living in an abandoned trailer a few towns over. When they searched it, they found a clown costume crusted with old blood and a kitchen knife with my mother’s DNA on it. I didn’t know whether to feel relief or despair. He was the clown. He’d killed her.
 
-I went to live with my aunt and uncle. They were kind people, but the house always felt too quiet. For ten years, I tried to rebuild myself. Therapy. Medication. Nightlights. Anything to stop the dreams.
+I went back to alleyway #3 and repeated my steps again and again, trying to feel that same force that pulled me over. Nothing happened. I think that door only goes one way, if I can even call it a door. If there is another one that leads back, I will find it. I will keep walking at my normal pace and hope for that same pull again. Maybe it will be worse next time. Maybe I will vanish completely, forgotten to the world. Maybe I will come home.
 
-When I turned twenty, I met Valkyria. I know strange name. But she was wonderful. She made me laugh again. She made me believe I could be normal. We got married two years later, and for a while, I thought the curse was broken.
 
-Until two weeks ago.
 
-I came home from work and found a letter in the mailbox. No return address. Just my name written in red ink Thomas. Inside, there was a single sheet of paper with six words on it:
+Seeing my family and not being able to touch them was the hardest thing I have ever experienced. I bit my lower lip until I felt pressure, but no pain. I guess that is my way of grounding myself now. I didn't want to get angry again. I didn't want to lose more of me to this wretched place.
 
-“I miss you. See you soon. — Mr. Clown”
 
-I laughed at first. Thought it was some sick prank. But then the police called.
 
-My father had escaped from prison.
+After leaving the alley, I decided to test other spaces between places. More alleyways, side streets, abandoned buildings. Places people rarely go. For some reason it felt like those might hold the same strange energy. Maybe that was the desperation talking, but I didn't have any better ideas. The one good thing about not needing rest is that I can keep moving. No exhaustion, no limits. I can search for days. I still get mentally tired, but it fades fast, thankfully.
 
-They told me to lock my doors, to stay somewhere safe. But I don’t think anywhere is safe now. Last night, I woke up at 3:12 a.m. the exact time I used to get sleep paralysis as a kid. The house was silent. Valkyria was asleep beside me.
 
-And then I heard it.
 
-A soft squeak. Like a balloon being twisted.
+I was keeping a tally on my phone when it happened. Alleyway #57. I heard something. It sounded like a muffled whisper, like a prayer coming from under the asphalt. I followed the sound to the middle of the alley, knelt down, and pressed my hand into the pavement. It felt like soft butter. My fingers found something thick and fleshy sealed in a plastic bag. I pulled it out, and there he was. A mouth. A neck stump. Stubble. Alive. Moving. Talking. The only other living thing I have found in this silent, broken world. My new friend. More on that next time. I swear my index finger is cramping up even if I can't feel it doing that.
 
-I got up and checked the hallway. And for a second, just before the lights flickered I swear I saw a shadow. A wide grin painted where no face should be.
 
-If anyone reads this and something happens to me tell Valkyria I love her.
 
-I guess that The Joke’s on Me this time.
+Hi, my name is Brian.
+
+I am 29 years old.
+
+And I found a talking, severed mouth to neck thing named Justin.
+
+
+
+Thanks for reading.
+
+Thanks for existing.
