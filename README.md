@@ -1,426 +1,86 @@
-# Stillwater Farms [Part 6]
-[< Previous Part](https://www.reddit.com/r/nosleep/comments/1p94ggv/stillwater_farms_part_5/)
+# Every night a strange flight of stairs appears in my room. I need to find out where they lead before it's too late. (Part 4)
+[Part 3.](https://www.reddit.com/r/nosleep/comments/1o723e2/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 5.](https://www.reddit.com/r/nosleep/comments/1oql3ep/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-The last of the slab of the floor came up with a tired groan. Beneath, a crawl of space: joists, cold stone, and a tunnel of black water shouldering past like something late for an appointment. The draft breathed onto our faces: wet, old, not the clean of rain but the deep of ground. The whispering wasn’t louder; it was nearer, as if the floor had been translating and now we finally understood a word. Not mercy. Not welcome. A direction.
+The first thing I did after standing up, was to walk back to the door and open it again. I knew it was a long shot, but I had to try. Sure enough, the effort was in vain, and the stairs were gone. The empty hallway of the house was all that greeted me.
 
-Nick tied a blanket rope to the table leg and tested the knot. It held. He looked at me, no speeches, no last rites. “Ready?” He said.
+I slumped down in a heap. A turmoil of emotions was swimming through my head. I was grateful to be alive and out of that treacherous labyrinth, but I felt supremely guilty in my relief when I thought about Sherrie and how she had been unable to escape with me. I knew there had to be something I could do to help from this side. Maybe I could try and find out what that place really was and how to get her out. Or failing that, get a small arsenal of weapons to go back with.
 
-“Ready.” I answered.
+Either way, since I was back again I had to make the most of the opportunity to try and get help. As I considered what to do, a more mundane concern came to mind, my job. I walked over to where my phone was charging. I figured I might be able to make some calls and arrange some coverage for work while I sorted this madness out.
 
-He nodded once, jaw tight. And then we were gone.
+I nearly gasped when I saw the date on the screen. It had to be a mistake, but my phone said that it was Tuesday, nearly a week after I had gone into the stairs!
 
-The heat hit first. Not sharp, not scorching, just warm, like someone breathing against my skin in the dark.
+Last night had been Wednesday night. That was when I went back inside. How could it have been that long this time? The first night I was trapped in there, it hadn’t been that long, or had it? I could not remember checking the date, but it couldn't be, how had so much time passed while I was in there?
 
-We lowered ourselves into it and the warmth wrapped around us, thick and stale. The tunnel forced us onto our hands and knees. Our palms sank into black, viscous Stillwater that felt body-temperature. Wrong. Human.
+I started scrolling through my missed notifications. I had dozens of calls and angry messages from work and I realized if I had been gone for nearly a week, they had probably fired me by now.
 
-The tunnel didn’t feel carved. It felt grown.
+I had no believable explanation for my absence, but the other messages from my parents are what really concerned me. After a lot of check in calls and texts from my mom, the urgency and concern became clear. At first, I assumed it was just because they were worried that I was not answering, but the concern became more specific and distressed as they went on. The last message was very long and disturbingly specific. As I read it, I realized she had known more than she was letting on when I had spoken with her about the room, Sherrie and the stairs.
 
-The stone skimmed my back, a small reminder of the earth stacked heavy over our heads.
+“Please answer sweetheart. You need to let us know if you are okay. I told your father we should not have let anyone else stay in that room after Sherrie went missing. He said she probably just left, he never believed something was there, but I knew something was not right. He never had the dreams, he never saw them. Please don’t go in. If you see them, stay away. Even if it feels like a dream, there are things in there, bad things."
 
-For the first few minutes, neither of us spoke. Our breathing was loud, ragged, too close to our ears. The darkness wasn’t empty; it shimmered with suggestion, with the idea of things just out of sight. Water dripped somewhere ahead: slow, measured, like a clock with a dying battery.
+She was right about that, I morbidly considered as I continued to read her message.
 
-The first crossroads came quick.
+"I think Sherrie went in and she never came back. Many years ago, when we bought the house, we found odd markings carved in the upstairs bedroom from one of the previous owners. It said something about a flight of endless stairs and how they had to get to the top. It said that they appear to those sensitive to the resonance. But after your father cleaned up the writing and ignored the warning, nothing happened. After living there for thirty years, we believed it was safe. But just before we left, I started dreaming about them. The stone stairs, the endless spirals. We never should have let new people stay in that house. You never saw them when you were a child, so we thought you were safe. But not after your last call and all these days....Please son, if they are there, if you see them, you need to leave. I’m sorry I didn’t tell you sooner, your father does not like it when I talk about the stairs and the history of our house. But he does not believe it because he never saw anything himself. Please let us know you are safe.”
 
-Left: dead air, and a heat that felt like an oven with its door open.
+I was stunned by the message, she knew. She had seen them, if only dimly. Where the hell had they come from and how many people have been lured in and lost to time and space?
 
-Right: a current of cool air and—beneath it—a pulse. A real, rhythmic pulse, steady as a thumb pressed to a throat.
+I tried to call my mom back and let her know I was okay, but I found it strange that my phone had no reception suddenly. I had no bars when my room normally had the best signal in the house. I knew it had been a week, but my phone line couldn't have been shut off.
 
-Nick exhaled. “You hear that.”
+I decided to try and step outside and see if that worked. I walked downstairs to go outside. As I reached the ground floor, I suddenly felt lightheaded. A deep-seated nausea and vertigo kicked in that nearly knocked me on my back. I managed to lift my head up after breathing deep and trying to stop myself from getting sick. I shambled towards the front door, needing that fresh air more than ever.
 
-It wasn’t a question.
+When I touched the handle on the front door I suddenly felt a terrible chill in my body. I pulled the door open slowly and a profound dread gripped me. Numbing terror set in as soon as I looked through the door. It was not the outside, it was the stairs. I looked on at the towering spiral steps and fell back inside. I slammed the door shut and closed my eyes. I slapped my own face a couple times for good measure and threw the door open again.
 
-We took the pulse.
+The yawning stone edifice greeted me again once more. I slammed the door again harder than the last time and clutched my head. It could not be happening again, and now with other doors!
 
-The tunnel widened enough for us to crouch instead of crawl. My knees crackled when I stood. Nick took one step, then froze.
+I started looking around and saw the outside through the windows. I dashed over to the window in the living room and reached for the lock. As soon as the window started opening I saw a curtain of pitch black instead of the outside.
 
-Roots veined the ceiling like a web of tendons. Thick, pale, half-translucent. When he brushed one with the back of his hand, it flexed. Not from the movement of the air—it flexed.
+I poked my head in and turned on my phone's flashlight. Then I realized it was the square interior of one of those stone rooms I had waited in with Sherrie. Shaking my head in disbelief, I slowly closed the window and backed away.
 
-“It—Alex, it moved.” he whispered.
+I was trapped, it was real, I was awake. It had happened in the daytime this time. Even though I had not gone into the stairs, the stairs had come to me. They were everywhere now and they would not let me leave without venturing back into that insanity.
 
-The pulse traveled through the roots. A slow throb. Like they were carrying blood.
+I had to think of something. I decided to try the basement door. There was another exit through there. I stumbled down the steps into the cold basement. Nearly falling as I moved. I looked around, shining my phones light to try and find the light switch.
 
-We kept moving. Water slicked the walls, ran in thin streams down the channels carved between the roots. The whole tunnel felt like the inside of something’s throat.
+I found it and turned it on. As soon as I could see around the basement, I found the door. The only other exit I could think of. I moved towards it and held my breath. Grasping the handle and pulling. It shifted slightly but did not move. I felt an odd resistance, like there was some sort of weight, or pressure on the other side. I didn’t know if it was a good sign or a bad one, but I was desperate to get out of there. I pulled even harder than before and heard a strange sound, almost like splashing water. I gave one last tremendous pull and the door opened.
 
-Then the walls tightened.
+My mistake was evident immediately, water burst forth into the basement. The briny smell of salt water stung my nostrils, even as it flooded into the basement. I took one look into the doorway where the water was coming from and saw the unmistakable architecture of the stone steps.
 
-We hit a squeeze.
+They were down there too, and worse it seemed like the basement was a portal to the flooded zone. The water crashed into the basement and I desperately tried to close the door again, but the weight of the water was too much and it threw me off my feet.
 
-It wasn’t a passage—it was a seam. A split in the earth just wide enough to take a human shape if the shape didn’t mind being broken first.
+I took one last panicked breath of air as the water rose past my head and continued pouring in, filling the entire basement in a few more moments.
 
-The water here stilled. Warm before, but now *hot,* almost alive.
+I started to swim, desperately seeking the stairs and the door back out. I saw them and I struggled through the crushing current of water pushing me along and battering me into shelves and walls. I saw the stairs and swam as fast as I could.
 
-Nick stared at the gap, jaw tight.
+The door was just within reach, my body ached my lungs burned, holding onto that last gasp of air I had managed before submerging. I swam up and reached the top of the stairs which had not flooded yet and I pulled myself out of the water with great effort. I shoved the door open and as I was about to crawl out and slam it shut, something grabbed my leg.
 
-“We’re doing this together,” he said. His voice sounded smaller in that space—or maybe we did.
+I looked down in disbelief at a dark green tentacle. I tried to pull away from it but it clung on tighter and I lost my hold on the door and fell back, hal submerged into the water and clinging to the top of the stairs.
 
-“We don’t stop,” I answered.
+There was a terrible burning sensation in my leg as is squeezed and felt like it was cutting me somehow. I tried to pull free again, but the iron grip of the thing wrapped around my leg was enough to stop me from leaving. Not only could I not gain any ground, I had to hold on for dear life not to be pulled back into the dark water.
 
-He nodded. Then we went in.
+My leg felt numb as it squeezed again and I cried out. Looking around I saw nothing on the stairwell to help free myself. Worse still I felt like whatever was pulling me, was moving and I heard a low rumbling in the water below and I knew I had to get out of that situation immediately.
 
-The stone met me everywhere at once: chest, spine, ribs, skull. My cheek mashed sideways against slick rock, my breath bouncing back at me. My left ear went under first, then my jaw, then my mouth. Stillwater slid into my nose and burned. Breathing became something I had to steal in little sips, nothing more.
+Suddenly the staircase banister broke off and I nearly pitched into the water with the loss of balance. I held onto a broken fragment of the top step and suppressed a gasp of pain and the jagged wood cut my hands. Looking back at the bubbling surface of the water, I saw another tentacle emerge. It was grasping and snaking near my other leg. I had to move fast. I reached for the broken banister and kicked the base of it with my unrestrained leg.
 
-I dragged myself forward with my fingertips, blind, ribs scraping one by one. My legs kicked for leverage, but found none. The water climbed to my eyes. My lashes dipped under, vision blurring into ripples of darkness. My hair floated up around my face like weeds reaching for the surface.
+It broke off and I grasped for and finally reached the sharp piece of broken wood. I set to work, hacking and cutting and sawing the monstrous tentacle off of my leg. It started to squeeze harder and began thrashing and shaking me as I desperately cut to free myself. The surface of the water rippled and a small whirlpool began swirling.
 
-Behind me, Nick grunted—a sound caught between effort and the edge of fear.
+I tried to look away and focus on freeing myself, but to my horror more tentacles rose up from the water and a giant eyeball was visible in the center of the whirlpool. It stared at me and I felt a numb sensation go through my body. I felt like it would not be so bad to just let go and swim back into the water. To go back to the depths and black abyss from which all primal life emerged from. It would not be so bad, if I just gave up.
 
-He was bigger. Too big for this.
+I forced myself to look away at the last moment, before I had given up completely. The mental invasion reminded me of the things that attacked me and Sherrie. That thought shook me out of the mesmerized stupor I was in. Remembering the imminent danger, I took another large swing of the broken piece of wood, finally cutting the restraining tentacle off my leg.
 
-If he got stuck, I’d feel it happen inches from my boots.
+There was a low rumbling sound from the water that might have been pain. Then I threw the sharpened wood like a spear right at the eye of the horrible leviathan and dove back out the water and through the door.
 
-“Keep—” he forced out, voice strangled by the stone around his throat. “—going.”
+Grasping, seeking appendages followed me and even extended through the door, But I barged into it from my side with my entire body weight and the door cut the tentacles off and slammed closed. I was horrified, but alive. I realized I had finally seen the things in the water that Sherrie had said, were worse than the blind ones.
 
-I didn’t answer. If I opened my mouth the water would claim it.
+I shuddered and limped along, away from the basement door. I had a large, lamprey mouth shaped wound on my leg that was bleeding and it felt almost completely numb. I hobbled into the downstairs bathroom and grabbed a first aid kit to treat the injury.
 
-A root slid along my collarbone. Slow. Curious. Not brushing—searching.
+Taking a deep breath, I realized I couldn't escape now. Whatever was in there, it was not going to let me leave and get help. I understood now the desperate message that people had taken to writing on the walls before they ventured into the stairs the final time. They must not have had a choice either.
 
-It paused at my throat, like it was deciding where to anchor.
+I staggered back to the front door and looked at the portal leading to that living nightmare.
 
-I pushed harder, lungs squeezing themselves thin around the last scrap of air.
+The rational part of my brain battled with my heart when I considered my next move. I knew it would be crazy to try and go back. I knew I should never go back on those stairs if I valued my life and sanity. Maybe I could stay and wait it out? But could I really just leave her trapped in that hell? It would have been cruel to condemn a stranger to that fate, but I found the idea of leaving her even worse.
 
-My shoulders jammed. A perfect lock, my body the key that didn’t fit.
+Despite the short time we had been together, I found myself drawn to her. I wanted to see her again, to talk with her again. I thought of her quirky rhyming and sincere smile, when she had seen me come back from the brink of death. She did not know me, but she had saved me, helped me.
 
-Panic flared, bright and animal. The pulse in the stone throbbed against my ribs. Or maybe that was my own heartbeat trying to leave my chest.
+Even if I did not admit I was attracted to her, I still felt responsible. I owed it to her, to protect her, just as she had protected me.
 
-Behind me, Nick’s hand shoved against my boot. A wordless, desperate push.
+My course was settled, I had to go find Sherrie. Maybe together we could find a way to escape for good. We might find a way to get out while the stairs would let us. It had to work, because if it didn't, then I would be joining her forever in that stone purgatory of endless horror.
 
-I twisted. My shoulder ground into rock until something in it sparked hot and pain surged into my neck.
-
-I screamed.
-
-The hot Stillwater filled my mouth.
-
-It was metallic, so metallic it felt sharp, like sucking on a coin that had rusted in sea brine. A thick saltiness coated my tongue, not like ocean water but like blood left to dry on metal. The water itself was viscous, almost gelatinous, as if it carried strands of something suspended in it. It moved slow in my mouth, clinging to my teeth, leaving a film that felt more like slime than liquid.
-
-I swallowed.
-
-Then—slow, brutal, like the earth exhaling—I slid forward.
-
-First an inch. Then another.
-
-The pressure broke just enough for my head to rise out of the water.
-
-And suddenly—
-
-I was through.
-
-My torso spilled into space and I gulped the air. I twisted around immediately, reaching back into the seam.
-
-“Nick—come on, come on—there’s room—”
-
-The stone vibrated with his struggle. His hand shot through first, searching, shaking. I grabbed his wrist, braced my feet against the far wall, and hauled.
-
-He burst out like something being birthed. He hit the ground beside me, coughing, choking on the water he’d swallowed. And then he laughed: one broken breath of disbelief.
-
-“Fuck that,” he wheezed.
-
-“Yeah,” I said, pausing for a moment. “I swallowed some of that shit.”
-
-“Me too.” Nick said, meeting my eyes as if to say we were both in it now, like it or not.
-
-The seam looked smaller. Like it had already begun to close.
-
-We turned.
-
-The passage ahead sloped downward, carved cleaner than the rest, almost intentionally. And there, hammered deep into the left wall, was a metal stake. A rope hung from it, thick and older than anything in the cellar. Stiff with dried mud. Frayed from use. Leading down the passage.
-
-Nick touched the rope with two fingers.
-
-“They’ve been coming down here,” he said.
-
-I swallowed against the dryness in my throat. “Then we’re on the right path.”
-
-The pulse came again: stronger now, pushing through the water, through the walls, through us.
-
-Downward.
-
-Always downward.
-
-We moved slowly at first, mostly because we had no choice. The tunnel sloped unevenly, the floor slick with a sheen of water that clung to our ankles like fingers. The air thickened behind us, warmer with every foot downward. Not like weather. Like breath.
-
-Roots webbed the ceiling, thin at first, then thicker, branching and re-branching like nerves. The deeper we went, the more they twitched—tiny contractions, a pulse traveling through them like a message we weren’t meant to understand.
-
-Our own breathing started working against us. It echoed off the stone, too loud, too fast. My vision flickered at the edges every time I turned my head too quickly. Hunger made my legs shake. Nick stumbled once and caught himself on the wall; the roots there recoiled.
-
-The pulse ahead started faint, just a tremor in the rock.
-
-Then it grew.
-
-Not quickly. Not all at once.
-
-Minute by minute, it filled the tunnel. A slow, huge heartbeat that thumped through the stone, then the water, then our bones. Not the kind you hear. The kind you feel.
-
-We kept going.
-
-Another bend. Another drop. The Stillwater rose to our shins. The warmth thickened into something humid, almost feverish. My skin felt slick, my clothes stuck to my back. My head buzzed, dizzy from heat and hunger and the pressure rolling through the earth.
-
-The tunnel narrowed. The roots stroked our shoulders as we ducked through.
-
-Nick flinched when one brushed his mouth.
-
-The air changed again: shifted colder, sharper. A current whispered past us, carrying a faint silver glow.
-
-We stopped at the same moment.
-
-Ahead, the passage exhaled light. Not torchlight. Not firelight.
-
-Moonlight.
-
-Soft. Cold. Impossible this far underground.
-
-We pushed forward, slow at first. Cautious.
-
-Then the heartbeat deepened.
-
-The walls trembled with each pulse. Dust fell in thin veils. The water jittered at our ankles in tiny rings. The pressure made my ears pop, my jaw ache, my vision blur.
-
-Another pulse. Bigger.
-
-A groan followed it: low, human-enough to be recognized, but wrong. Like dozens of voices had been braided together, all speaking on the same breath.
-
-Nick stiffened. “You heard that.”
-
-“I heard it.”
-
-The next groan came louder. Longer. A ripple of sound that dragged through the stone like something scraping its way awake.
-
-We didn’t walk after that.
-
-We moved as fast as the tunnel allowed: half-stumbling, half-pulling ourselves down the slope using the rope. My lungs burned. My legs shook with every step. The air ahead thrummed with pressure so heavy it felt liquid.
-
-The pulse grew so loud it drowned our breath. It wasn’t sound anymore. It was *impact*, slamming through the ground, rattling my teeth. The same thunder that had shaken the woods. The same rhythm that had stolen Clara’s blood. The same hum that the stag carried.
-
-Nick muttered, broken and breathless, “It’s getting louder—fuck—Alex—”
-
-“I know—keep moving—”
-
-A final bend. The rope curved with it, toward the widening glow.
-
-The tunnel ahead opened into a vertical throat of silver light. The roots along the walls thickened into bundles: limb-like shapes merging toward the light, as if everything down here had been growing toward that one place for centuries. The air blasted warm then cold then warm again, as if the whole place was inhaling.
-
-The light spilled over our faces.
-
-Nick swallowed hard.
-
-“We’re close.”
-
-I nodded, though my stomach twisted. It wasn’t fear. It was something heavier, a kind of recognition that bordered on reverence.
-
-Another pulse shook the tunnel.
-
-This one shook *us.*
-
-We steadied ourselves against the roots. They throbbed back.
-
-The rope dipped into the brilliant silver glow ahead, disappearing past the edge of the tunnel.
-
-Wherever it led, the heartbeat finally had a home.
-
-\*\*\*
-
-We stepped into a chamber the size of a concert hall.
-
-Moonlight poured down from above through a jagged circle in the ceiling. The well. We were underneath it. 
-
-There was something massive suspended in the center of the room. At first I thought it was a boulder. Then it moved.
-
-A ripple passed through it—slow, deliberate—like the flex of an animal testing its weight.
-
-My stomach caved in.
-
-It wasn’t a stone.
-
-It wasn’t a creature.
-
-It was a heart.
-
-Not human. Not animal. Something older. Something built by the earth itself. Folds of muscle the size of car hoods glistened wetly. Each chamber swelled and collapsed in slow sequence. 
-
-Roots as thick as tree trunks plunged out of its sides. Some dug straight into the rock. Others spread across the ceiling and down the walls, branching smaller and smaller until they disappeared into hair-thin threads. Veins ran along them, dark and glistening, pumping black Stillwater instead of blood. Every beat forced more of it through the network, down into the floor, back out into the tunnels.
-
-The light hit the heart in a pale column, making the slick surface shine like something freshly skinned.
-
-And then I noticed it. 
-
-The faces on the walls.
-
-At first they read as shapes: bulges in the root, knots in the wood, dark stones caught in the mesh. Then one turned. Just a millimeter. An eye tracking us.
-
-There were dozens. Maybe hundreds. Bodies, or the pieces of bodies, woven into the rootwork like fruit into a tree.
-
-A shoulder fused to a pale bundle of roots, the arm hanging loose but still twitching at the fingers. A torso half-sunk into the wall, ribs spread like something mid-breath. Hands, so many hands, cupping nothing, reaching for nothing. A jaw locked open in a permanent scream, teeth threaded through with fine roots like stitches.
-
-Heads bloomed from the tangle like flowers gone bad. Some had no eyes left, just soft pits where the roots pushed through. Others watched us with glassy awareness, tears running sideways into the bark that held them. A few mouths moved, lips shaping words the throbbing chamber swallowed.
-
-The sound we’d heard through the stone wasn’t just the heart.
-
-It was all of them.
-
-A constant low groan, hundreds of voices stretched across the same breath. Some sobbing. Some chanting. Some only humming the same thin note until it blurred into the pulse.
-
-Nick made a sound I’d never heard from him. Not a sob. Not a curse.
-
-Just a broken “Oh.”
-
-Hailey was halfway up the right wall.
-
-For a second my brain refused to put it together. I saw pieces before I saw her.
-
-An arm I recognized by the scar near the elbow. A foot in the wrong place, skin still freckled. A spine threaded through with root, bent at an angle no human back should hold. Then my eyes found her face, and everything else fell away.
-
-Her severed head was cradled in a nest of roots that cupped her jaw and temples like fingers. Her hair fanned behind her, tangled into the wall. One eye was half-lidded, the other wide, fixed on the middle distance. Stillwater seeped from the corner of her mouth in thin black strings.
-
-Where her torso should have been whole, roots had replaced what was missing. Thick cords crawled through the holes the stag had made, weaving out through her back, down her legs, up her arms. She wasn’t hanging. She was being held in place like part of the system. A limb, not a person.
-
-Her chest rose. Not much. Just enough to prove that whatever the heart did, it didn’t let its pieces rest.
-
-Nick stepped forward until he was standing in the shallow water beneath her, his shoulders directly under her ribs. His hands lifted, hovering uselessly like he didn’t know where to touch.
-
-“Hailey,” he whispered.
-
-Her eyes moved. Slow. Like someone trying to surface through thick ice.
-
-Her gaze found him.
-
-Her lips parted. The sound that came out was half-breath, half-liquid, pulled through a throat full of roots.
-
-“Nick.”
-
-Just that. One word, mangled and wet, but hers.
-
-The chamber roared around it. Every other mouth seemed to wake at once, groans rising, mutters spilling, a crowd of agony that swallowed the name. The heart shuddered. The roots clenched.
-
-Nick’s legs shook. He didn’t look away.
-
-I wanted to reach for her too. To do something. Anything. But there was no version of “help” here. No way to unthread her from what she’d been sewn into. No way to fix a body that had been grafted into something else’s anatomy.
-
-So I looked at the heart instead.
-
-It filled the center of the space, suspended from the ceiling and anchored to the floor by knots of root thicker than Harlan’s arms. Every beat made the whole chamber move. The moonlight glinted off its wet surface, streaked with old blood and newer things I didn’t want to name.
-
-This was what the family served. What the well fed. What Hailey was tied to now.
-
-Grief boiled into something sharper. Shock, guilt, rage—all of it finally picked a direction. It pointed me at that thing.
-
-“If we kill it,” I said, voice hoarse, “maybe it lets them go.”
-
-I didn’t know if that made any sense. It didn’t matter.
-
-There were rocks scattered along the floor of the chamber, chunks of stone that had fallen from the ceiling long ago. I grabbed one. It fit my hand like it had been waiting for it, edges jagged enough to tear.
-
-Hailey groaned again, roots flexing around her chest. Nick just stood there, staring up at her. His hands had finally found home: one on her cheek, one on the root curling through her wrist.
-
-“Alex,” he said without looking back. I didn’t know if it was a warning, a plea, or permission.
-
-I moved.
-
-The water sucked at my boots as I crossed toward the heart. Up close, it was worse. The smell hit like a wall: copper and rot and something sweet underneath, like fruit left in heat until it blistered. Veins as big as my arms throbbed along its sides, pushing Stillwater through clear, tube-like roots. With every beat, cavities opened and closed, trying to drink.
-
-“I’m ending it,” I heard myself say. I didn’t know if I was talking to Nick, Hailey, or whatever listened through the stone.
-
-I raised the rock.
-
-Something hit me from the side.
-
-The impact knocked the breath out of me. I hit the root-matted floor hard enough to see white. The rock slipped from my fingers and vanished into the shallow water. Hands like iron clamps dug into my shoulders, pinning me.
-
-The smell above me was familiar: old sweat, bad breath, damp wool, and the metallic tang of the well.
-
-I looked up.
-
-The grandfather loomed over me.
-
-Up close he didn’t look old. Not in any way that meant fragile. His skin was drawn tight over the bones of his face, but the sinew under it was corded, dense. His eyes were pieces of polished stone jammed into deep sockets. Veins like threads of mold branched from the corners of his mouth into his cheeks.
-
-His teeth were wrong. Too many. Too long. When he snarled, they caught the moonlight.
-
-And his breathing.
-
-That slow, rattling inhale. That wet, hungry exhale.
-
-I knew it. I had always known it.
-
-It was the same breath that had fogged under our bedroom door the first night. The same that had paced the hall in the dark. 
-
-It was him.
-
-He pressed one hand against my throat, not quite cutting off the air but close. The other flattened over my chest like he was checking a pulse.
-
-“You don’t touch it,” he rasped. His voice sounded like stones grinding under water. “You don’t even perceive it.”
-
-Spit flecked my face. His pupils were blown wide, swallowing the gray.
-
-I clawed at his wrist, but his grip didn’t move. My ribs protested under his weight. The heart thumped behind him, so loud now it felt like it was beating inside my skull.
-
-The root under my back twitched.
-
-He leaned closer. I could see where thin strands of root had crawled up his neck and into the flesh behind his ears. Little pulses moved under his skin.
-
-“Land keeps what it takes,” he hissed. “You’re nothing but feed.”
-
-He raised his other hand. The nails weren’t nails anymore; they were thick, yellowed claws, curved like hooks. He drew back, ready to drive them down.
-
-Something cracked.
-
-The grandfather jerked.
-
-For a second I thought it was the heart.
-
-Then his expression twisted, not in rage but in surprise. He looked down, slow.
-
-The length of root jutting out of his stomach wasn’t part of the chamber. It was sharp at one end. Stained dark at the other. Pushed clean through him, just under the ribs.
-
-He made a sound like a pipe being cut off: air choking itself in his throat. His grip loosened. I rolled sideways, coughing, scrambling away on hands and knees.
-
-Nick stood behind him.
-
-He held the root with both hands, knuckles white, shoulders shaking. For a heartbeat he looked like he didn’t know where he was. Then his eyes found mine.
-
-His hands were covered in blood that wasn’t the grandfather's.
-
-Hailey’s.
-
-I glanced sideways, up at the wall.
-
-Her head hung at a softer angle now. A clean, plunging hole through her left eye.
-
-Nick had finally put Hailey to rest.
-
-The grandfather roared.
-
-It wasn’t a human sound. It came from everywhere at once, vibrating up through the floor, down through the roots, out through the mouths on the walls. He swung an arm back, catching Nick in the shoulder hard enough to send him staggering.
-
-“Run!” I choked out.
-
-Nick didn’t argue.
-
-The grandfather stood. Black Stillwater and something thicker spilled down his chest. The roots nearest him writhed like awakened snakes, reaching to catch what fell. He turned toward us, jaw unhinging wider than should have been possible.
-
-There was only one opening we hadn’t come from.
-
-At the far side of the chamber, opposite the tunnel we’d followed down, a narrow passage climbed upward at a sharp angle, half-hidden behind a curtain of roots. No rope marked it, but the air that rolled from it was fresher, edged with the ghost of night wind.
-
-I grabbed Nick’s arm and pulled.
-
-We splashed through the shallow water. Hands snagged our clothes as we passed, fingers tightening on sleeves, on pant legs, on bare skin. Mouths on the walls tried to form words. One got close enough to my ear that I heard it.
-
-“Mercy,” it breathed.
-
-I didn’t look back.
-
-The heartbeat hammered at our backs, each thud a shove. The grandfather’s steps shook the floor, heavier than any human weight. Roots lashed at our ankles, trying to pull us off balance.
-
-We hit the steps cut into the rock and climbed. The chamber roared behind us, voices climbing, breath booming, heart trying to drag us back into its rhythm.
-
-Nick’s hand grabbed mine once when his foot slipped. I hauled him up.
-
-We kept going.
-
-Upward. Away from the heart. Toward whatever waited above.
-
-We weren’t escaping.
-
-Not yet.
-
-Not without Elenor.
-
-[Part Seven >](https://www.reddit.com/r/nosleep/comments/1paze5k/stillwater_farms_part_7/)
+I took one last look behind me at the house, then summoned my courage and stepped towards the door.
