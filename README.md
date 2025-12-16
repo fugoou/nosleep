@@ -1,44 +1,112 @@
-# My brother left to hike the Appalachian mountains. What came back isn’t him.
-My brother, Kevin (not his real name, I am trying to keep some anonymity), has always been outdoorsy. Growing up, he would wander off into the woods behind my parent’s property and stay out there for hours. He said that being out in nature brought him a lot of peace.
+# I am a high school teacher in upstate New York — I really don’t get paid enough for this (Part 3)
+[Part two](https://www.reddit.com/r/nosleep/s/xEGIGeDnqx)
 
- A few months ago, things kind of spiraled for him. He lost his girlfriend, his job, and his apartment within six weeks. He ended up moving back home with me and my parents to try and get back on his feet. It was hard to see him like that, I mean he was never someone I would describe as an eternal optimist, but that little spark he always had was gone. This past spring, I found him sitting at the kitchen table in the middle of the night, he was picking apart a piece of cold pizza, and it was the first time I had seen him almost eat something in days.
+[Part four](https://www.reddit.com/r/nosleep/s/YI7YKcfibv)
 
-I told him maybe he should get back out into nature, take some hikes, or maybe do a solo camping weekend. I said that I had noticed he had seemed down lately and maybe being out in the world could help me get back to himself. In the moment I wasn’t sure if he was really hearing me, but he took a bite of pizza, squeezed my hand, said he loved me and went back to his bedroom.
-
-The next morning, he announced to my parents he was going to hike the Appalachian Trail. My mom was hesitant, but Kevin told her that he knew enough about himself to know that sitting at home in his room, was causing more stress than if he could go out and just be in the place that made him feel most at ease. My dad just said that as long as Kev checked in every few days or so, he didn’t see a problem with it. My dad pointed out that it wasn’t like Kevin didn’t have the experience, he was a Boy Scout turned Eagle Scout turned camping enthusiast.
-
-“People do that hike all the time, Kathleen. If it were dangerous no one would be bragging about it.” I remember him saying those words exactly, I don’t know why they stuck in my head the way they did, but maybe it was the way Kevin seemed to brighten up a little bit after my dad gave his blessing in a sort of round about way.
-
-The next two weeks were spent helping my brother pack what he would need, registering his hike, and buying a plane ticket to Georgia, where he would start his trip. The night he left, our mom was a mess. She kept fussing over him as if he wasn’t a full-grown man, she kept asking him if he had everything he needed, and he just kept assuring her he did and would check in with us once he got to trail head. Looking back now, he seemed genuinely excited, if I had known what would happen, I would never let him leave.
-
-My brother called like he said he would, just as he was beginning his trip. He even sent a photo in our family group chat, that showed him up against a backdrop of purple blue mountains and lush greenery. He had a thumbs up, and his signature slightly off-center smirk. He wrote, “Finally made it. Love you guys, talk when I get better reception.”
-
-Over the next few days Kevin would send a photo or video, usually of his surroundings but occasionally he would send a selfie with the caption “Proof of Life”. But as the days wore on, we stopped getting updates as frequently. What was a text at least once a day, became a text once every three or four days. My dad blamed it on spotty cell reception which made sense, and it wasn’t as if the messages stopped all together and from what I could piece together from his photos and short text bursts he was making good time.
-
-It was around a month and a half into his trip when we realized it had been almost two weeks without any communication from Kevin. We called the authorities, we gave them all the information that we had but based on what we knew it was hard to say he was even missing. As far as the police were concerned, he had gone off grid with the intent of going off grid, sending out search and rescue would cost thousands of dollars and it could be a waste of resources, especially if there was someone else who needed it.
-
-They said they would put a notice out to the Ridgerunners and if they saw Kevin, they were told to tell him to contact us. My mom was furious, but I couldn’t necessarily blame the cops for their response. We had no evidence to support that Kev was anything but content out in the wilderness. A few days later a text came through, just a photo of sunset and the words “Everything is okay here.”
-
-That began the new normal of communication with my brother, there would be long stretches of time where we would hear nothing, just long enough for my mother to start panicking and then we would get a blurry photo and a generic caption like, “Look what I saw today.” Or “Wish you were here.”  One night, while going through the photos he had sent, I realized in the background of every shot from before we had called the police, was a black smudge. It was too blurry to properly make it out, and it didn’t seem to be an animal, or something caught moving in the camera lens. But after the first photo he had sent after we thought he was missing, the smudge was gone.
-
-Kevin came home earlier than expected, he also hadn’t told anyone his plans. One night during dinner, there was a loud sharp knock at the door. My dad got up to answer it and there was Kevin. His hair was long and stringy, he had grown a patchy beard over his cheeks and jaw. His lips were dry and cracked, and his gums were coated in a dried layer of blood. He was rail thin, he had lost at least thirty pounds, and he wasn’t a large man to begin with. His clothes were filthy, caked in mud and debris, and his shores looked like they had been worn thin at the sole.
-
-My mother made a sound almost like a yelp and rushed over to him. The smell coming off him made me gag, it smelled like he had smeared rotting meat under his armpits. My dad just looked at him in shock. When he finally spoke, his voice was dry and raspy as if he hadn’t used it in weeks.
-
-“Mom.” That was all he could say before he practically collapsed in her arms.
-
-I won’t bore you guys with everything that happened after that, there was a lot of hugging, some tears and then a very, very long shower, but something didn’t feel right. Kev went to bed pretty much immediately after, he barely even looked at us. The next morning, he ate breakfast with a ferocity that made my skin crawl. He was gulping down huge mouthfuls of food, barely stopping to breath. My mom just kept piling his plate with bacon, eggs, and toast. He stopped only after he had consumed a whole loaf of bread, two packages of bacon and nearly two dozen eggs.
-
-I tried to ask him about the trip, tried to get him to say anything at all really, but all I got were grunts and “uh-huhs” before he lumbered back off to his bedroom. The next few days were more of the same, Kev eating an insane amount of food, sleeping for hours, and then mumbling his way through conversations. It took about a week for him to start communicating like a human being again, but even then it was stilted, awkward, unnatural.
-
-He's been home for almost a month now and something isn’t right. His voice, it changed somehow? It’s still his voice but it’s like there is a second voice buried underneath it, like someone is trying to harmonize while he speaks? He lumbers around the house, like his knees are locked in place, but he refuses to go to the doctors. The worst part is the smell; it still won’t go away. No matter how often or how long he showers he still reeks like death. I could have maybe ignored all of this, maybe blame it on being isolated in the woods for weeks, but after what happened tonight…
-
-I couldn’t sleep, that feeling of fear in my stomach I felt ever since he’s been back hasn’t gone away and honestly, it keeps me up most nights. I was trying to will myself to sleep when I heard the back door creak open. I crept out of my bedroom and down the hall, from my viewpoint I could see into the kitchen through the window into the backyard.
-
-I saw my brother, perched on his hands and knees. He was twitching wildly, like every muscle in his neck and head were spasming. He widened his stance and thrashed his head towards the ground and out of my line of sight. I was worried that maybe he was having some kind of seizure, so I ran out to check on him and that when I saw it. His head was buried deep into the carcass of one of our neighbors’ cats. He was chomping down on its tiny body, blood oozing out between the gaps in his teeth. The thing had clearly been dead for at least a day or so, its body bloated and its eyes were dull and hazy. Kevin reached inside the cat’s body and started to strip off pieces of muscle and tendon, slurping them up the same way he had been eating our mother’s cooking. Pressing his thumb into the thing’s skull, he popped out one of its eyes and tossed it back like a grape.
-
-I ran; I ran back into the house and locked the door behind me. I was about to run back to my bedroom when that smell hit me, that horrible death stench that had been wafting around my brother. I opened the door to his room and inched a few feet inside. Wrapped in his bedding were the decaying bodies of twenty or so animals. Rabbits, mice, squirrels. I tried to run to my parent’s room, to wake them up, to tell the, that we needed to call…someone? As I turned around, I saw Kevin in the kitchen window, his body drenched in blood, he was eyeing me through the glass, his head tilted at an angle that shouldn’t be possible. The vertebrae in his neck strained underneath his skin. He lunged at the window and I screamed
-
-My parents woke up then, they found me in the hallway, sobbing, sweating, shaking with fear. I told them what I saw, and my dad rushed outside to try and…well…I don’t know exactly what he was trying to do but it didn’t matter, my brother was gone. We called the police and they said it sounded like my brother had had some sort of mental crisis. Maybe he had picked up some kind of parasite in the woods that was impacting his brain chemistry.
-
-I know they’re wrong though. Whatever that thing is, it is not my brother. My brother left for the Appalachian Trail and never came back. I think whatever that black smudge was in those photos was something that hunted him, and I think it was successful. Whatever that thing was killed my brother and somehow his body came back home.  My brother disappeared but I am terrified he will come back. 
+To the people helping me keep going, I’ll answer a few questions. The reason I live in New York is that I used to live somewhere else—where, I’d rather not say. But after what happened to my father… and what happened to me… I had to move.
+ 
+If I’m being honest, I was scared. Scared my mother would take me out the way she did any other monster. That wouldn’t have been unexpected for a Hemmings. Hatred runs deep in our bloodline—old, deliberate, inherited. We were raised to believe monsters didn’t deserve mercy.
+ 
+And maybe that’s what still scares me most—because now, when I look in the mirror, I see the kind of thing we were trained to kill. I’ve lived quietly for years now. But that night, I met the thing that made me.
+ 
+As for why I don’t just lock myself up in a silver cage—well, I’m living on a teacher’s paycheck. Silver’s not cheap, and I eat more than most people because of my… second job. Even if I could afford it, getting silver is nearly impossible these days. Most of my family buys it in bulk, stockpiling it like they’re waiting for another purge.
+ 
+Sometimes I think about how ironic that is—hunters hoarding the one thing that could kill them if they ever turned. But irony doesn’t stop bullets or claws.
+ 
+That night, I was at Annabelle and August’s house, sitting in the living room, trying to teach Annabelle about history—and more importantly, how to act around humans.
+ 
+She was sharp. Too sharp. Every question I asked, she answered before I could finish. I’ve taught kids for years, but none of them ever looked at me like that—eyes too still, too knowing.
+ 
+It made sense, though. Shifters evolved to mimic what they hunted. Intelligence was survival.
+ 
+After a while, August came in and set down a plate of chicken nuggets for Annabelle. The smell of oil and salt filled the air. I smiled automatically, but it didn’t reach my eyes. My chest tightened. Last night’s memories pressed like cold fingers against the back of my mind. The wolf didn’t like small spaces—or being around prey.
+ 
+“That’s a pretty simple meal,” I said after a moment. My voice came out rough, uneven. “Not trying to be rude, but… do monsters eat anything specific?”
+ 
+The word *monsters* hung too long in the air.
+ 
+August shot me a look—flat, unreadable, but not cruel. “For some, yes,” she said. “There are foods we can’t eat, and some we prefer. But most of us have flexible diets. Like humans.” She hesitated, her voice dropping. “Some eat… humans. But we don’t promote it.”
+ 
+The air thickened. My pulse jumped. Beneath the table, my fingers twitched—reaching for a weapon that wasn’t there. I could feel it stirring inside me, that restless scratching behind my ribs. The wolf always woke at the scent of threat or guilt.
+ 
+“I’m sorry if that came off wrong,” I said quickly. “It’s just… all I know is what’s written in the Hemmings records.”
+ 
+August’s face softened. “I know those books,” she murmured. “Some of them… weren’t kind.”
+ 
+Silence followed. Heavy.
+ 
+Annabelle broke it, cheerful and oblivious. “It would be really nice to read something from Mr. Jack’s family, Mom! He seems like a very nice hunter!”
+ 
+Her voice was too innocent for the weight in the room. I managed a small smile and patted her head, though it felt like touching glass.
+ 
+Both August and I said, almost in unison, “It’s probably best if you don’t read that.”
+ 
+We froze. Then August smiled—small, tired, and real. I smiled back, or tried to.
+ 
+When I stood, the room felt smaller. Heavy. I gave Annabelle one last pat and nodded to August before stepping outside.
+ 
+Cool air met me—pine, rain, the promise of a storm. The quiet should have been peaceful. Instead, it made the noise inside my head louder.
+ 
+The lighter clicked. Smoke curled around my face, bitter and grounding. Cigarettes were bad for me, sure—but they muffled the wolf’s breathing for a few minutes.
+ 
+I drove aimlessly. The road blurred into streaks of gray and fog. My reflection in the windshield looked like someone I used to know—eyes hollow, skin drawn thin. I’d seen that look before. On corpses.
+ 
+Eventually, I found myself outside a bar on the edge of town—**The Hollow Tap.** The neon sign sputtered in the drizzle, half the letters dead.
+ 
+Inside, it smelled of wet wood, spilled beer, and something older—soil after rain, maybe decay. Beneath the laughter and music, I could feel it. That low, familiar pulse of instinct. There were monsters here. All pretending to be human.
+ 
+I took a seat. The stool creaked beneath me. “Vodka,” I said. My throat felt like sandpaper.
+ 
+The bartender poured it—broad-shouldered, skin with a faint green sheen that caught the light when he moved. A frog shifter.
+ 
+His grin faded into something like reverence. “Don’t see many wolves around anymore,” he said quietly. “Most of your kind moved north after the last purge.”
+ 
+I took a sip. “Yeah. Something like that.”
+ 
+He leaned closer. “You ever hear of the **Moon Eater**?”
+ 
+The name hit me like ice water down my spine. “I've heard some, but not too much."
+ 
+He chuckled softly, throat pulsing. “She’s the one who started your line. The first wolf. Some call her the Pale Matron, others the Winter Mother. They say she wasn’t born of the world—she *made* it bleed. Came crawling out of the ice before language, when the sky was still too new to hold stars. Her fur was white as breath on glass, her eyes burning like coals in snow. When the moon rose full, she swallowed it whole to keep it from falling into the sea.”
+ 
+He wiped a glass as he spoke, voice low and reverent. “They say that light burned inside her—too bright, too alive. It twisted her bones. Made her hunger for warmth, for voices, for hearts that beat. When she couldn’t hold the moon anymore, she tore open her belly and let the light spill out. The wolves were born from what was left.”
+ 
+He hesitated. “Some say she wasn’t just a monster. She was something older—one of the first predators to crawl out of chaos, when gods still had to feed to exist. The shapeshifters, the hunters, even the witches—they all trace their bloodlines back to her kind. The ones that *ate creation* to make room for themselves.”
+ 
+His voice dropped to a whisper. “Some say she still walks when the night’s too bright—still hungry. Still looking for what she lost.”
+ 
+His hands trembled as he set the glass down.
+ 
+For a moment, the room felt colder. The lights dimmed—or maybe my eyes just adjusted wrong. The air shifted, like the story itself had taken something from us.
+ 
+Then the door opened.
+ 
+She stood there.
+ 
+Tall. Broad-shouldered, but graceful. Her hair, the color of storm clouds, streaked with silver. Skin pale like snow under ice. Eyes gold—not human gold, but molten, alive. Her clothes were simple, but the shadows clung to her like they knew her name.
+ 
+And behind her, in the bar mirror, something vast and pale moved—a wolf’s shape half-formed from mist.
+ 
+“You smell like my children,” she said. Her voice was smooth, quiet, and ancient. “But not quite the same. You weren’t born of the Moonlight.”
+ 
+The words froze me.
+ 
+She smiled—softly, almost tender. “And yet you carry it well. Strong. Steady. You’ve learned to listen to what most of them never could.”
+ 
+Her hand brushed my cheek—cool, dry. For a second, I smelled winter: pine sap, cold stone, and iron in snow. My pulse stuttered. The wolf inside me bowed, wordless and small.
+ 
+“You’ve done what few of my blood ever manage,” she murmured. “You live in both worlds without drowning in either. I’m proud of you, Jack Hemmings.”
+ 
+My name in her mouth sounded older than I’d ever heard it.
+ 
+Before I could speak, she laughed—soft, almost human. The sound filled the bar like wind through pine.
+ 
+“I was proud once, too,” she said. “Until I learned the world doesn’t love its creators—it only fears them.”
+ 
+I blinked, and for an instant her outline fractured—light spilling from her ribs.
+ 
+Then she was gone.
+ 
+The door stood open, and outside, the night looked just a little too bright. The clouds had thinned, and the moon hung pale and ragged—its edges missing, like something had taken more than one bite.
+ 
+I stood there, smoke still burning in my lungs, and for a moment I couldn’t tell if I’d just met her… or remembered her.
