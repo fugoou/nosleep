@@ -1,102 +1,235 @@
-# The people upstairs won't stop singing "Happy birthday", it's been five hours.
-I don't usually work on Sundays, but I needed some extra cash, so I took an early shift. I came home at around 2PM.
+# I'm Trapped in a Neighborhood That Isn’t Real
+Countless times have I reflected upon that moment—turned it over, dissected it, begged it to yield some rational seam—but the transition between *here* and *there* continues to elude me entirely. I remember approaching the doorway of my house to leave for work, my back half-turned, arm lifted in the familiar morning gesture as I waved to my mother. It was all so ordinary, so mechanical—wake up, get dressed, step out the door. Then I crossed the threshold.
 
-I live in this apartment building. My apartment is on the first floor, along with another one that belongs to this dude who's rarely home. There's Mrs. Rogue's place on the ground floor, and then the second floor has 2 other flats, one owned by an elderly couple and the other, by this family I don't really see that often, directly above me. Sometimes I hear the kids in the morning moaning about having to get ready for school, and then stomping down the stairs. Sometimes, I hear hushed voices and dishes clattering. After 10PM, everything usually goes quiet.
+And as I turned away from her—*everything changed.*
 
-I got to my door and, as I was searching for my keys in my bag, I could hear voices upstairs. They were hushed and a little tense, stressing the words and mixing them together. I couldn't really make out what they were saying, but they seemed to be talking about something really important.
+I froze mid-stride, my arm still half raised, as if reality itself had forgotten to move with me. The scene before me was not merely altered, but *replaced*. The recently risen sun had been displaced by a dying one, its last embers smoldering on the rooftops in a sinister, burnt-orange glow. I stood in a world that looked like mine only in the way a dream half resembles waking life—familiar outlines wearing a stranger’s face.
 
-Now, keep in mind that I've never seen these people before. I assumed they were a family because I kept hearing the kids and sounds that I generally attribute to a family home. It's not like I've personally met them. I just *assumed.*
+My mind snapped into a frantic, analytical tremor, clawing for any scrap of sense. Something fundamental had been violated. I withdrew my phone with trembling hands—6:45 a.m. The time insisted I was sane, insisted the morning had only just begun, insisted the world was as it should be. Yet the sky accused those numbers of being liars.
 
-Anyway, as I said, I finally got a hold of my keys and unlocked the door. Yet, I didn't immediately step inside after I opened it. I don't know why I let it swing open and remained there listening for two more seconds, but I'm somewhat glad I did. The moment the door was heard, the voices upstairs stopped. Completely. As if *they* were listening to me now.
+I scanned the houses across the street, and unease scattered across my mind in frantic sparks. At first, I couldn’t place the wrongness—my brain rejected it, refused to register what it saw. But then the architectural sins revealed themselves: windows placed at impossible heights, doorframes tilted like warped jaws, chimneys laid sideways as though mocking the idea of function. The houses stood as malformed parodies, contorted impressions someone—or something—had sculpted after only vaguely understanding what a home should look like.
 
-I remained still. We all studied the silence for a while. I heard a singular step on the stairs above. That's when my back went cold and my muscles tensed up, for whatever reason. I got the sudden urge to just go inside and shut the door behind me, which I did.
+Trying to trace the moment of transition back to a single blink, a misstep, a breath proved useless, yet somehow thirty minutes slipped past me. The sun had begun sinking even lower, coiling itself behind the horizon like a dying beast, before I even acknowledged the passage of time. A thin, dreadful panic began to scratch its way up through my thoughts.
 
-Afterwards, I started putting some groceries in the fridge and doing some errands around the house. Faintly at first, then stronger, I started hearing this birthday song upstairs. I smiled and sighed. *They were planning the birthday, man. That's why they were so precautious. So nervous.*
+I retreated into my home.
 
-It sounded like there were around 5-6 people singing, maybe? Happy birthday, dear Jonah. That was cute.
+All the lights were off. My calls to my mother went unanswered. The silence inside the house was not merely empty—it was *expectant*, like a held breath. I groped for the nearest light switch and flicked it. Nothing. Again. And again. I flicked it with mounting fury, as though persistence alone could force the room to obey, but darkness clung stubbornly to every corner.
 
-When they finished, they started again. I did find it weird, but I assumed that the kid had asked for it again. Kids love blowing out candles and whatever.
+My mother’s absence—so immediate, so inexplicable—splintered the fragile composure I had tried to maintain. The time said morning. The world said night. She had just been here. Now the house felt abandoned, hollowed out.
 
-It was an awfully long song. It kept looping until reaching it's conclusion, just like the first time. It had a lot of unnecessary runs and filler, and extra lyrics.
+I collapsed on the staircase with my knees pulled tight against my chest and wept—helpless, disoriented, and trembling under the pressure of a reality that no longer followed its own rules.
 
-When they finished, a little pause followed. Then, they started again, in the exact same way.
+Somewhere in the midst of my sobbing, my ears adapted to the oppressive quiet, sharpening like a predator’s out of instinct. Beneath that silence, faint yet unmistakable, I heard… *footsteps.* Delicate, distant. I rose, heart hammering, and followed the ghostly sounds. But every room was empty. Then came more: light switches flipping, the sizzle of food cooking, doors opening and closing. Faint, echo-like imitations of life. Impossible to locate. When I stepped toward a sound, it never grew clearer; it remained distant, as though the noises belonged to a home that was overlapping mine—but not touching it.
 
-*Fucking weird family...* I thought, and by that time I'd gotten annoyed, so I just put on my headphones and laid down on the couch. I fell asleep at around 4 or 5PM.
+Desperate, I checked my phone again—no signal. No internet. Moving through the house changed nothing; even the router lights were dead. Outside, the last ember-light of the false sunset bled away, leaving the world cold and unwelcoming. The warmth retreated with it.
 
-I woke up from the nap disoriented. Man, after work naps hit the hardest - I'd slept until around 8PM, and the sun was peeking at me from behind some buildings, a sunset that was more blue than red, a melancholy and confusion that reminded me of how liminal your house felt when you would go to sleep after school and wake up with a sore throat and a huge pillow mark on your face, with your mood ruined, your mother suddenly calling you out to go to dinner. I swallowed, staring blankly at the window highlighted in gold and rum. I rubbed my eyes, then massaged my face.
+I stepped onto the sidewalk in a final attempt to reach someone—*anyone*—and beneath the streetlight, my phone suddenly lit with a single bar of signal.
 
-I stood up to get a glass of water, walked barefoot to the kitchen which was now sunken in that specific 8PM darkness, and stood still and silent, not knowing what I wanted from my life.
+It was unnaturally cold—**a cold without season**, the kind that feels less like air and more like some invisible pressure drawing all warmth into itself. My fingers numbed almost instantly as I lifted my phone.
 
-Then, I finally registered one important detail. The folks upstairs were still singing *Happy birthday*.
+I called my closest acquaintance, Ken. Looking back, the very idea feels absurd, almost laughably tragic. I think I simply wanted *validation*, some proof that the world remained tethered to sanity—that *I* remained tethered to sanity. Realistically, calling Ken was the worst possible decision. That bastard has never been able to remain serious for more than five minutes. Even in the best of circumstances, he treated every moment like some tedious joke, a stage upon which he could perform his second-rate wit.
 
-I listened for a while, unsure of what my reaction should be. I wondered if they had some recording playing on a loop, but that wasn't really the case, as each version sounded different from the previous. They really *were* weird, or maybe their kid was just eccentric. Maybe they were practicing? For some performance? I started thinking - as I said, I hadn't personally *met* these people before, so I had no idea what they did. Maybe they were really practicing.
+To think he believed I was “getting him back” for some nonsense from last week… Some petty thing that even I had forgotten. Then he hung up—just like that—after muttering that he had something important to do. The sheer dismissal… it struck deeper than it should have, as if something at that moment confirmed a suspicion I had long ignored: that my life had been built upon crumbling bridges I never had the courage to burn.
 
-I put my headphones on and went on trying to make some sort of dinner, even though I wasn't really hungry and my throat still hurt.
+If only I had ended that miserable relation years ago. I can’t say we ever shared a moment worth remembering. Nothing that justified holding onto such dead weight. Perhaps if I had severed that tie, I could have poured myself into my studies—into the sciences, into the work that had once set my mind alight—instead of drowning my days in that sickening job that ground the soul to pulp. Regret appeared in my mind like a many-limbed creature, gripping, tightening, asking, *Where would you begin? And when would it end?*
 
-I ate, watched my show, then took a shower. Their singing had started to piss me off - it was now approaching 10PM, and I felt the need to go upstairs and tell them to quit it. I'm not confrontational. I really don't like telling people they upset me, and most don't have an appropriate reaction *at all.* I didn't want to talk to them, so I called my mom. I started telling her about my day, but she interrupted me, asking about the people upstairs.
+Regardless, after that infuriating and utterly useless chat with Ken, I chose to take a risk.
 
-"Uh, yeah, they've been doing it for hours. I don't know, it's starting to really get on my nerves."
+I called the authorities.
 
-"Well, go up to them and knock. Aren't the other residents annoyed? The old people upstairs? I'm sure they wanted to sleep by now."
+“Police, what’s your emergency?” a young woman answered from the other side of the line. Her voice was steady, clipped, unmistakably human—and for a moment, that alone was enough to make my chest unclench. But beneath that relief was something else, something far uglier: the fear that she, too, would dismiss me like Ken had. That she might leave me stranded here in this impossible place.
 
-"Maybe I could just put on some music. That could cover them up."
+“Hello, um… It’s a little hard to explain, but I think I’m lost, ma’am…” *Lost.* The word tasted small, pitiful. I knew even as I said it that it was inadequate—a flimsy label for something so much more grotesque.
 
-"But do you want to listen to music?"
+“Alright… you’re lost. I understand. I’m here with you. Can you tell me your name, please? And—do you know where you are right now, even approximately?” Her professionalism remained intact, but I sensed a thin membrane of doubt beneath it, like a brittle sheet of glass pressed against her tone.
 
-"No, not really."
+“Sure, my name is Clark, and well… it’s going to sound strange, but just please listen, I’m in my neighborhood, and I’m standing at the sidewalk before what is supposed to be my home… but everything is wrong. There are no vehicles on the road, the buildings are strange, and it’s nighttime, but my phone says 7:30 a.m.…”
 
-"Then why do it to please them? Go upstairs, Mikayla."
+“Okay, Clark… thank you. You’re doing fine. I just need to understand what’s going on so we can help you. You said the neighborhood looks like yours, but the buildings are different, and the street is empty. Let me ask you a few questions to get a clearer picture, does that sound ok?”
 
-I sighed and reluctantly agreed . After hanging up, I put on a sweater and unlocked my front door. The moment I opened it, the air felt a little colder. I stared at the dark hallway, illuminated by the ray of light from my door and another faint light coming from upstairs. I went up the stairs.
+Her suspicion seemed to recede—or perhaps it simply hid. With voices over the phone, one can never truly know.
 
-The second floor was more animated than the first. The door to the family's apartment was slightly open, and I could see light and movement behind. I slowly approached it, then peeked inside.
+“Yes, ma’am, that’s ok.” For the first time since this nightmare began, I felt a sliver of relief, a fragile thread of connection to something sane.
 
-I could see a hallway with balloons and confetti peacefully floating around. A faint smell of candles and sweetness lingered out. I didn't want to disturb too much, so I tried to be discreet while I quietly and almost imperceptibly pushed the door slightly more.
+“Are you injured at all? Any pain, dizziness, difficulty breathing?”
 
-The small hallway made way to a dining room. The shadows were dancing on the walls as people clapped around the table and sang. On the table was a cake with pink and purple frosting, sprinkles and some writing I couldn't really decipher. The song carried on, but was hoarser than I'd remembered it. People were smiling, swaying from side to side, at the person sitting in front of the cake. The lighting was dim and pleasant, its only source being the candles. The people around were a little tense, but overall it reminded me of my own birthdays as a kid. Some boxes lay scattered on the floor. I tried to take a better look at them, or the kid.
+“I’m completely fine, I have no injuries at all.” I ran my hands over myself, not out of necessity, but to anchor the truth of my own body.
 
-The child looked like a young boy, with a big birthday hat on. He... (I think?) could have been 10 or 12, and his face was round and stretched into a big smile. I stared for a while at the teeth. I don't know what prompted me to make that observation, but he had adult teeth, which were rotten and yellow, sticking out of his mouth in abnormal directions. His eyes were wide and red, as if he'd been crying for a while. I don't remember seeing him blink at all, in the minutes that I watched that felt like hours. He looked really shaken and tense. I'd never seen a child like that before. Never in my life. All the courage I'd had before peeking through the door had evaporated.
+“Is there anyone else around you? Anyone you can see or hear?”
 
-I must have zoned out watching the scene when I was pulled away from my trance. The kid shifted his eyes from the candles, which had now almost completely melted, and looked straight at me.
+“I see no one; the roads are empty, and the houses show no signs of life. No lights are on, no vehicles are present, and that includes the driveways.” Even describing it aloud sent a tremor through me. As my eyes roamed the stillness, the accursed nature of the place seemed to sharpen—to come alive in its wrongness.
 
-I felt seen like I'd never been before. My heart completely collapsed, leaving a painful knot in my chest as I made eye contact with the child. His smile slowly faded, turning into a grimace.
+“Does your home’s address appear anywhere—on signs, doors, mailboxes—exactly as it should? Or is it different?”
 
-I wanted to run, but I was somehow frozen in place.
+“I hadn’t checked for any home addresses before you asked, but after a quick look… no, I see nothing. The mailbox doesn’t even have my name or address marked on it.”
 
-Suddenly, he blew out the candles, and the room was engulfed in darkness.
+“How long have you been there? Do you remember what you were doing right before you noticed something was wrong?”
 
-I heard something shuffle in the dark towards me, gasped and shut the door behind me as I practically jumped down the stairs. The shuffling and scratching followed. I gripped the door and slammed it behind me just as something slammed into it from the other side. Eyes wide and unfocused, I barely managed to lock it as the banging started.
+“I’ve been here for about an hour, maybe… I’ve tried to pinpoint when I got here, but I can’t.”
 
-The song upstairs had stopped.
+“Alright, Clark. Thank you. You’re doing the right thing by staying on the line with me. Let me ask a few more things so we can figure out exactly what’s happening: What do the buildings look like? Are they similar to the ones in your neighborhood—same shape, size, style—or are they entirely different?”
 
-I looked through the peephole. The hallway was completely dark now, but I could make out the details of the face I'd looked at before in the dimly lit dining room. Only, now we were at eye level, which was impossible, since that had been a kid. Had it? Or had it been just a person? The more I thought, the more I realized I had no idea what prompted me to assume it had been a kid. The round face? Childish clothing? Trying to decipher the memory meant analyzing every detail of that horrible face, a thing I didn't want to do.
+“The buildings look like… cursed imitations of the houses of my neighborhood. The more I look at them, the more architectural errors I see. The front stairs have upside-down railings, the windows are way too high up, and there are random canopies.”
 
-The banging turned to scratching. I yelled I was going to call the police. My voice died in my throat - the banging was so strong that it was undoubtedly going to break down my door.
+Speaking the description aloud didn’t help. It didn’t ease me. If anything, it deepened the horror—like naming a thing made it more solid, more irrevocably *real*.
 
-Suddenly, I heard a distinct sound upstairs. The banging and scratching instantly stopped.
+“Do you hear anything at all? Wind, animals, distant cars, electricity—any ambient sound?”
 
-It was a door opening. The elderly couple's door.
+“I hear faint sounds of vehicles moving and life going by as it should, but I see no sign of anything here.”
 
-"Hey! What on earth are you doing? It is the middle of the night..."
+“If you look down at your feet, does the ground look normal? Pavement, grass—does it look like what should be there, or does it look off too?”
 
-I watched through the peephole as the kid-not-a-kid walked away from my door, upstairs.
+“Nothing looks right, all the colors and textures are not how they should be. I can’t quite put my finger on it, but, for example, the green of the grass is not natural. It feels more like if it was painted by a painter who botched his color mixture.”
 
-"Quit it before I call the police. It's enough that I have to hear your kids' tantrums everyday, lady, but-"
+“Thank you, Clark… that’s very helpful. You’re describing everything very clearly. It helps me understand how stressed or unsafe you’re feeling. I’m going to initiate a trace on your call now. I need you to stay on the line while the system works, okay? It may take a few moments. You might hear a brief click or some static—that’s normal. Don’t hang up.”
 
-The voice abruptly stopped. I listened, barely breathing. No scream, no sound. Nothing. Faint scratching, then shuffling, then a faint cry that sounded more like forced sobs. I silently dialed up the police and barely managed to whisper what was going on, afraid that I might be heard.
+There was a brief pause. Nothing but her quiet breathing threaded through the silence—a strangely human tether stretching across a chasm of unreality.
 
-As I was detailing the problem, I looked through the peephole once again to be greeted by that face, grimaced, eyes bloodshot and sunken into the head.
+“Clark, I’m getting an unusual routing pattern on your signal. It’s not behaving like a normal mobile connection. I’m going to run a secondary trace. Just stay where you are. Don’t move around unless you absolutely have to.”
 
-"You're welcome to join next year. That's why we left the door open." came the voice of an adult, out of the face of a 12 year old. I gasped and ducked, as if that would save me.
+Another pause. This time, I heard the faintest whisper—accidental, involuntary. “That’s… not a standard tower bounce…”
 
-The police came in around half an hour, which was an insanely long amount of time. They went upstairs and sealed off the entirety of the second floor. They refused to give me details. I had to wait for the headlines and accept some vague answers from the numerous phone calls I'd given since.
+A chill crawled under my skin.
 
-"Miss, there were never kids living upstairs. Two of them were grown-ups, but two of them were... pretending to be kids."
+“Clark, I still have your voice clearly, but the location data isn’t matching any physical coordinates. It’s… drifting. The system is trying to lock onto you, but the return signature is distorted. I’m going to keep the trace running. Stay on the line. Don’t disconnect.”
 
-They refused to tell me what had happened to the elderly couple. They barely mumbled something that included kidnapping, massacre, disembowelment... some of the victims, which had been many, were hostages, made to play along. The presents were just pieces of flesh, toys made of bones with bows on them. One of them was a teeth necklace.
+“Okay, okay. Just tell me what you need me to do.”
 
-I'm going through a really hard time now, trying to move all my stuff without having to go to that place too often. I can't sell it or rent it out - maybe to some true crime fanatic. I moved in with my parents, but I asked them to add extra locks to their doors and windows and security cameras everywhere. They assumed I was paranoid and suffering from PTSD.
+“Alright, I’ve resumed the trace. I need you to stay as still as you can for the next few seconds. The system works better when the caller isn’t moving. Please let me know as soon as you’re not moving anymore.”
 
-I let them believe that. However, I'd watched the security footage of that night, showing the outside of my door. The birthday boy I'd spoken to hadn't gone back upstairs. He just crawled to the window and jumped out.
+“I’m not moving.”
 
-I don't know where he is now. I hope it goes both [ways.](https://www.reddit.com/user/EmmaWatsonButDumber/)
+“Okay… good. Stay just like that. I’m running the secondary trace now. You may hear a faint click—don’t be alarmed.…”
+
+As I held the phone to my ear, the air around me seemed to tighten. The temperature dropped—sharp, sudden—as though something had inhaled all warmth. A dread I can’t describe hollowed out my chest.
+
+“Clark… the signal footprint I’m getting from your phone is extremely unusual. The system is trying to triangulate you, but every time it locks onto a coordinate, it shifts by a few meters and then resets entirely—almost like your device is… overlapping multiple locations at once. I still hear you clearly. Your voice quality is stable. But the return signal—the part that tells us where you are—isn’t behaving like any normal call we’ve ever seen. I’m trying an older diagnostic tool. Just stay with me… Before the scan completes, I need you to confirm something: Are the sounds you’re hearing—the distant cars, people—are they getting any clearer? Louder? Or are they staying faint and muffled?”
+
+“The sounds are still the same… Wait, I don’t understand what you mean by my signal is… overlapping multiple locations at once.”
+
+“I know it’s confusing, Clark. When I say your signal is overlapping, I mean it’s returning from several—Hold on. Something just shifted.” A low hum vibrated across the line, followed by two soft clicks. “Where is that coming from?” she whispered, barely audible. “Clark… your location just spiked. It jumped half a kilometer in a fraction of a second. That’s not possible. I’m initiating a third trace. Stay absolutely still for me, alright?”
+
+A faint pop of static. Then—
+
+“Wait. No—no, that can’t be right. The system is reading your signal as if it’s folding in on—”
+
+**POP.**
+
+Then—silence.
+
+Not the ordinary kind. Not a dropped call. Not static or glitch or background hiss.  
+ A perfect, suffocating void.
+
+My call timer still advanced on the screen.
+
+“Hello? Can you hear me? Hello!?” My voice felt swallowed, devoured by something vast on the other side.
+
+The call timer froze mid-second.  
+ The screen flickered once.
+
+**CALL FAILED — Unknown Error (000-Δ)**
+
+I looked at my phone for about a minute, a cocktail of emotions swirling within me—rage, hopelessness, depression, loneliness—each one steeped in the bitterness of the other, forming a vile mixture of misery I could barely swallow. My hands trembled, the device felt heavier by the second, as though absorbing the gravity of my situation. I needed to think. I needed a plan. But thinking here felt like trying to breathe underwater.
+
+As if this ungodly place wished to wring the last drop of hope from me, my phone flashed a new message: **15% remaining.**  
+ A countdown to doom.
+
+This phone is all I have. It is what I’m using to send out this message. Now, as I write this, it sits at **8%**, the numbers falling like grains through an hourglass. And truthfully, I suspect I may die before my phone does—but I suppose I should explain why such a morbid thought feels less like fear and more like an inevitability.
+
+Because this place—this imitation of a neighborhood—is not empty.  
+ It only *pretends* to be.
+
+After struggling to digest that poisonous concoction of emotions, I finally accepted that using my phone further wouldn’t save me. If the calls were useless, if the signal was a lie, then I had to observe the world itself. I had to confront it, as horrifying as that was. I reasoned, *If the phone cannot help me, then perhaps something—someone—could.* I was still naïve then, still clinging to the idea that the world behaved by rules I recognized.
+
+I hadn’t yet understood the ungodly nature of this place.  
+ I know now that I still don’t.
+
+But from what I’ve witnessed—what these eyes have swallowed like poison—I would rather die than learn more. Death, I fear, would be a mercy in comparison.
+
+I began my search by approaching the eerie imitation of my neighbor’s house. There was no walkway—only that unnatural grass, stiff and incorrect beneath my shoes. I forced myself across it and onto the bizarre staircase. The railing was upside-down, welded into the steps at wrong angles, and each riser was bafflingly mismatched in height, as though built by something that understood stairs only through rumor.
+
+The front door stretched upward toward the roof, impossibly tall—tall enough for something nine feet in height to pass beneath without bowing its head.
+
+Darkness clung to the porch like a living thing. I felt watched—violently, intimately watched. My hands shook. My breath felt foreign in my throat. I knew, instinctively, that my fear wasn’t unfounded. Something here was observing me.
+
+To the left of the doorway, a slanted window sat far too high for me to peer through—tilted as though mocking the concept of right angles. On the right side, however, there was a small window positioned at knee height.
+
+I lowered myself and peered inside.
+
+At first, the darkness made it difficult to discern anything. Perhaps if the interior had resembled a normal home—even slightly—I could have made sense of it through familiarity alone. But this… was chaos. Architecture born from a mind that had never met sanity.
+
+A spiral staircase led to nowhere, terminating in empty air. A towering library bookshelf stuffed not with books but kitchen appliances—ovens, kettles, a blender balanced sideways. Couches lay at odd, contorted angles, as though dropped from a great height. A lone toilet sat in one corner like an afterthought. The floor was littered with tissues, magazines, utensils, and stray stationary, all scattered as if tossed by a storm of senseless intent.
+
+It was bizarrely horrifying—an environment both stupid and malicious.
+
+But what came next eclipsed all of that. It is the event that led me back to this sidewalk, frozen with a fear so profound I can scarcely breathe as I recount it.
+
+The darkness inside the house… hung like a black fog—thick, restless, suffocating. At first, I thought it merely a trick of the light. But then it moved. A subtle ripple, a distortion.
+
+I blamed my imagination. Accused it of fabricating horrors to fill the void.  
+ In any other circumstance, I could have forgiven myself for that. But not here. Not now.
+
+I closed my eyes, shook my head, tried to reset my thoughts. I told myself I was tired, overwhelmed, hallucinating. Just breathe. Just focus.
+
+Then I opened my eyes.
+
+Nothing had improved. In fact, the darkness churned more violently—writhing, twisting, as though stirred by some unseen hand. And within it, something shifted. A shape—a presence—its outline grotesque and unmistakable.
+
+The figure was not human. Not animal. Not any earthly creature that evolution might have sculpted.  
+ It was a collection of irregular shapes, tentacles, deformities—appendages that bent in ways that offended logic itself.
+
+And then—slowly, sickeningly—more appeared.  
+ One by one, they emerged from the roiling void, amorphous shadow-entities multiplying in impossible silence.
+
+And that was when I realized, truly and undeniably:
+
+I was not alone.
+
+Through what little reasoning I had left—threadbare and fraying under the weight of my abject horror—I decided to abandon that home and flee. There was no plan, no strategy; the impulse was primal, a terrified lurch toward anything *else*. I rose as silently as my shaking legs allowed and slipped across the threshold.
+
+The moment my foot touched the lawn, the darkness *shifted*.
+
+They were everywhere.  
+ Small, glowing eyes embedded within amorphous silhouettes that clung to the shadows like malignant stains. Their shapes were wrong—fluid yet somehow rigid, like smoke that had learned to imitate flesh.
+
+I bolted toward the road, and they drifted after me, gliding more than moving. Sharp appendages scraped at my ankles; dry, wiry tendrils brushed across my back as though tasting me. I stumbled beneath a streetlight, and the things recoiled instantly. The light hurt them. Or repelled them. Or simply reminded them of whatever abyss they had crawled from.
+
+They possessed no physical form, so I could only guess: perhaps they were some species of *living darkness*, parasites of the night itself. Light scattered them, but I don’t believe it killed them—not truly. A couple of times I caught thin, probing hands creeping up behind me when my back was turned. They would retreat the moment I noticed, slipping away like guilty thoughts, but the message was clear.
+
+They wanted to drag me into the dark.  
+ They were hungry.
+
+So I remained beneath the glow of the streetlamp, a lone refuge in this cursed mock-neighborhood. Driven by nothing noble—not hope, certainly—but that sick, animal instinct to survive, I explored the streets where the lights still held.
+
+That’s when I noticed… other movement.
+
+Not the shadows. Something else. Something larger.
+
+At first, I forced reason onto it—told myself it was simply more of the shadow creatures. But if you ever find yourself in this place (you won’t survive long enough to regret it), do not trust reason. Rational thought dissolves here like sugar in water.
+
+I remember it—poorly hidden behind a house, as if playing some monstrous parody of a game. Emaciated fingers, impossibly long, curled over the rooftop. A towering head peeked above the shingles, as though shyly observing me. Cartoonish in its attempt to conceal itself, obscene in every other sense. Its eyes—vast, pale, and lidless—locked onto mine.
+
+And in an instant, I knew.  
+ The shadows were not the true predators.
+
+If there was a hierarchy in this nightmare ecology, that thing sat—smiling—at the top.
+
+A sudden sizzle snapped through the air at the far end of the street. The light there flickered… dimmed. I was standing in the center of the cul-de-sac, exposed. I sprinted toward the bend, hoping to reach the next street before the lamp died.
+
+I was ten meters away when darkness swallowed everything.
+
+I stopped so abruptly I fell backwards onto the pavement. The shadows surged in the same breath, claiming the absence of light like a birthright. I felt one brush my shoe.
+
+At the dead end, the towering thing still lingered behind the house, half-hidden, patient. Watching. The streetlights are failing one by one, herding me toward the final corner like livestock.
+
+The shadows stalk the perimeter, breathing hunger into the air, thick and metallic. Their prey has nowhere left to run.
+
+And that thing—its enormous eyes crease at the edges.  
+ I think… I think it’s smiling.
+
+My phone is at 1%.  
+ The streetlight above me just flickered.
+
+Oh no…
+
+  
