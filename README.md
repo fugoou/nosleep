@@ -1,48 +1,483 @@
-# I'm a camera guy for a local reality show and my boss is starting to make me fear for my life
-You know those turn of the century consumerist shows about haggling for peoples old junk that are almost always pre-scripted mini soap operas set in some real location usually playing at your grandparents or in some old folks home? Well I work for a show that’s sort of in that vein only the drama is still happening when the camera stops rolling. I’ve seen some crazy stuff on this job, wanted fugitives sleeping on my couch, a dear friend's dick getting eaten off before the assailant just disappears and even multiple of my friends being resurrected in some kind of pet cemetery rip off grave plot. Sometimes my boss even makes me think he’s going to kill me…
+# I dreamed my husband tried to kill me. Then it slowly became real.
+I’m running through the forest tripping over roots. 
 
-I should start with a bit about myself, I’m Allen! Most around here just call me Camera Guy as that’s my typical function for the show. I’m a college drop out with no more family and not a lot of options. I used to try my hand at fictional miniseries stuff on youtube with my old friends but they never really went anywhere because I could never keep actors interested in coming back for a new installment. Because of this among other hurdles I kept running into I decided I would have a better time finding like minded people in film school or something so that's what I tried. It did not go well.
 
-I’ll spare you the horrific details of just how bad at interacting with others I am but just know I managed to have my entire film class ostracize me for being “such a freak”. So there I was: $200k loan, completely alone with nobody to even consider working with me. What do you think I did? Obviously I’d no call no show at work and skip town trying to put as much distance between me and the debt as possible. It landed me in some podunk town in the mid-west called Mattoon, IL where it’s always gloomy and there's nothing but corn on the horizon in both directions outside of town. You know legend has it that during WW2 there were reports of a man sneaking around town at night to the houses of army wives whose husbands were away in Germany. Apparently he would crack the window just enough to stick a hose in and start pumping some kinds of fumes into the women's bedrooms to either kill them or maybe even ‘sedate’ them. They called him the Mattoon Mad Gasser and they never caught him. Here’s a link to a newspaper clipping of it: [https://www.illinoistimes.com/arts-culture/the-case-of-the-mad-gasser-of-mattoon-11450083/](https://www.illinoistimes.com/arts-culture/the-case-of-the-mad-gasser-of-mattoon-11450083/).
 
-Anywho, this has nothing to do with the Mad Gasser. I just thought it would show that the town was weird. So one day I was begging for “donations” like I do and I’m approached by this tall slender man with elvishly long auburn hair and a chiseled jawline. He’s very interested in my “predicament” and tells me he’s in the market for a cameraman for his new reality TV show. He says he’d give me lodging and pretty competitive pay. I was of course excited by the prospect of a job in film where I can work and collaborate with others and a place to stay would certainly help the athletes foot I've been dealing with. Now I’m sure any reasonable person wouldn’t trust a guy just offering a job to a random homeless kid but there was something about this man. He had such an air about him like when he speaks you just want to listen, plus his eyes were green, my favorite color. It felt as though I had known him my whole life and barely scratched the surface. 
+There’s darkness all around me, no sign of road or any other life. 
 
-Before really thinking hard about it I blurted out “If you give me a place to stay I’ll work for free!”. He chuckled brightly, said “DEAL” and stuck his hand out to shake mine. “Let’s get to it then”. “You mean right now?” “Well sure, no time like the present”. He motioned for me to follow him into his scarlet 4 door. I say “Wait, I never got your name.” He responds “Excuse me, Heheh. Pretty hard to work for someone you don’t know the name of! I’m Tony, Tony Dealzman.”
 
-We arrive at Tony’s house, a 3 bedroom upstairs apartment in the evening time just after sundown. Inside the house none of the lights are on aside from the lights under the two doors at the end of the hall, the common area feels cold and devoid of life. “Let me show you the digs hombre” says Tony before walking me down the hall to the first door on the right down the hall. “This is just a coat closet, don’t worry about this one” he says with a smirk before moving to the next room, his room. Inside the room is a huge dark corner desk with various gadgets and calculators and in the center (obviously) were two large computer monitors, one showing ‘The Mattoon Dealz Radar’ and the other with a picture of a gluttonous cat that has two apples. The only other things in the room are some blackout curtains and a king size bed. “Pretty baller right? Some great dealz got me this stuff. Anyway let’s check out where you’re staying”.
 
-He leads me down the hall to the door at the very end taking very musical swaying steps and just opens the door and walks in. “That guy right there is Danny, Danny Dealzman. Danny, this is Camera Guy” he says pointing to me. I laugh politely and say “ My name’s Allen by the way”. Tony just looks at me as if he’s missing the punchline of a joke and says “Yeah anyway, this right here is you” He says walking up to a closet in Danny’s room and opening the bifold door. I look over at  Danny who is sitting on his bed looking at his phone before proceeding to the door. He just glared at me the way you’d expect somebody dangerous to non verbally tell you to ‘not mess around or incur my wrath’. His brow looks like that of an ape, furrowed and casting a shadow over his eyes. I look into my “room” and see that it's just a 4 by 6 little hovel with all of the shelves being taken up by assumingly Danny’s things. I don’t know what to say, I’m definitely scared of this Danny guy but I couldn’t just turn down a roof over my head, especially with winter coming fast.
+Adrenaline is flowing through my body. I can hear myself panting hard; my heart rate is over 200. 
 
-Tony puts his arm over my shoulder in a chummy way leading me back out of the room saying “alright no time to waste let's get to work!” upon leaving leaving Danny's doorway I notice there's a door we hadn't looked in. I can almost hear a scraping sound inside. I stop and ask Tony “what's in that room-” he cuts me off and gets real close to my face with the face an adult gives when they're trying to tell a child about something extremely serious and dangerous. “Don't ever, EVER open that door. I WILL know.” He said before flipping back to his jovial charming persona. Before we leave he hands me an old crummy camcorder and says to start filming.
 
-**Episode 1: Black Friday 2019**
 
-Filming episode 1 had a very unconventional feel to it. It was actually a lot of fun, it sort of felt like a super mega video of two guys palling around in a pretty dead Walmart. There was this one thing Tony did however that gave me pause. He put on some gloves assumingly to state whether it was a good deal or not but when he put them on he just starts staring knives into me, he then started slowly approaching me and says “I'm gonna kill you, this is the end” while trying to strangle me. I'm sure he was probably joking and when I pushed him off he stopped but it really got under my skin. After being at the store for 4 hours we ended up only buying milk and sugar. It was a tough sell too.
+I’m starting to feel dizzy, my body is getting tired, maybe I have finally escaped, but then I hear that bloodcurdling call. 
 
-Once we wrapped up Tony said he wanted me to get a shot of him getting in the car and driving off. It's not an uncommon thing in TV to do things like this to show the passage of time or bring a close to the episode but he really drove pretty far away. I actually thought he had just ditched me but he came back nearly running me over and apologized saying he forgot I was still there. Definitely wasn't expecting that to become a recurring issue. Despite these strange moments it was a really fun time and I was on top of the world finally getting to do what I've wanted to so long and professionally this time. 
 
-After getting back to the house I was beat, I went straight to bed, Danny was gone, I'm not sure where. I couldn't get much sleep though. I share a wall with the room Tony told me to never go in and I could hear things through the wall. It sounded like a bull in a china shop. There was what sounded like the screams of an animal in there as stuff was falling and breaking all over the place. Amidst all of the smashing and slamming I could have sworn I heard a defeated “No..” as things began to slow down. Tony seems like a trustworthy guy, and if he says I shouldn't go in that room, it's probably for good reason.
 
-**Episode 2: 2 hours later**
+“Abby, where are you?!” Screamed into the dead of the night.
 
-Tony wakes me up by banging a pan with a spoon saying it's time to get back to filming so I dragged myself back out to the car assuming we had to do some pick up shots or something. 
 
-We did not. It was time to record episode 2 which honestly would make more sense as episode 1 because we actually did an intro and title card, but I'm not in charge so I was just going with the flow. Something weird I noticed in the footage was there was this girl following us around the whole time. Not like I haven't had a girl follow me around before but she wasn't actually there. I never saw her the whole time but looking back at the footage she was definitely there. 
 
-Anywho, we were back at the toy isle and seemingly out of nowhere a tall man with a dark beard and long hair waltzes into the isle and Tony looks over at him with a heavy silence before saying “J-Jerome Dealzman?” In disbelief then bringing him in for a hug. The two brothers had a moment of catching up and said some strange things about their shared history. Tony says verbatim “ I haven't seen you in 10 years, ever since our father was killed by that Deal Finder, and then we inherited the Deal Finder legacy” with tears in his eyes. I really had no idea what that meant. Is he saying that he became a deal finder after their own dad was killed? How does that work? Was his last name not Dealzman before that? 
+I look back and there he is, the monster of my nightmare. 
 
-I was too stunned to ask any further and much like episode 1 we walked around and found some dealz like a group of old friends. We called this one much faster this time as I'm sure the brothers wanted to catch up. Just as we were getting ready to do the “see you next time” camera shot Tony takes the camera from me, pushes me back and they speed off in the car leaving me there. This time it was a good hour before they came back. I can see maybe they got caught up in the moment but I could swear I heard Tony yelling from the car as they left saying “He's the worst cameraman, I hate him, we gotta go, we gotta go.” Though when they came back Tony just said “Hey man, crazy night, right?” It looked like they went and got Steak n Shake, I love Steak n Shake. I hopped into the back seat and said “haha what'd you get me?” They both looked at each other and then me before looking back ahead of them. It was clear to see they actually had forgotten about me. I'm not proud to say this but I cried silently on the trip back, it brought back feelings of childhood that were a little too strong. 
 
-\*I would like to note that at the end of episode 2 there is a section that shows a bit of a party happening in the Dealfinderz HQ, that had not happened until after episode 3. We had only added it to the end to pad the runtime because episode 2 was cut short from the reunion. Editing didn't really finish on the first two episodes until a week or so after episode 3 was filmed. I'm bad at my job, I know.
 
-Finally back in bed drinking in the swirling darkness in my little room I sort of fell into more of a meditative state than sleep, like I was thinking deeply about a lot of things from the past day but I certainly wasn't aware of my surroundings. I heard the outer door open ever so quietly and then soft steps leading up to the door to my closet. There was just enough moonlight through the slits in the door to see someone was standing there. All I could hear was deep breathing. 
+My husband is standing in the middle of two trees with a hatchet.
 
-Paralyzed in fear of whatever was happening I stayed as still as I could as to not let whoever know that I was awake. After what felt like hours in this silent standoff I suddenly heard a voice, Tony's voice.
 
-“You're doing such a great job, I'm so proud of you” he said before slipping back into the darkness. All the fear that I had been feeling up until then washed away. I felt so warm, like I was finally accepted, like I found a new home. I know it's unconventional but that little bit really went a long way for me. Maybe I could stay here.
 
-Over the next week or so I went out dumpster diving as I do and found some cool things to decorate my room! I found one of those old Native American blankets, I think those are really cool. I also found one of those bubble games where you press the button to catch the rings on the stick. Oh yeah I also found a light bulb box with one working bulb still in it! Now I could plug it into the one that's supposed to be in the ceiling AND a blanket to sleep with. Things are looking up for old A-Train.
+“Found you!” echoes through the forest as he starts sprinting in my direction. I scream out and start running again.
 
-The homely peace of my bedroom was quickly ruined one evening as I heard a loud crash coming from the front room. I rush out to check out the commotion and I see Tony laying on the ground with his hands over his face incoherently exclaiming “ The TV betrayed me , The TV betrayed me!” He was catatonic. I tried to get his attention to snap him out of whatever was happening saying things like “Hey, its okay. What happened? It’s me, Allen, I’m right here” Upon hearing me say my name he snapped out of his loop and grabbed me hard by the nape of my neck. He leans in real close and with a controlled rage looks into my eyes and says “Let’s get one thing straight, your name is Camera Guy, Nothing else. I will not hear any other name, I will not refer to you by any other name, you HAVE no other name.” Before letting me respond he pushes me back and gets to his feet and tells me to get out the camera and start filming before adding “ It’s time to set him free, it's time to get the gang back together...” and looking down the hall as the Dealz Radar starts going off.
 
-To be continued…
+
+Then I wake up in my bed at home. 
+
+
+
+I jolt all the way upright and scream again. There’s a pool of cold sweat that formed underneath me.
+
+
+
+“Jesus Christ, Abby, what’s going on?” says Dan and tries to touch my hand.
+
+
+
+I immediately jump out of bed and look at him with my eyes wide open, my pupils shaking.
+
+
+
+“Honey, what happened? Talk to me.” He says as he slowly starts getting out of bed.
+
+
+
+“Don’t. Don’t fucking walk any closer.”
+
+
+
+I stand in a curled-up pose, almost like a fetus standing upright, watching him like a prey animal watches its predator.
+
+
+
+“Are you gonna finally talk to me or what?” Says Dan with annoyance more than compassion behind his voice.
+
+
+
+“I just had the worst nightmare of my life, Dan! I had a dream, and you were chasing me through the forest trying to kill me with a hatchet! It felt so real!” I shout out. 
+
+
+
+I can feel my voice cracking as I say the last line, and then I sit down on the floor and start crying.
+
+
+
+“I’m sorry, honey. I’m sorry. I didn’t know. Come here, you know I would never hurt you.” He approaches me. 
+
+
+
+I try to move my body away, but he still hugs me. My body tenses up again, but the longer he holds me, the more it calms down.
+
+
+
+“It was terrifying, Dan.” I whisper out in between my tears.
+
+
+
+“I know, I know. I’m sorry you had to go through that, but you know I would never hurt you, baby.” He now sounds calm and soothing. 
+
+
+
+I hug him back, and he strengthens the grip around my body. The world is okay again.
+
+
+
+It’s a lazy Sunday of mid-spring in North Carolina. 
+
+
+
+The warmth is finally here, but it’s still not too hot to stay home. We plan to take our dog to a nearby lake.
+
+
+
+Our dog is a beautiful German Shepherd named Zippy, full of energy and happiness. 
+
+
+
+We got him a few years ago from a rescue station and have loved him since.
+
+
+
+At the lake, we park our car and start our walk. 
+
+
+
+We’re laughing about one of Dan’s jokes when, around the turn, a mom with a small child turns up. 
+
+
+
+We don’t have time to call Zippy back. He runs to the family and starts circling them.
+
+
+
+Luckily, both of them adore him. He’s excited, but then I see Dan running after him.
+
+
+
+He quickly starts apologizing and pulls Zippy by his harness. Way harder than necessary. I run to them, too.
+
+
+
+The mom starts saying that it's okay, and that they love dogs. 
+
+
+
+Once they turn and start walking, I see Dan watching to see if they turn around and then slap Zippy across the nose. 
+
+
+
+He grabs his harness tighter and starts muttering horrendous things at him.
+
+
+
+When he lets go, Zippy lets out a faint moan and walks away with his tail between his legs.
+
+
+
+“What are you doing, Dan?!” 
+
+
+
+“What?! He’s not supposed to do that shit, okay? Maybe you should have trained him better.” He almost screams out. 
+
+
+
+His face is twisted with anger. There's hateful fire behind his eyes.
+
+
+
+I wrestle Zippy out of his hand and put him on the leash. 
+
+
+
+Dan is still looking at me with that anger in his eyes. The rest of the walk is silent. 
+
+
+
+I ask him if we can cut it short. He groans, we get back to the car, and ride home.
+
+
+
+I put Zippy into his bed and gave him extra love. 
+
+
+
+I’m still angered and puzzled by Dan’s behaviour. I have never seen him acting like that.
+
+
+
+When he comes in, the anger in his eyes is gone. He’s now looking at the floor like a child who broke something.
+
+
+
+I told him to come over and scold him for what he had done at the park.
+
+
+
+“I don’t know what has gotten into me, Abby. You know that’s not who I am. It’s like something took over me.” I can see tears forming in his eyes.
+
+
+
+I sit there for a second. I’m still angry about what he did to Zippy, and I’m sure he crossed the line, but he’s still my husband.
+
+
+
+I decide to forgive him and tell him it’s okay. 
+
+
+
+The rest of the week floats like any other. That Friday, we are supposed to go for a long weekend to a cabin that Dan’s parents own two hours away near the mountains. 
+
+
+
+He’s getting really excited; he loves that place. 
+
+
+
+On Wednesday, I come home. Dan has gauze wrapped all around his right palm. 
+
+
+
+Apparently, he cut himself when he was fixing something in the garage.
+
+
+
+When he leaves to brush his teeth for the night, I quickly check Zippy for any sign of abuse. Luckily, there’s nothing on him.
+
+
+
+After checking, I feel a little guilty for doubting him. The thing that happened last week was most likely a mistake.
+
+
+
+When I wake up on Friday, Dan is already awake, staring at me. I almost jump out of bed, and then start laughing.
+
+
+
+It takes him a second to laugh. He stares at me with a strange grin, probably trying to make a joke.
+
+
+
+A few seconds later, he starts laughing too, and tells me how excited he is to go to the cabin. 
+
+
+
+We pack up our stuff and get on our way. 
+
+
+
+The cabin is secluded, and the nearest neighbors are almost two miles away. 
+
+
+
+It sits on a dirt road that leads for another mile into the forest and stops.
+
+
+
+We settle in, and Dan decides to go chop up some firewood. The cabin has a fireplace, and we want to make our night even more cozy.
+
+
+
+I prepare two drinks and walk out to give one to Dan. He is standing in front of a log of wood, a hatchet in his hands.
+
+
+
+The image of dream Dan standing in the forest at night flashes in front of my eyes. 
+
+
+
+My face goes pale, my legs start shaking, and I gasp, almost dropping my drinks.
+
+
+
+Dan looks at me, laughs, and goes back to chopping up the wood. I push that thought out of my mind.
+
+
+
+“What happened there, honey?” He says while laughing.
+
+
+
+“Nothing.”
+
+
+
+“Oh, nothing, are you sure?” He asks with a strange grin, almost like he knows what I was thinking.
+
+
+
+“Yeah, nothing. Here you go, your vodka soda.”
+
+
+
+“Thanks!”
+
+
+
+I walk away, quickly down my drink, and prepare a new one. Then I sit around, cuddling Zippy until Dan gets done chopping up the firewood.
+
+
+
+The rest of the day is spent playing board games and watching movies. It starts raining as we are about to go to bed.
+
+
+
+The storm is pretty bad, with lightning hitting fairly close. Zippy was always scared of storms, so we let him sleep in our room tonight.
+
+
+
+I wake up. It’s still dark outside, and the storm is now raging on. I get up from bed to use the restroom. 
+
+
+
+My eyes are still trying to open, but the light in the bathroom wakes me up.
+
+
+
+As I am walking out, I look to the kitchen, and there he stands. The shadow of Dan holding the hatchet again.
+
+
+
+I stand there, frozen, gripping the door handle, my whole body shaking. Then the figure turns fully towards me and starts running.
+
+
+
+As I let out a scream, lightning strikes nearby. The lightning strike lights up the house, and the shadowy figure disappears.
+
+
+
+I crumble to the floor, crying. 
+
+
+
+The morning after, Dan doesn’t ask me about what happened last night. 
+
+
+
+It’s raining all day, so we decide to stay in. We spent most of the day reading and watching TV shows near the fireplace.
+
+
+
+We have enough food and drinks, so staying in is not a problem.
+
+
+
+What’s strange is that I could swear I would catch Dan staring at me. With a child-like grin and his eyes piercing right through me.
+
+
+
+When I get up to go to the kitchen or bathroom, I can feel his gaze following my every move, like an animal looking at its prey.
+
+
+
+Whenever I would turn back around, he would be staring back into his book or at the screen.
+
+
+
+Zippy keeps a distance away from him. Usually, when we sit down to watch TV, he sits between us, but today he only sits on my side.
+
+
+
+He stares and backs off a little when Dan gets off the couch.
+
+
+
+We decided to call it a night early. Dan says he’s tired. I am tired of him, and that day too, so I am happy to go to sleep and get back home.
+
+
+
+I wake up. The storm is still raging on. I swear I could hear a sound in the kitchen.
+
+
+
+When I look at the bed, Dan isn’t in it. A wave of cold runs through my body, and I can feel my stomach cramping.
+
+
+
+I can’t tell you why, but something inside of me knows what’s going to happen.
+
+
+
+I sit in that bed for a couple of minutes before I have enough courage to walk out. 
+
+
+
+I walk into the hallway and slowly peer into the kitchen.
+
+
+
+The shadow figure is standing there again. I let out a faint gasp, but I try to convince myself that it’s my mind playing tricks on me.
+
+
+
+I stand in the hallway for what feels like hours, then the lightning strikes again.
+
+
+
+Instead of the shadow figure going away. It lights it up. Dan is standing there with a hatchet in his hands, grinning like a maniac with his eyes wide open.
+
+
+
+“Hey, Abby!” He screams out.
+
+
+
+I don’t hesitate and bolt through the back door. Running right into the forest.
+
+
+
+I hear the door shut behind me, but then a loud “Shit!” echoes. 
+
+
+
+I look back. Dan slid on some mud behind our house. This gave me enough time to make a run for it.
+
+
+
+I am running through the dead of the night and rain, trying not to fall, hoping that I would lose him.
+
+
+
+The mud is cold on my feet. I can feel the rain hitting my face.
+
+
+
+“Abby, where are you?” echoes through the forest.
+
+
+
+I look back, and he’s standing between two trees. 
+
+
+
+A lightning strike lights up the whole forest. He still has that manic face.
+
+
+
+“Found you!” He screams out. 
+
+
+
+I start running again, but he’s too fast. I can hear his footsteps approaching me.
+
+
+
+His breath is almost on my neck. I can sense the hatchet rising in his hands.
+
+
+
+Is this it?
+
+
+
+Then I hear another sound. It’s Zippy. 
+
+
+
+He jumps at Dan and starts tearing at his arm.
+
+
+
+Dan screams out. 
+
+
+
+I start running again, with their struggle still echoing through the woods.
+
+
+
+Somehow, I make it onto the road we came on and manage to stop a car coming by.
+
+
+
+The rest of it is a blur. I only remember the police calling the hospital they took me to, informing them that they managed to catch Dan.
+
+
+
+Apparently, some driver saw him running around the road like a lunatic with his hatchet.
+
+
+
+Zippy made it out alive. He had to get some operations at the vet, but luckily, he’s all healthy now.
+
+
+
+Dan confessed to the crime. The police officer said that he bragged about almost killing me.
+
+
+
+Sometimes when it rains, I swear I can still hear him scream.
+
+
+
+“Found you!”
+
