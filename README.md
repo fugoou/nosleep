@@ -1,157 +1,132 @@
-# I’ve been locked inside this warehouse for 42 hours and everyone is missing. (Part 3)
-There’s something wrong with Natalie. 
+# Don't Go To Walmart After Ten PM
+It just might end up being a grave mistake.
 
+Something they don’t tell you about dorm life, you’re always running low on something. When your campus is tucked away in a little mountain town that has a town square that rolls up at six, it’s easy to go stir crazy as well.
 
-I think she’s been here too long. Isolated and devoid of all hope. It scares me to see her this way. We both started around the same time. Both the youngest employees coupled with the fact we learnt the ins and outs of this place together, it was no surprise that we hit it off so well. She was witty and kind, had an open mind and we often found ourselves putting the world to rights. She helped make those long and boring days go by in an instant. 
+Lucky for me, there’s a late-night Walmart superstore about half an hour away.
 
-Many of the older members of staff often joked about us ending up together but that wasn't the nature of our relationship. Besides, I wasn’t interested in the opposite sex. I think that's why she felt comfortable getting close to me. There were no ulterior motives on either end. We had only known each other for two years, barely any time at all but she was one of the first people I had met that made me feel truly seen. Have you ever had a friendship like that? 
+I was cutting it close, ever since COVID these places break down at eleven on the dot. But as I rolled into the nearly abandoned parking lot, I had made it just under the final hour. The building was massive, but really no different than your standard Walmart. I parked my friend's jeep right next to the handicap zone and scanned the lot. It was almost a ghost town-save for a rickety branded van and a beat-up old jalopy lingering in the back. I glanced up at the superstore, those luminescent letters beckoning me like a moth to the flame.
 
-It made my gut churn at the thought that someone so kind had ended up in a place like this. 
+There were a few things I needed: ionized salt being the top of the shopping list. The frigging pervert ghost that lurks on my floor's bathroom has started wandering the halls. I read online that salt keeps out specters, so I've been dumping it underneath the seam of my bedroom door every night. Whole hall has this sharp, acrid odor to it, but I haven't seen that bug eyed phantom leering at me in a while. So, I consider that a win.
 
-I care about her more than I thought I would ever care about a person I had met through work, and seeing someone who would often light up the room she was in reduced to a quiet, nervous wreck clenched at my heart like a vice. It made this all feel so much more real. Knowing that, sooner or later this is how I was going to end up… and if we both lose hope… we won't ever leave. 
+I stood at the sliding doors and peered inside. The in-house Starbucks was already closed, crushing my dreams for a late-night pumpkin spice latte. The check-out lanes were all closed, saved one with a dough eyed skinny kid manning the register.
 
-I could never admit this to her face but she frightened me now. With the way she would drift off into her own mind, would mutter things to me that sometimes didn't make any sense. Just like the walls that confined us, she had become unpredictable. 
+I saw no other customers lingering inside, the only other person was hanging out near the front entrance. He was an older fellow, broad shoulders and a keg for a gut. His head had a few stragglers on it, combed over in a fruitless attempt at a makeshift hairpiece. His cheeks were rosy and full of life, like a wrinkled peach. he wore a blue vest and had a neatly trimmed beard that was as white as pure Colombian marching powder. Just beneath his twitching nose was a moustache; it's ends slightly curled upward in a way that him look like a refined Southern gentleman. An odd look for the Northeast for sure.
 
-A few hours into our first night together, the tendrils of sleep had wrapped themselves around me and pulled me into probably one of the deeper sleeps that I had managed to have here. My original goal was to stay up and keep watch over Natalie but even with her strange behaviour, I must have found some comfort subconsciously because it hadn't taken me long to pass out in my chair. 
+The doors glided open for me, a gust of chilled air smacking me in the face as I entered the Walmart. The old man lingering near the shopping carts saw me, his eyes lighting up like a Christmas tree. He waltzed over to me with open arms, like he was going to wrap me up in an ironclad bearhug.
 
-I was roused when something brushed against my cheek. It was light and it tickled as it danced across my skin. Behind closed lids I could see a dark mass hanging close to my face. It rocked ever so slightly. I shifted in my seat slowly ebbing and flowing into consciousness. Confusion fogging my mind. A small part of me knew something was different. That something was wrong. 
+"Welcome to Walmart little lady, if there's anything I can do to make your shopping experience tonight as smooth as molasses just let me know, now." The man bellowed with an outrageous Southern drawl. My eyes flicked to his name tag; a shiny metal plate that simply read "Wellers."
 
- I hadn't quite come too when the sound of heavy breathing filtered into my ears, musty puffs of hot air blowing directly into my own mouth and then something began to drip from above me, falling onto my chin and when warm liquid hit the back of my throat my eyes sprung open, pulse beating against my chest in quick succession as I gagged and retched. Head nearly colliding with a hard mass directly above me.
+"Awe thanks. I'm good though, I come here a lot, kind of like a second home actually." I said, trying to creep away from the overly friendly greeter. He shook his head, the dangling threads of his combover swaying as he did.
 
-It was Natalie, only a few centimeters from my face, pupils the size of pinpricks, as they rolled around in the sockets. Mouth agape, head bobbing slowly forward and backward as if her neck couldn't bear the weight of it.  She had drool seeping down her chin and dripping into unkempt hair. 
+"Naw, I insist. Truth be told Ma'am I'm as bored as a toad sunbathing on a log. Need to keep busy in my old age, keeps the rickets from setting in." he said with a toothy grin.
 
-And then her lips started to move, frantically spewing discombobulated words
+"Ok. I guess, where do you guys keep the salt?" I asked, fumbling around in my jacket pocket to make sure I remembered my trusty taser.
 
-“It took my face, it took my face, it took my face” 
+"Awe Salt!" He boomed, eyes widening so far I thought they would rocket out of his skull. "Can't touch the stuff myself, back in the day I used to slather my meals in salt and butter though. Come on now little missy I'll show you where we keep the good stuff." he motioned me to follow as he trotted off, his feet clicking against the tiled floors.
 
-I was so taken aback, I didn't know what to do. Her hair dangled over me, sweat dripping from her brow, as she whispered the same thing over and over and over again. In a panic I reached out to grab her shoulders, shaking her harsher than I had intended “Stop!” 
+"ISIAH! Watch the front now you hear." He barked at the bored cashier, who regarded the eccentric geezer with contempt as he passed. I followed suit with pep in my step. Wellers wouldn't be the first creepy old man I followed around on a whim; he probably won't be the last knowing my luck.
 
-She gasped. Body flinging backwards, stumbling over drunken legs until falling flat against the floor. She stared at me, fear pooling in her eyes, shoulders hiked up at her neck “What the fuck!?” 
+The interior of the superstore was as formulaic as they come. To my left was a swath of clothing racks and posters of people beaming with joy wearing them. I wish I looked half as happy as they did wear skinny jeans. To my right was a surplus of bathing products and "self-care" stuff, your deodorants and perfumes. The good stuff was looked behind bars with at least three locks chained to them. Mr. Wellers was talking up a storm as he led me deeper into the store. Probably the highlight of an otherwise boring nightshift.
 
-Instantly feeling bad I shot from my seat, hands outstretched. 
+Soon enough we came to the spice rack aisle, and he presented it like a gameshow host.
 
-“Shit Nat, I’m sorry. You were freaki-” 
+"Now you'll find the good stuff tucked away in the back there. Lemme know if you need any help reaching it." he said. I mumbled a thank you and booked it down the aisle. He lingered at the front, looking up and down the vacant store like he was searching for something.
 
-“Don't touch me!” she yelled. There was a wild air about Nat now, her lips curled back past clenched teeth and her fingers… they were buried deep in her thighs, the jagged point of those nails sinking into the flesh that sat underneath dirtied fabric. 
+The spice aisle smelled like an Italian bakery, all the assorted chives and herbs mixing together, it smelled heavenly. As I looked for the salt, I heard a slight clutter at the very end. In my peripheral view, I saw a small shaker of crushed red pepper clatter to the ground. I also saw a hunched figure leering at me that quickly jumped out of view when I caught it.
 
-I nodded my head, opting to sit back in my seat. I think had I continued to tower over her she would have only continued to get more upset “okay, I’ll sit right here alright? Just please… youre hurting yourself nat” 
+I twirled around, only seeing the shaker roll aimlessly on the cool ground. Behind me Mr. Wellers still lurked, unaware of the unseen creeper. I tiptoed down the aisle, waiting for something to peak around either corner. I could hear it, thick musty respirations like all it could do was wheeze.
 
-We sat like that for a while. Natalie quietly rocking on the floor with her knees drawn up under her chin. I didn't know what to do to make this better. Promising anything to her felt like a lie. Instead I let a small smile play upon my lips, a light chuckle shortly following. 
+"Hello?" I called out. "Is someone there? You dropped your peppers." I tried to coax the watcher out. Finally, a grimy, dirt-stained hand cautiously grabbed the aisle corner. Its fingernails were long and yellow, looked like they hadn't been treated for decades. Its knuckles were cracked and caked with filth, I could see it wearing an ill-fitting fuzzy overcoat. Its arms were gangly, almost malnourished.
 
-“Do you remember… when we first got to know each other and thought it would be a great idea to hang out after work? Ended up chatting shit all night. We were dog tired the next day for that shift…” my voice petered off as she flicked her gaze up toward me. 
+"Have you seen my mommy?" It called out in this squeaky voice that sounded shrill and gruff at the same time. He stepped out into the aisle completely and I was taken back by the thing standing before me. he was tall and covered in dust and aged mold. He smelled like an old crypt, dripping with age and mildew. His clothing was tattered and covered in stains of varying color and stench. His midriff was exposed, his shirt about seven sized too small. His belly was pale and gauntly, like it had been hollowed out by hunger. His legs were skinny-fat, runner's legs if they were tainted by starvation and desperation. On his feet were a pair of *Rick and Morty* slippers, worn out from excessive overuse.
 
-“It was worth it though,” I added finally. 
+The strangest thing about the sickly stranger before me was his head. It was strictly vulpine in nature, matted fur clinging to his hide like he had mange. He had two twitchy ears, and his fur was a dirty vermilion hue. His eyes were hollow and porcelain like a doll, yet his mouth watered as he licked his chapped fox lips. His nose was dry and peeling.
 
-The quiet rocking came to a halt as she continued to stare. I didn't think I was going to get a response until a light scoff fell from her lips “It was your fault you know? Wouldn't shut up even after I told you to go to bed” 
+The shy fox man before me took a timid step forward. I wasn't all that shocked by the mutant before me, more so concerned by his ghastly frame.
 
-I laughed at that, leaning back in my chair as the tension began to dissipate. 
+"Have you seen my mommy, I lost her and I'm all alone." He asked again, his voice reminiscent of a scared little boy.
 
-“But yeah… it was worth it” 
+"I'm sorry I haven't seen her. What's your name." I whispered softly, trying to put the frightened being at ease. He cocked his head at me, like no one had ever asked him that before.
 
-It felt weird to think about that, how different our lives were now. As we sat shrouded in darkness and mystery. The frigid air dancing around us, nipping at our skin and encompassing our bones…. Leaving us hollow. 
+"My name is. . . John." He finally said. "What's yours?" He asked.
 
-I wanted her to know that despite all of this, I was still there for her. I wanted her to know… that even if this is where we die. I was thankful I got to spend it with someone I loved instead of alone in our own special corner of hell. 
+"I'm Abi Mae." I smiled at him. I reached out my hand; the fox boy eyed it nervously. "Why don't you come with me, we can ask Mr. Wellers for help." I offered. John flinched at Wellers' name, who I then heard from behind yell from the front.
 
-“I'm sorry” she whispered, a dainty hand coming up to flick away the tears that fell. I shook my head in quiet rebuttal. 
+"Didn't get lost or nutting now didya?" he hollered.
 
-“You don’t need to apologise to me… but Nat?” 
+"Yeah, I'm fine, thanks. But there's a-" I turned back to face John, but he had vanished. I could hear frantic scampering further down the walkways. Frustrated, I grabbed some salt and tossed it in a basket. Mr. Wellers eyed me with concern as I stomped back towards him. He looked past me, a nervous tweak in his pale blue eyes.
 
-“Hnm?” 
+"You didn't happen to uh-see something back there did you miss?" he asked all nonchalant. I shrugged my shoulders and pointed down the way, seeing no real reason to lie to the guy.
 
-“What’s going on with you? What’s happened in the time you've spent here…. You must notice it. Something is…. Different. About you” 
+"Yeah, there was this weird teen in a fox mask or something, he looked homeless. I think he's still wandering around if you report it or something, help him find his way." Wellers face went ghostly pale at the mention of John and pushed passed me as he examined the aisle. Seeing no trace of the fox-man he called out to the empty.
 
-Natalie flinched at the words, gaze flicking to the floor in an instant but she nodded. 
+"JOHN, you go back to the walls now. There's nothing for you out here, just leave it alone. You hear me boy?!" he screamed at nothing. he was met with a robust silence. He turned to me, beet red from screaming.
 
-“Something happened. I can’t… I can’t remember what but for a time I wasn't alone here. There was something watching… observing” she groaned in frustration “I can’t get my stupid brain to work properly. I know something happened to me in that fucking cardboard box but I just… I just don't remember what” 
+"I think it's best if I accompany you for the rest of your shopping, miss." he told me with a grave tone in his voice.
 
-I could see the way she started to wind herself up at the notion, so ready to belittle and demean. As if any of this was her fault. 
+"Why? He looks like a weirdo, but he seems harmless." Which even I thought sounded ridiculous as soon as it left my mouth. I'm getting too used to my life becoming a freakshow. Wellers shook his head sadly, like he had heard that excuse before.
 
-“It's okay, we’ve got each other now, yeah? Going forward we try and figure this shit out together” 
+"It's how he gets you, oh sure he seems like a lost little boy, but that dog can hunt."
 
-Natalie sighed, unfurling her tense shoulder to gaze down to the green smudge of light flickering in the distance “You actually think we’re getting out of this?” 
+"He's a fox." I corrected.
 
-I wanted to tell her yes, that I did think we stood some chance of getting back to a place that made sense but the words remained stuck in my throat. So I said nothing. Which Natalie took as answer enough. 
+"Whatever lil miss, I'm telling you I've been around the bend more times you can shake a switch at, that boy ain't right. He feeds off the ignorance of strangers." he warned. I sighed and checked my shopping list, just needed some snacks and a couple bad movies.
 
-She had been right, you know, how excruciating the pangs of hunger were, how I had begged for reprieve. Nat had sat through it with me as I writhed on the floor. A few days after we had run out of supplies. 
+"Fine. Lead the way then." I said dryly. The rest of my shopping spree was closely guarded by Mr. Wellers. he led me aisle to aisle, always checking to see if John was lying in wait in one of them. I didn't see the fox boy I could hear him scuttling above like a roach. Dust fell gently to the floor whenever he moved. Weller's kept shooting glares to the ceiling and muttering to himself. I'll admit the ceiling stalking was getting to me a bit, a shiver ran down my spine every time I heard movement up there.
 
-She reminded me that it wouldn't last forever, and that for whatever reason. We wouldn't die. It did little to comfort me but I appreciated it when I was able to comprehend the words. 
+Wellers was true to his word, and led me around till my basket was full of snacks and goodies for the month. Even managed to snag a jar of extra chunky peanut butter for my buddy Tammy. After getting some motor oil for my roommate Barb, all I had left was to browse the movie dept.
 
-It's been what feels like a few days now and the more I sit here driving myself insane the more I believe that we aren't dead but…. we're not ‘alive’ either. Somehow, someway we’re stuck in the inbetween. 
+It was slim pickings in the electronic section. Everything's all digital now, which breaks my heart because I love buying cheesy movies and vegging out in front of the TV and just rotting the ever-loving hell out of my brain. But there was practically nothing on the shelves, just consoles trapped behind lock and key. So, I was forced to sift through the bargain bin, disgusted by the amount of trashy realty shows there were.
 
-Wherever we are though, it clearly doesn't operate under the same logic or science as we have come to understand it. Which makes it incredibly hard to do almost anything without taking a huge risk in seeing what the outcome is. 
+Wellers was standing around anxiously, tapping his hefty foot on the ground.
 
-When I checked how long ago the last message I sent out was posted, it told me only two days. yet it feels like it’s been at least a handful for me. 
+"So-" I said, tossing a used copy of *Rock Of Love* season one aside, "-what's the deal with John anyway?" I asked him. "Is he a man, a fox, some twisted hybrid? What's his lore?" Wellers gave me a queer look as he cleared his throat.
 
-Me and Natalie have been trying to get into the security system for the building on this laptop, now that it's finally working semi normally, if a bit slow and janky. There had been a day or two of getting frustratingly nowhere but today was the day we finally got into it. 
+"You're taking a lot of this in stride miss. Commendable, if not odd. I don't rightly know exactly what John is." He admitted. "But I do know this, he was human once. Story goes back a few years, during them bogus lockdowns. We were new to shutting down early, it was hectic beating that training into the new hires. So certain duties got eh, ignored. Like mopping the bathrooms at the end of your shift-and making sure the story was empty 'fore we locked them doors." He said ominously.
 
-I had jumped slightly from my seat when one of many attempts at the password finally granted us access. Natalie chuckled breathlessly behind me “fuckin finally” she muttered as the screen loaded onto six mini POV’s, each depicting a camera in the building, I glanced toward Nat pointing at the option to look back on old footage. 
+"Cops came a few hours after we had closed, wailing junkie of a mutha in tow. Said she had left her little boy to wander while she did some "shopping" behind the store. I had to come in, was the only night shift worker they could reach. We searched high and low for little John. Didn't find a trace of him. They dragged the mother away screaming and chalked his disappearance up to a drug-related kidnapping." He grimaced.
 
-“You said, when I found you that you felt like you had been here for weeks but I remember you picking me up for work the day before I ended up here. So why don't we look at the cameras? It might give us ans-” 
+"Jesus." I muttered, still digging into the pile of movies.
 
-“Wait shhh look! The fucking cameras arent recording us, the lights are on for one and I can see Brandon!”  
+"Soon after things started to go missing in our inventory. A few pile of cloths here, some chocolate milk there. We never did find the culprit, but rumors circulated among the workers. Then the sightings came, of an almost skeletal looking fox-kid galloping up and down the store on all fours. His time stashed away seemed to-warp the poor boy. It drove him feral. Something started tearing into the meat freezer, and we knew he had developed a taste."
 
- I swivelled my head round in disbelief, only to find that she was right. Not only was she right but the feed was  live. 
+"Why didn't you call the cops, call anyone?" I said, barely looking up as he scoffed.
 
-There was a nervous energy radiating from Natalie, gripping my shoulder as she leaned in closer to the screen. 
+"Come on now, who'd believe such an outlandish thing. Hell, I barely believed it myself, till I saw him gnawing on Chad." he remarked. I shuddered at the thought, and a sealed copy of "*The Mean One*." caught my eye. I grabbed the DVD and was ready to leave when we heard a thunderous crash from down the way. It was coming from the toy section; I could see dozens of action figures clatters to the ground as something tore the aisle open. Wellers turned to me and urged me to stay put while he investigated.
 
-I watched as her eyes tracked the movement of our colleagues as they carried on about their day as if nothing was even wrong. Natalie’s face twisted in ire suddenly and I flicked my gaze back to the grainy footage in front of me. 
+He didn't have to tell me twice, so I stayed there holding my basket in one hand, and my little taser in the other. I looked around the abandoned aisle. Tucked away next to the loading bay was a wall of toys and pop culture memorabilia. I skipped over there, taking a quick glance at the slop, they were selling. Next to me were the loading bay doors. If you were to take a peek through the barely translucent windows you'd see nothing but pitch black.
 
-It was undeniable. Right there, in the middle of the bottom left screen was a familiar mop of brown hair, straightened and neat, so unlike the state we were both in. 
+The grey double doors then began to slowly creep open, making an audible creek as they did. I slowly backed away, rising my taser in hand. The inky black casted itself onto the ground. The doors clunked to the wall and stayed there.
 
-I narrowed my eyes, focusing on the back of her head. 
+"Hey Abi. Come here, I found my mommy." John's voice called out. His voice was still childlike in demeanor, but there was an undertone of malice to it.
 
-Next to me Natalie shuddered and in a watery voice she whispered “It… it stole my face” 
+"I'm good John. Glad ya found her though." I called back, trying to hide the fear dripping from my voice. John was silent in response, and I heard something clatter in the dark, like nails clicking against stone.
 
-So brazen in its movements the thing adorning my friend's skin came to a dead stop in the middle of the last aisle. We watched on with bated breath as its head craned to the side slowly.  
+"Awe come on Abi. Don't you want to meet my mom?" The voice whined, closer now to the wide-open double doors.
 
-Natalie pushed back from the screen in shock the moment its face twisted to stare directly into the camera with a contorted smile stretched across its features and waved. Bolts of icy fear shot down my spin. 
+"Not really." I answered earnestly. The thing in the dark grumbled in frustration, creeping closer to the light. It peeked its head out, maw first. I got a good look at his inflamed gums, a stinging crimson with curled, lemon coated teeth. Drool glistened in the light and dripped to the floor, a rabid puddle of hunger. His dry nose twitched, his unkempt whiskers swaying as they did.
 
-I closed the system immediately, air evading my lungs. 
+He was on all fours, steading himself on four limbs. His back was stretched upward, like he had a massive hump. I could see the nubs of his spine press against the skin has he lurched forward. He eyed me with beady coal black eyes, a deep wheeze escaping his maw.
 
-In her panic Natalie had retreated a few feet from me. 
+"Come here Abi. Come meet my Mommy." He leered, slowly approaching me. I knew it was coming, so right when he leapt at me, I jabbed my taser right into his neck. he yipped in pain as thousands of volts jolted though his system. He grabbed my arm and twisted; I winced back and dropped my faithful companion. It cluttered to the floor, John had barley been stunned by it. The failed assault had given me just a few seconds to turn heel and bolt.
 
-She stood there, body wrought with tremors,  her words punctured by stuttered gasps “No this c-can’t be happening… Why are we here Tyler!? What did we do!?” she shouted, motioning one shaky hand out to space around us “What did we do that was so bad we deserved this!?” 
+John gave chase, nipping at my feet as he galloped after me on all floors. I skittered on the polished limonin floors, desperately trying to escape this cannibalistic fiend. I turned a corner into the appliance section and grabbed the nearest display blender. I turned and tossed it at the crazed fox men. It slammed into his head with a thud, stumbling him slightly but he kept his pursuit. The chase continued as I tried everything to lose him. He was relentless.
 
-I didn't have the answers she wanted and she knew that. 
+I ended up corned near the customer service desk. So close, yet so far to freedom. I had taken a wrong turn into a locked door, and before I knew it the fox man was on me. I braced myself for the end but right before he could strike the killing blow I saw something long and wooden slam onto his head.
 
-“It fucking replaced me! Took my face! And it'll take yours too. Fuck!” 
+Mr. Wellers had come back. He was wielding a pure oak baseball bat; I looked on in awe as he brought it back down on John's head. Every blow made a satisfying *whump* as he battered the fox man. John whimpered as he endured hit after hit.
 
-The pain in her voice echoed across the room, bouncing from the walls and puncturing my soul. I found myself standing from my chair unsteadily, the sound of my own breath ringing in my ears. 
+"Come on now Johhny boy, take your blasted medicine. Mr. Wellers' orders now." he roared as he beat the creature into submission. I ran out of the corner, stunned at the heroic display. John was clutching his head, defending himself from the rapid blows. Wellers was starting to get a tad winded, wheezing like he had popped a lung. John took note and rushed him, staggering Mr. Wellers with a swipe. He lunged at him with his mighty jaws, Wellers shielded himself with the bat. John latched onto the bat, grasping both ends with his hands, foaming at the mouth as he tried to wrestle the bat out of Wellers' arms.
 
-I didn't know what to say, couldn’t bring myself to speak. The rising panic set deep within my lungs and squeezed until I could taste iron on my tongue. 
-She was right, we were put here to be forgotten. To be replaced. 
+The pair was locked in mortal combat, each one struggling to gain the upper hand. I caught Wellers attention as I stood there like a dope.
 
-We hadn't seen my doppelganger but that didn't mean he didn't exist. Maybe whatever it was had to learn about the people it took. Maybe that's why I was never able to shake the feeling of being watched. We had been reduced to lab rats scurrying around the dark in a maze of distortion. Tormented as we watched everyone move on with their lives. 
+"What-are ya doing standing around for?!" he grunted at me. "Get out of here while ya still can, save ya self miss." It took me a second to collect my senses, but I nodded and ran off, the last thing I heard was John snapping his jaws, and Mr. Wellers shouting, "Have a nice night now, and thank ya for shopping at Walmart." As the two collapsed onto each other, grunts and cries of pain giving way to whimpering silence.
 
-The dull ache of my fingers pressing crescent moon indents into flesh drew me back from the dark corners of my mind, I stared at Natalie. Unable to offer any kind of comfort as she paced the floor in front of me. 
+I was out of breath from sprinting and almost out the door when the sausage lipped cashier stopped me.
 
-“So that’s it!?” She spat, venom lacing her tone 
+"Hey, you need to pay for that." I gave him a death glare and threw a few crumpled bills at him as I ran out the door. I heard the sliding glass click behind me, the outside lights quickly shutting down. I got to the safety of the jeep and didn't stop hyperventilating for a good fifteen minutes. After I calmed down, I looked out the window, seeing an old man limping away from the shuttered doors. He saw me idling and gave me a little wave as he limped on home to greet another day.
 
-“whatever that thing is traps us here in some fucked up hellscape, takes over our lives and what? We just watch it happen until we go fucking insane?” 
+I haven't heard anything about John the twisted fox man since. I've been back to that Walmart a few times now, but always during the day. Still though, sometimes I feel like I'm being watched by beady eyes from above. So, if you're doing a little late-night shopping, I suggest you stay away from the superstore.
 
-I tried to formulate words, desperate to say something, anything! That would put Natalie at ease but I could feel myself choking on the devastation, it climbed up from the pit of my stomach and wound round my throat until I was choking on it. 
-
-I don't really remember much of what happened next, fear had overwrought my senses. I know, as I sit here recounting the event, that I was sure I was dying at that moment. So unbelievably sure, and if it weren't for Natalie snapping out of her frenzy when she noticed, I would have cracked my head on the desk when my legs gave out from under me. 
-
-She had caught me though, like she always did and I came too with gentle fingers combing through my hair. 
-
-She hummed quietly as I lay there, head in her lap. Her kind eyes gazed down at me as I came too. 
-
-“I'm so sorry… I keep forgetting that you're just as scared as I am. Just as lost” 
-
-She spoke softly, never ceasing her movements. 
-
-“I told you already, you don't owe me an apology Nat” 
-
-Unlike my usual cadence, my voice came out strained and hoarse 
-
-“Rest now”  she had said. 
-
-And I did. 
-
-What little hope I had left has been snuffed from me. I just want this to fucking end.
-
- [I’ve been locked inside this warehouse for 42 hours and everyone is missing. 
-(part 2)](https://www.reddit.com/r/nosleep/s/SSRPZPAFlJ)
-
-[I’ve been locked inside this warehouse for 42 hours and everyone is missing (part 4)](https://www.reddit.com/r/nosleep/s/EetBNrkK8Q)
+Lest you wind up in the fox den.
