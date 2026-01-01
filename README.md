@@ -1,422 +1,836 @@
-# The Dark Dungeon Panic
-I never intended to write a memoir.  There’s a lot of my life I would rather not remember.  And there’s far too much of it that nobody should know.  I wish I didn’t know it.  
+# Stillwater Farms [Part One]
+Have you ever been in love before?
 
-Early today I visited the doctor.  My wife, her name, isn’t important for this, she was with me, and we got the news.  Not a breaking news report, a confirmation of what we knew.  Cancer, brain cancer.  I think the doctor called it Glioblastoma.  GBM for short.  Maybe a year left.  We went to Applebee's afterward, and she drove me home.  
+Then you’d know that feeling, that ache that isn’t pain, but still finds its way into your ribs. That steady hum in your chest that tells you you’re exactly where you’re supposed to be.
 
-We didn’t really talk about it much.  At least today.  There will be time to talk.  Not much.  Not much before a thing in the brain eats away what I was, consuming me to a husk of fibers and bones and hair.  Time to make plans, to talk, to fill out paperwork and prepare for more paperwork.  To make calls.  To write emails.  But not today.
+I asked Elenor to marry me on a rainy Sunday morning in the kitchen of our apartment. The smell of coffee lingered in the air, mixed with the sound of Billie Holiday playing through a cheap Bluetooth speaker and the soft hiss of rain against the window.
 
-We just spent time together.
+She had just spilled egg yolk on her baggy pajama shirt and was half-singing, half-talking to herself as she wiped it with a wet cloth.
 
-We’ve been married, or maybe it’s better to say we would have been married 40 years this year.  My body may make it to the anniversary, but I probably won’t.  That’s OK.  Of those 40 years together, we’ve spent about 25 of them together.  She was a widow for nearly as long as she was a wife.
+“Oh Elenor’s a dumbass who spills shit all the time, If anybody loved her, it’d surely be a crime.”
 
-She went to bed but I decided to stay up.  Said I was going to help myself to a pop and write a letter to the kids.  Maybe they’ll read this.  Probably not, we raised them right, and they have kids of their own.  Businesses, families.  But not family business.  I made sure of that.
+“Arrest me then,” I said, cutting her off as I knelt behind her, the ring catching a glint of pale morning light.
 
-I don’t mind the terminal diagnosis.  I’ve lived enough.  I’ve lived too much.  If there is a Heaven, I’ll be going, I killed enough to get in.
+“Wow, you are so cor—” she started, but her voice caught halfway. Her hands flew to her mouth. The cloth hit the floor with a quiet smack.
 
-Let’s start from the beginning.  The beginning of my path that led me here, the night I learned too much, and became part of something that can never be unlearned.  I pray to the Heavenly Father my children don’t read this.
+“El,” I said softly. “I’ve loved you from the moment I met you.”
 
-\*\*\*
+“Oh my god, stop,” she said through her hands, eyes already glassy.
 
-In 1980 I had nearly finished my first semester at BYU.  Pre-Dental.  I’d met my future wife on the first day of class, English 102.  But that isn’t important really.  I had returned home though, because it was Thanksgiving and I was homesick, even though it was only 8 hours away.  My folks loved Thanksgiving, and as us kids aged out of the house and into school, or missions, or work or families of our own, we always came back.  I was the second youngest.  My next oldest brother was on a mission in Argentina or something, but otherwise we were all there.
+“These four years with you… they’ve meant everything to me. I don’t need anything bigger than this, just more of it. More of you.”
 
-Thanksgiving was the usual stuff, not worth talking about it.  
+I smiled, awkwardly, trying to keep my voice from breaking. “Will you marry me?”
 
-The next morning, sleeping off a turkey hangover on the couch, the phone woke me.
+“Yes, of course you idiot.”
 
-“Young Residence,” my mom said.  She was up and dressed already, beams of frosty sunlight highlighting her purple Mickey Mouse sweatshirt.
+I stood, swept her up, kissed her. She was laughing and crying, and I could taste salt and coffee and morning on her lips. When I slipped the ring on her finger, she looked at it like it was a small miracle.
 
-“Why yes!  Of course he’s here, let me get him!” she said, beckoning me to come to the phone.  
+“You could’ve at least waited until I cleaned my shirt,” she said, smiling through tears.
 
-She placed her hand over the receiver, “It’s your friend Clayton!”
+“Well, take it off then,” I said, grinning.
 
-I untangled myself from the blanket fort I’d buried myself in the night before and crossed the room.  I thanked her as she handed me the phone, she kissed her fingers and planted them on my forehead and hurried to the kitchen.
+She gasped and tried to wriggle away as I scooped her up and carried her toward the bedroom. She was laughing the whole way, that unguarded, open laugh that made me fall in love with her in the first place.
 
-“Hey welcome back,” the voice on the other end said.  It was Clayton.  He was my friend.  We’d known each other since 1st grade.
-
-“Thanks, I’m not back for long, just for the weekend, how you been?” I said.
-
-“Cool man!  Hey, you wanna hang out tonight?  A couple of us are gonna get together and do some stuff.”
-
-“What kind of stuff?”  
-
-“Nothing special, maybe some games!  Joshua just got Fantasy Forest, and it sounds pretty neato.”
-
-“Sure, pick me up at 6:00,” I said, and he agreed.  No sooner had I hung up the phone when my 2nd oldest sister walked in, retrieved the phone from the cradle and dialed.  She glared at me until I left the room.
-
-Clayton and I graduated from high school at the same time, but while I had been accepted into the pre-dental program, he had gone for a business degree at the local university, and got on part time at his dad’s bookstore.  We had talked a few times since I moved out of state, but the long-distance rates were too high and agreed it would be better to wait until I came back on breaks to catch up on the local gossip and tell lies to each other about what girls we were dating or truths on how hard classes were.
+That Sunday morning was the happiest I’ve ever been.
 
 \*\*\*
 
-At 5:55 a horn honked outside.  I hugged my mom and dad and waved at my brothers and sisters who had gathered to watch football in the family room and left.
+Later, lying together in the pale after-light, Elenor rested her hand against my chest, tracing the lines of my collarbone with her finger.
 
-Parked on the curb was Clayton, looking like I’d last saw him in September, driving the same pear yellow 1975 AMC Pacer.  I got in the passenger seat and before I could even buckle in, he gunned the engine and we were off.  Tearing through the suburbs laughing and joking and showing and telling.  
+“I have to tell everyone,” she said suddenly, sitting up and grabbing her phone from the nightstand.
 
-“Where we going anyway?” I asked.
+She dialed her mom first, sitting on the edge of the bed as she talked. I just watched her, the way her hair caught the light, the way her voice broke between laughter and tears.
 
-“You know Morris?” he replied.
+I reached over and dragged my fingers down her back in little circles. I could feel her heartbeat through the thin cotton of her shirt.
 
-“Moe?  Yeah, I used to ride the bus with him.  He has to be what?  27 now?  He's still playing board games?”
+“Who the hell should I call?” I thought to myself as El giggled in the background.
 
-“You know it, but he’s hosting a party, and has a new game he wanted us to try.”
+At that time, I’d lived in the city for just over five years. I moved from my small town for a job fresh out of college. You’d think five years is long enough to make some friends, but the city had proved to be nothing but isolating. The only person I really talked to was my cubicle neighbor, Brian.
 
-Moe was an odd kid, I knew that when I was an actual kid and he was a teenager.  He was always telling tales about monsters and elves and listening to Led Zeppelin records.  He wasn’t in our church, but he was a pretty nice guy, just kind of weird.
+That was, of course, before I met Elenor.
 
-“What game?
+We met at a bar I didn’t even want to be at. My coworkers had dragged me there for “team bonding” — a bunch of guys in ill-fitting polos drinking cheap beer and complaining about their “bitch wives.”
 
-“It’s a new one.  It’s called ‘Dungeons and Dragons.”
+I was nursing a Jack and Coke that had long since gone flat when she walked in: the girl in the yellow sundress with chipped nail polish and a messy bun that somehow looked intentional.
+
+She looked like the kind of person who could make a stranger feel at home, and I think that’s exactly what she did to me.
+
+I remember Brian catching me staring. He nudged me, reeking of whiskey, and said, “Go talk to her, man.”
+
+“Nah,” I muttered. “What would I even say?”
+
+“You tell her your name, give her the eyes, conversation’ll make itself. Trust me.”
+
+Before I could argue, he grabbed my wallet and chucked it toward the bar—it landed right at her feet.
+
+“Go fetch, buddy,” he said, grinning like a fool.
+
+I should’ve been furious, but instead I just… went.
+
+“Hey, sorry… my friend’s an idiot,” I said, crouching to pick it up.
+
+She smirked. “I can see that.”
+
+“I swear I don’t usually make my entrances like this.”
+
+“Shame,” she said, tilting her head. “It’s a bold move.”
+
+I smiled. “Worked though, didn’t it?”
+
+She smiled back, eyes glinting. “Guess it did.”
+
+“So,” I said, still half-smiling, “what’s your name?”
+
+“Elenor.”
+
+By the end of the night we were the last two people in the bar, talking about everything from favourite movies to our deepest fears.
+
+After that, I started to actually have a social life. Her friends became my friends, her world absorbed mine. But when I tried to think of someone who was mine to call with the good news, no one came to mind.
+
+I scrolled through my contacts and landed on one name I hadn’t seen in years.
+
+Nick. My brother.
+
+I stared at it for a while, thumb hovering. Then I hit “call.”
+
+The call rang four times before he picked up.
+
+“Holy shit,” Nick said, his voice crackling through the speaker. “No way. The city boy lives.”
+
+I smiled. “Hey, man.”
+
+“Five years, huh? I thought you got abducted or something.”
+
+“Something like that,” I said. “Work’s been... busy.”
+
+“Bullshit. You just hate small talk.”
+
+He wasn’t wrong. I smiled despite myself. “Fair point.”
+
+There was a pause—the kind that sits between two people who used to talk without thinking and now have to remember how.
+
+“So what’s up, Al?” he asked finally. “Not that I’m not honored by your once-a-decade phone call.”
+
+“I’m engaged,” I said, before I could chicken out.
+
+The silence lasted just long enough for me to think the call dropped. Then:
+
+“No shit.”
+
+“Yeah. Her name’s Elenor.”
+
+“Elenor,” he repeated, drawing out the vowels. “Damn, Al. You actually did it. You found someone who can put up with you.”
+
+“Barely,” I said. “She still thinks I’m funny, though. I’m not gonna question it.”
+
+He laughed, that deep, full laugh that sounded exactly the same as when we were kids.
+
+“Damn. Mom would’ve lost her mind.”
+
+I hesitated before answering. “Yeah. Probably.”
+
+He didn’t push it. We hadn’t talked about our parents in years, and the silence between that topic was a kind of unspoken agreement.
+
+“So what’s she like?” he asked, shifting the weight of the conversation.
+
+I leaned back on the couch, looking over at El in the kitchen. She was still on her phone, laughing.
+
+“She’s... the best thing that’s ever happened to me. Smart, funny, way too good for me.”
+
+“Good,” he said simply, and I could hear the warmth in it. “You deserve that.”
+
+I leaned back into the couch. For a moment I just listened to his breathing on the other end of the line. It was strange how quickly things between us started to feel easy again, like muscle memory you didn’t know you still had.
+
+“What about you?” I asked. “What’ve you been up to?”
+
+He let out a short laugh. “Ah, you know. Working construction mostly. Still in town. Still driving Dad’s old truck.”
+
+“Does it still run?”
+
+“Barely,” he said. “But it’s got character. So do I.”
+
+I smiled. “Same old Nick.”
+
+“Pretty much,” he said. “Although, there’s this girl. Hailey.”
+
+“Hailey?” I repeated, sitting up a little. “Like, Hailey from high school? Blonde hair, loud laugh, used to date Jared *\[redacted\]*?”
+
+“The one and only.”
+
+“No way,” I said, grinning. “You’re dating Hailey *\[redacted\]*?”
+
+“Yeah. Wild, right? Ran into her at the grocery store a couple months back. One thing led to another, now she’s got me eating salads and doing yoga.”
+
+“Oh no,” I said. “She’s turned you into a citizen.”
+
+“Shut up,” he laughed. “She’s good for me. We’re still figuring stuff out, but she’s... solid. Different.”
+
+“That’s awesome, man,” I said. “Seriously.”
+
+“Yeah, well, she’s got all these ideas about, like, bettering ourselves. We’re actually supposed to go to some couples retreat thing next weekend.” He paused, clearly amused with himself. “She got this pamphlet from some Amish-looking lady outside a farmer’s market. Says it’s this digital detox, back-to-basics kind of place.”
+
+“That sounds... sketchy,” I said, laughing. “You sure she didn’t recruit you into a cult?”
+
+“Hey, I thought the same thing,” he said. “But Hailey’s all in. Thinks it’ll be good for us. Get away from the world for a few days, clear our heads. Something about ‘reconnecting with traditional values.’ Whatever that means.”
+
+“Wow,” I said. “That’s a sentence I never thought I’d hear from you.”
+
+“Right? But apparently there’s hiking, home-cooked meals, farm animals... She keeps calling it Stillwater Farms.”
+
+“Stillwater Farms,” I repeated. “That sounds like either a retirement community or a brand of bottled water.”
+
+Nick laughed. “Yeah, I know. I told her it sounds like a horror movie. She didn’t find that as funny as I did.”
+
+“She wouldn’t,” I said, smiling. “Hailey always took things too seriously.”
+
+“Yeah, well,” he said, “she’s excited. And honestly, it might be good for us. Things have been... a little rocky lately.”
+
+I heard the honesty there, tucked between the humor. He tried to gloss over it. “Anyway, I was thinking, you and your lady should come. Make it a double thing. She gets her couples therapy, I get to hang with my brother again. Win-win.”
+
+I laughed. “You’re inviting me to a couples retreat that you know practically nothing about?”
+
+“Exactly,” he said. “If it’s a disaster, at least I’ll have backup.”
+
+“I don’t know, man. A weekend in the middle of nowhere with you and Hailey? Sounds like a trap.”
+
+“You’re scared I’ll outshine you.”
+
+“Yeah,” I said. “That’s definitely it.”
+
+He chuckled. “Come on, Al. I’d love to meet Elenor. It’s been forever. We’ll grab a couple cabins, get drunk on organic wine or goat’s milk or whatever they’re serving.”
+
+I hesitated, glancing toward the kitchen where Elenor’s soft voice still murmured over the phone. “Yeah,” I said finally. “That actually sounds... nice.”
+
+“You serious?” he said. “Hell yeah! I’ll tell Hailey she gets her couples retreat after all. I’ll text you the details.”
+
+“Alright,” I said, smiling. “It’ll be good to see you, Nick.”
+
+“You too, Al.” His tone softened, just for a second. “Feels good hearing your voice again.”
+
+“Yeah,” I said quietly. “You too, man.”
+
+When the call ended, I sat there for a while, listening to the rain fade against the window.
+
+Elenor walked back into the room, phone in hand, glowing from the conversation. “Who was that?”
+
+“My brother,” I said. “He wants us to go away with him and his girlfriend next weekend. Some couples retreat thing.”
+
+“Really?” she said. “What kind of retreat?”
+
+“Stillwater Farms,” I said. “Apparently it’s all about... reconnecting.”
+
+She smiled. “That doesn’t sound so bad.”
+
+“Yeah,” I said. “Guess not.”
+
+But as I looked back at my phone with the buzz of a text from Nick, the words *Stillwater Farms* sat there on the screen like they were waiting for something.
+
+***— Day 1 —***
+
+We left the city on a Friday morning that couldn’t make up its mind about the weather. The kind of gray that felt temporary, like the sky was holding its breath.
+
+Elenor packed snacks, playlists, and enough optimism to power the car. I packed one duffel bag and a quiet knot in my stomach I couldn’t quite name.
+
+Nick had texted me the directions the night before; not an address, just a pin dropped in the middle of nowhere, with a message that said:
+
+*Follow the road till it ends. They said they’ll meet us there.*
+
+Elenor glanced at it while I was driving. “That’s not... weird at all.”
+
+“Yeah,” I said. “Apparently we’re being met by our spirit guide or something.”
+
+She laughed, kicking her bare feet up on the dash. The smell of coconut lotion filled the car.
+
+“You think your brother’s nervous?”
+
+“About what?”
+
+“Meeting me. You said you guys haven’t seen each other in forever.”
+
+I thought about that for a second. “He’ll probably pretend he’s not. That’s kind of his thing.”
+
+Somewhere around noon, the city noise had completely dropped out. No hum of traffic, no skyline. Just trees, thick and patient, standing in rows that got taller and older the farther we went.
+
+By the time we reached the end of the pavement, it had turned to gravel, and the air had changed, thicker somehow, smelling faintly of wet hay and cedar.
+
+Nick’s truck was waiting just ahead, parked crooked at the edge of the road. He leaned against the hood, arms crossed, that same cocky smirk plastered across his face.
+
+Elenor nudged me. “He looks exactly how I pictured him.”
+
+“How’s that?”
+
+“Like trouble that never fully grew up.”
+
+She wasn’t wrong.
+
+Hailey was there too, perched on the passenger side, arms crossed, blonde hair tied back. She looked just as she had in high school.
+
+When Nick saw us pull up, he straightened and spread his arms like we’d just driven into a reunion movie.
+
+“Look at this city slicker!”
+
+I stepped out. For a second we just stared at each other; both of us realizing how long five years actually was. Then he closed the distance and pulled me into a hug.
+
+It wasn’t one of those polite hugs people give out of obligation. It was solid, unspoken, real. I hadn’t realized how much I’d missed him, how much I’d loved him, until that moment.
+
+When he finally let go, he looked me over and grinned. “You’ve gotten soft.”
+
+“And you’ve gotten older.”
+
+He grinned. “You’re damn right.”
+
+Elenor came around the car, and I saw Nick’s posture shift immediately. He smiled wider—proud.
+
+“You must be the one who said yes to this idiot.”
+
+“That’s me,” she said, shaking his hand. “You must be the brother who threw him into walls as a kid.”
+
+Nick laughed. “You’ve done your homework.”
+
+Hailey joined us, smiling like someone trying to prove a point. “Alex,” she said.
+
+It was the first time I’d heard her say my name since high school.
+
+“Long time.”
+
+“Yeah,” I said. “You look the same.”
+
+She rolled her eyes. “I’ll take it.”
+
+Nick clapped his hands together. “Alright, lovebirds. Ready for the middle of nowhere?”
+
+“Lead the way,” I said.
+
+We followed Nick’s truck down a dirt road, dust curling in the air like pale smoke. The road narrowed into a single lane bordered by tall oaks and maples, their branches stitching together above us until the sunlight broke into trembling gold patches across the hood.
+
+Elenor rolled down her window and leaned her arm out. “Smells different out here,” she said.
+
+“Like dirt?”
+
+“Like earth,” she corrected, smiling. “Real earth. Not the kind that comes in a bag.”
+
+Ten minutes later, the GPS lost signal completely. The map froze mid-scroll, our blue dot hovering over a blank patch of green.
+
+Then, without warning, the road ended. It didn’t curve or split, it just stopped.
+
+Nick’s truck slowed to a crawl, brake lights glowing through the settling dust. He stepped out, squinting at the treeline like he was trying to find something.
+
+That’s when I saw her.
+
+A woman stood at the edge of the trees, half-lit by the sun breaking through the clouds. Early fifties, maybe. Gray hair tied in a neat braid, a simple linen dress the color of wet clay. Her face was lined but gentle—the kind of face you’d trust without thinking about it.
+
+She looked like she’d been waiting.
+
+Nick waved like this was perfectly normal. “You must be Mae!”
+
+Her smile warmed easily, revealing faint dimples. “You must be Nicholas,” she said, her voice smooth and steady, touched with a southern accent that made you feel at home. “We were starting to think the road swallowed you up.”
+
+Nick laughed. “Wouldn’t be the first time. This my brother, Alex, and his fiancée, Elenor. And you’ve met Hailey before.”
+
+Mae turned to us, her eyes kind. “Welcome. You made good time.”
+
+Elenor smiled, brushing a strand of hair from her face. “We weren’t sure we were in the right place. The road just kind of... ends.”
+
+Mae chuckled softly. “The maps don’t quite know what to do with us. The farm’s further in, and the roads don’t show up online. We use this spot as a meeting place, easier for newcomers.”
+
+She gestured to the old pickup idling nearby. A man sat in the driver’s seat, tall and broad-shouldered, a sun-faded hat shading his face. He gave a polite nod but didn’t get out.
+
+“That there is Harlan,” Mae said. “He’ll take the lead. It’s not far.”
+
+There was something so effortlessly sure about her: a composure that made you feel foolish for being uncertain. She didn’t have the hollow cheer of a tour guide or the stiffness of someone running a business. She just seemed… steady.
+
+Elenor leaned closer to me. “She’s sweet,” she whispered.
+
+“Yeah,” I said, my voice lower than I meant it to be.
+
+Mae smiled again, meeting my eyes like she’d heard me anyway.
+
+“Shall we?”
+
+Nick clapped me on the back. “Adventure time, little brother.”
+
+I forced a grin. “Yeah. Let’s do it.”
+
+El and I climbed into the bed of Nick’s truck; there was no way my Civic would’ve made it down the muddy trail ahead.
+
+The smell of wet soil and exhaust filled the air. Light filtered through branches in long, molten beams that never seemed to move, frozen midair like dust caught in amber.
+
+Elenor rested her head against my shoulder, swaying gently as the truck rolled through the mud.
+
+As the trees closed in, I glanced back at my car parked at the edge of the lane. The windshield caught the sunlight, flashing once before the trees swallowed it completely.
+
+The trees thinned, and then, suddenly, the land opened up.
 
 \*\*\*
 
-Moe’s house was in a newer part of town.  Built on higher ground, yards against a canal, their view of fields and railroad tracks and the lights of the repair shops and car dealerships about a mile away.  Short trees decorated the neighborhood, leaves discarded over the previous weeks and raked or mulched back into lawns a dusting of snow lurked in the shadows.  
+Stillwater Farms spread out before us, quiet and sun-soaked. The white farmhouse sat in the center like it had always been there, its paint softened by decades of rain. A rust-red barn leaned nearby, half swallowed in shadow. Wooden fences traced the hills in looping, uneven lines.
 
-Kids in winter sweaters threw a football among themselves, the one in possession of the ball making a time out sign, as they moved to allow us to pass down the street.  I waved, and they returned the gesture.  A group of men gathered around a front porch barbeque grill, they waved as we passed.  An old farmer, denim pants, shirt, jacket, a baseball cap atop his white hair waved as we entered an intersection.
+When Nick cut the truck’s engine, the stillness rose to meet us—not silence exactly, but a hush filled with the small, living sounds of the place: insects clicking in the grass, a pulley creaking on a line, the faint bleat of a goat far off.
 
-“Oh heck!” Clayton yelled, as he veered the wheel.
+Harlan climbed out of their truck first. Up close, he looked even bigger, shoulders squared, face unreadable beneath the brim of his faded baseball hat. He gave Mae a short nod, then turned toward the barn. The weight of him seemed to pull the air along as he walked away.
 
-“What the heck are you doin?” I said.
+On the porch, a man sat with his hat in his lap, eyes on us the whole time. He didn’t move until we were close enough to hear the porch boards breathe under our feet. Then he stood, and the simple act of it made the air feel more serious.
 
-“It’s a bee!  It came through the window!”
+“You must be the travelers Mae told me about,” he said. His voice was low and even—the kind that didn’t need to be loud to be heard. “The road’s a teacher, isn’t it? Always finds a way to humble you.”
 
-“Well get it out!”
+“This is Abel,” Mae said, touching his arm with a familiarity that read like gravity. “My husband.”
 
-The car lurched to a halt, the door open before coming to a stop.  The engine died.
+Abel’s gaze moved over us in no rush: Nick first, then Hailey, then me, then El. Not weighing, not judging. Seeing.
 
-“Get out of here you little creature!” Clayton yelled at the bee. 
+“You’re welcome here,” he said. “All who come in good faith are.”
 
-It wasn’t a bee.  It was a yellow jacket, lazily walking up the half-rolled window, sluggish with the cold, uncertain or uncaring of its trek.
+Hailey beamed. “It’s so beautiful. This is exactly what I pictured.”
 
-“Just shoo it out,” I said.  Clayton for his part fanned the door open and closed, hoping perhaps to gather enough lift to eject the insect, or perhaps let the car take flight.
+“Pictures are flatter than places,” Abel said, one corner of his mouth tipping. “Places insist.”
 
-I looked around for something to push the little beast away.  Clayton kept an immaculate interior, but I found a roll of paper towels in the back seat.  Exiting the vehicle I took the roll, walked around, and pressed it against the window.  The yellow jacket climbed onto paper, and I carefully walked to nearby bushes, depositing the little thing to a naked bush on the side of the road.
+Mae’s smile widened at that, as if he’d said a private joke out loud. “Before supper, a little orientation,” she said. “Then a short walk, if you’ve got the legs for it.”
 
-“Problem?”  A voice from the other side of the intersection, the old farmer in denim.
+We followed her inside for the “little orientation.” The entry smelled like cedar, heat, and something baking. Along the far wall stood a small table: plain wood, and a wicker basket in the center.
 
-“Yellow jacket,” I said.
+“We keep Stillwater simple,” Mae said. “This is a retreat from noise—so we leave the noise behind.”
 
-“Ah.  They’re harmless ‘nough, thank you for not killing it.  The cold’ll do it natural,” he said with an uncertain rhythm.  
+She tapped the basket lightly. “Phones, watches, anything electric. They’ll be safe here until you head home.”
 
-I waved and smiled and got back into the Pacer.  Clayton restarted the engine and drove.
+Nick shot me a look like *be cool*. He dropped his phone in first. Hailey followed. El squeezed my hand and set hers down gently. Mine went in last.
 
-“Sorry, I get freaked out by those things, and I’m kinda like deathly allergic,” he said.
+Mae lifted the basket. “Safe as houses,” she said, and disappeared through a side door. When she returned, the basket was empty. “Now. Water.”
 
-“It’s OK, nobody’s on the road.  Seems late in the year for one of those things.
+The way she said it made me pay attention.
 
-“I wonder if I have a nest in here somewhere.”
+Abel nodded toward the kitchen window. “We keep a separate tank out back for guests,” he said. “Good, clean rainwater. If you need a drink, a wash, anything, use that. The well is for the house.”
 
-Clayton turned the heater off.  Silence for the remainder of the drive, save for the whine of the AMC motor, our ears tuned, waiting for buzzing.  
+Hailey tilted her head. “Is the well contaminated?”
+
+“The well’s old,” Abel said. “Minerals in it can make newcomers mighty sick. Your bodies aren’t used to it.” His tone was ordinary, practical, almost apologetic. “Use the tank and you’ll be right as rain.”
+
+I glanced past him. Through the window, I could see a tall, black-rimmed tank set off from the house, a spigot glinting in the light.
+
+“Shall we stretch our legs?” Mae asked.
 
 \*\*\*
 
-Moe's house sat non-descript in the middle of a block of houses.  All different, yet feeling the same in the manner of new construction.  A garage on the right hand side, yellow paint with an orange trim.  The windows were curtained, or blinds drew.  A single evergreen tree stood about 10 feet tall in the middle of the yard, surrounded by mulch and stonework in a circular pattern.  Two cars occupying the driveway, and two more were parked on the street in front of the house.
+We stepped back out into the late afternoon that felt like it had stalled five minutes before sunset. Abel walked beside us, hat in hand; Mae set the pace without seeming to.
 
-“Who else is here?”
+We crossed the yard to a kitchen garden laid out in neat squares: herbs, lettuces, rows of tomatoes strung on twine. A woman straightened up from the dirt as we approached, wiping her hands on a flour-sack towel. Thirty-five by the look of her, hair tied back, sleeves rolled to the elbow. Her forearms were strong in a way you only get from work.
 
-“I don’t know, I don’t recognize the cars.”
+“This is Ruth,” Mae said. “Keeps us honest.”
 
-The cars were newer, German imports.  A dusting of snow covered their windshields. We parked behind a new BMW, no license plate.
+Ruth offered each of us a firm handshake, friendly but efficient. “If you feel like earning your supper, I’ll put you to real work by morning,” she said, not unkind. “We’ll need an early start. Rain took the soil from the east row.”
 
-“Who all lives here?” I asked.
+Nick grinned. “I can dig.”
 
-“I don’t really know,” Clayton kept the engine running.
+“Good,” Ruth said. “You’ve got the arms for it.”
 
-“Have you been here before?” 
+Hailey’s smile stiffened, a quick flash of something territorial crossing her face before she looked away.
 
-“No, I haven’t seen Moe since middle school.”
+Ruth moved on before it turned awkward, humming a tune under her breath that I couldn’t place, something old and crooked, like a lullaby remembered halfway.
 
-Maybe it was the yellow jacket incident, but the mood was off.
+From there, Mae led us along a fence line toward the barn. A man about my age stood at a sagging gate, coaxing a hinge back into shape with a handful of nails and a hammer. A wheat stem parked at the corner of his mouth, and an easy grin on his face.
 
-“We could go somewhere else,”
+“Jonah,” Mae said. “If it’s broken, he’ll fix it. If it’s not broken, he’ll fix it anyway.”
 
-“Nah, it’s OK.” 
+Jonah stuck out a hand to Nick first, then me. His palm was rough but warm. “Ah, a city boy,” he added, friendly. “We’ve got a rehab program for soft hands.”
 
-“Let’s just go in, and we can leave early if it's lame.” 
+Nick laughed. “I think he prefers to supervise.”
 
-We nodded at each other; Clayton cut the engine.
+“Supervisors get blisters too,” Jonah said. “Ruth sees to it.”
 
-A cardboard cutout of a pilgrim hung on the door, along with several cutouts of turkey hands.  We knocked.  Waited.  Then knocked again.
+From the barn loft, a skinny young man whistled and waved before vanishing again.
 
-The door opened and the throbbing rumble of heavy metal music hit us in the face like a gust of wind.  A guy with buzzed hair and a ratty goatee sitting atop a polo shirt greeted us. Without the mustache, he’d have no expression.
+“That’ll be Silas,” Jonah said, amused. “Don’t feed him after dark.”
 
-“Game?” he said, heavy accent watered down by the music.
+“Silas,” I repeated.
 
-Clayton and I looked at each other and nodded in unison.
+“You’ll know him when you know him,” Jonah said.
 
-“Is uh, Moe here?” Clayton asked, nearly shouting over the sound of the music.
+Mae and Abel led us on toward the animal pens. Chickens scratched in the dirt near a small shed. A girl sat among them, legs crossed, braiding flowers into her hair. For a moment I thought she was much younger than she was supposed to be, thirteen, maybe fourteen at most. Barefoot, dress hem torn.
 
-“Da.  Come,” he moved aside and we stepped in.  The house was split level, my eyes naturally cast themselves down and to the left, where a short stairwell led to a darkened lower section.  To the right and up, red light bathed the ceiling and walls.
+When she noticed us, she scrambled up and dusted off her knees. “You’re new,” she said.
 
-“Up,” the man said, and we climbed, Clayton in front, the man following close behind.  Uncomfortably close.
+Elenor smiled. “We are.”
 
-Clayton paused at the top of the stairs, moving aside just enough for me to stand beside him.  The man pushed past us without a word, and walked to a closed door, opened it, stepped inside, and closed it again.
+The girl’s eyes darted to Elenor’s hand, to the ring there. “Pretty,” she whispered, then paused, thoughtful. “Do you like lemon or blackberry better?”
 
-The room was off.  On one side was a couch, next to that a chair.  An empty, fallow fireplace wedged against one wall of the room, and on the other side several bottles of clear liquid sat atop a custom built bar.  A couple of bare red lights glowed from shadeless lamps in the center of the room, dyeing a stain marred cream carpet the color of watered wine.
+“For what?” Elenor asked, laughing.
 
-“This is weird,” I said.
+“Just better.”
 
-“Yeah, maybe we should just-”
+“Blackberry.”
 
-An opening door cut Clayton off.  A shirtless man, thick faced and heavily muscled stepped out, tattoos adorning nearly every inch of his exposed skin, save for his face, hands, and neck.  He eyed us and walked to the bar, taking a bottle of the clear liquid and downing a glug.
+The girl nodded like she’d been given an answer to a riddle, and hurried off, bare heels flashing in the dust.
 
-“Ahoy-hoy!”
+Abel watched her go, something like pride softening his features. “And that’s Clara,” he said. “That girl collects sunbeams like they’re chores.”
 
-Another man clad in a tall pointy hat covered in light-colored moons and stars stood in the doorway.
+We passed the tank Abel had mentioned, black-ribbed, cool in the shadow of the house. A tin ladle hung from a nail beneath the spigot. Beside it, a hand-lettered sign: GUEST WATER.
 
-“Steve, as an act of hospitality, do reduce the volume of the tunes, our awaited visitants have arrived!  And we have business!”
+Past the tank, the land rolled down toward a line of trees that gathered thick and dark at the edge of a field. From somewhere inside them, you could hear water, not loud, not obvious, just the steady hush of it, like someone whispering in the next room.
 
-The man at the bar glugged the bottle again, bent down and the music died.  Ringing ears filling the space it left.
+Elenor cocked her head. “Do you hear that?”
 
-“Moe?”  I asked.  It had been a while since I had seen him in middle school, but he was different now.  Always kind of a bigger kid in school, but he was easily 400 pounds.  His legs packed like Pillsbury biscuit dough into a rotting pair of sweatpants.  An open bathrobe painted with stars and moons covered a 2112 t-shirt.  Patches of hair reached to one another desperate to form a beard, only succeeding under his jawline and in between his eyebrows.  Acne scars marred his jiggling face.
+“Wind in the leaves,” Abel said easily, though there wasn’t any wind. “Best to keep out of those woods. Curiosity’s a debt that doesn’t stop collecting once you owe it.”
 
-“I was once known by that moniker, but I am now known as-”
+Mae laid a hand on his arm, her voice soft but certain. “He’s right. Plenty of guests have come back from those woods with twisted ankles and bloodied shins. The ground turns mean out there, best to keep to the flat land where it’s kind.”
 
-“I get buckets,” the shirtless man interrupted.
+“Aye.” Abel agreed absently.
 
-“Indeed, please fetch the bucket, and inform the dowager of the arrivals!”
+I smiled like I believed them, but I could tell the warning wasn’t about the terrain.
 
-Steve, I guess the shirtless guy’s name was Steve, grasped the bottle and walked past us, his legs steady.  I turned to see him descend the stairs, catching a glimpse of something metal tucked into the back of his jeans.
+We looped back toward the house before the light could decide which way to fall. Just to the right of the main house stood a small guest cabin, two narrow bedrooms split by a short hall, with a shared washroom tucked behind it under a sloped awning.
 
-“Listen Moe, I don’t think we can stay for long,” Clayton said.  He hid it well, but I could detect nervousness in his voice.
+“This one’s for you two,” Mae said, pointing to the door on the left. “And the one down the hall is for your brother and Hailey.”
 
-“You, dear duo can stay long, and you may stay long!”  Moe said, shuffling his bulk to the chair.  “For yesterday as we gave thanks to this land, today we celebrate with a feast!”
+Elenor ran her fingers over an embroidered quilt. “It’s beautiful,” she said.
 
-Clomping from below.  Steve carrying a bucket in each hand, his exposed muscles straining against the combined force of gravity and contents.  We instinctively moved aside as he sloshed past.
+Mae nodded. “The hands that make things put love in them. That’s what lasts.”
 
-Steve set the buckets in the middle of the room and returned to the bar, depositing ice and water into a pitcher.  Moe breathed heavily, snorting through nasal passages blocked by internal fat.  I gently toed the side of Clayton’s shoe.
+Then she left us alone, her footsteps fading into the hall.
 
-“Yeah, I think we’ll be-” I was cut off.
+El wandered the small space, opening drawers, smiling at the little note on the bedside table: *Welcome, Alex & Elenor.*
 
-A door behind the bar opened.
+“This is so cute,” El said. “It’s like staying at a museum you can touch.”
 
-The room was bright white, a figure stood in the doorway.
+I stood at the window and watched Harlan cross the yard with a log slung over one shoulder. He carried it the way I’d carry a backpack: absent, unbothered. For a second, his eyes lifted and met mine through the glass. Not hostile. Not curious. Just a long, flat look with something old behind it. Then he went back to the work that was already finished in his mind.
 
-“Mi amore!” Moe said, straining to exit the chair.
+“I’m gonna find a washroom,” El said, squeezing my shoulder as she passed.
 
-The figure was a woman.  Her hair tangled and clumped.  She wore a slippers underneath stained sweatpants, a threadbare nightgown clung to her frail shoulders.  She stepped in the room as the red and white light mixed.  She was holding a lump of laundry in her left hand, close to her chest. 
+“Oh, alright, I’ll wait out front.”
 
-The laundry moved.
+I stepped outside. The air had grown heavier, the gold of it deep enough to taste. Abel stood at the edge of the porch, lighting a lantern, the match burning close to his fingers before he bothered to shake it out.
 
-…and cried?
+“It’s quiet here,” I said, walking up beside him.
 
-Was that a baby under a blanket?
+He watched the flame steady behind the glass. “Sometimes the things that change us are quieter than we imagine,” he said. “By the time you see them, they feel like they were always part of you.”
 
-“Ah, m’lady has endowed us with her exquisite resplendence!” Moe exclaimed, still seated.  He removed his pointy hat and bowed, mostly at the neck and shoulders, arching the hat with his arm in a graceless furrow at the woman.
+The lantern light flickered against his face, carving the lines deeper. From inside came Mae’s voice.
 
-“Oh my holiest of maidens!  We have prepared the humble guests in anticipation of your honorness!”
+“Supper,” she called.
 
-Moe creaked his chair, propelling himself upward, and waddled to the woman.  He took a knee before her, taking her free hand, and ceremonially kissed the top of it.  The baby under the blanket squirmed as he let go her hand.
+Abel hung the lantern on its hook and straightened. El, Nick, and Hailey stepped out from the guest cabin at the same time, drawn by the sound of a dinner bell.
 
-“Hark!  And allow me to introduce my exquisite inamorata!”  He was back on his feet, removing his hat and doffing it once again, first to us, then to her.
+Abel held the door open for all of us, that same patient calm still in his eyes.
 
-“Here is Clayton and Lucas, schoolyard chums of mine, lo but it seems a lifetime ago.”
+“Come eat,” he said. “You’ll need your strength for the morning.”
 
-“Nice to meet you,” Clayton said.  I waved.
+\*\*\*
 
-The woman paid us no mind.  Her sunken eyes staring straight ahead she shuffled toward the buckets.  The baby under the blanket in her arm squirmed and murmured, deeper than a baby’s voice should be.
+The dining room was long and low, wood-dark and humming with warmth. Lanterns lined the walls, their glass fogged from heat, their light folding everything in amber. The table dominated the room, one heavy plank of cedar that looked older than anyone sitting around it.
 
-Moe fell in behind her, his hand hovering just above the small of her back.
+Bowls steamed between us. Mae moved quietly, ladling stew with the slow confidence of repetition. “Don’t be shy,” she said, smiling. “The food tastes better when it disappears.”
 
-“Optimates!  It is with great pleasure you shall gormandize every sense that makes you human!  For tonight you will join in my ascension!  My level up, if you will!”
+Abel sat at the head of the table, posture upright but easy, like he’d been carved that way. Harlan sat near the door, shoulders filling his corner, silent as he had been since we’d arrived. Ruth and Jonah faced each other like a pair long used to working side by side. Silas lounged two seats down, tipping his chair on one leg.
 
-Moe reached into his robe pocket, his fist emerged shaking small before depositing it in the opposite hand.  He looked, smiled.  
+It was hard not to feel like we’d wandered into someone else’s rhythm—a pattern mid-beat.
 
-“I cast Stinking Cloud!”
+The family didn’t speak much at first. Only the sound of spoons scraping bowls, of Mae refilling plates before anyone could ask.
 
-This was getting too weird, the baby under the blanket kicked again, and Steve the shirtless guy scratched his stomach.  
+Mae broke the silence with a smile. “You’ve met most of us already, haven’t you?”
 
-“Moe, we’re gon–”
+Nick nodded, mouth full. “Think so.”
 
-The smell hit.  It had crept through the still air of the room, glacial.  It ground against my nose and crushed my eyes.  To this day I’ve never smelled anything so bad, so oppressive, so wrong.  A mix of packrat nest and spousal betrayal.  Of dead skunk and locker room menace.  The smell of the family dog ripping your newborn baby to shreds in front of you.  I fell to my knees and dry heaved.  My eyes watered.
+She gestured gently with her spoon. “Ruth runs the garden and keeps us all fed. Jonah fixes what time breaks. Silas… tries to help.”
 
-“Steve!  Bring forth the receptacles for our guests!” I heard Moe exclaim.  Somewhere in the distance.  Somewhere in an invisible vulgar fog.
+That earned a faint laugh from the others.
 
-My mouth watered, demanding to vomit.  I tried to swallow, but each dry spasm down my throat brought more of the evil air into my mouth.  Something grabbed my head.  Steve, my eyes barely registering the waistband of his jeans before he forced my head down.
+Silas grinned. “You’re just jealous I work smarter, not harder.”
 
-He must have slid the bucket in front of me.  He held my head above it.  
+“Smarter?” Ruth said. “Is that what you call hiding in the loft?”
 
-“Blevat.”
+“Observation deck,” he said. “Better view.”
 
-For a second I gazed inside the bucket.  Something organic.  Like ground hamburger floating in crude oil sprinkled with grass and topped by duckweed.  I closed my eyes as he forced my head closer to the bucket.  
+Jonah snorted. “Better excuse.”
 
-My stomach rebelled and I wretched.  The splashing, a sound of such revulsion I puked again.  I could hear Clayton beside me puking and splashing too.  God please don’t let this get on me.  
+Abel didn’t look up, but the corner of his mouth twitched.
 
-One more time I wretched.  Steve gathered my hair in his fist, pulled my head forward before quickly pushing me back.  I fell onto my backside, revulsed my pants and hands were touching this filthy floor.  Clayton fell beside me, wiping his mouth with his jacket sleeve.
+Even Mae chuckled softly, shaking her head. “You see what I live with.”
 
-I spit away from me onto the ground and drew a deep breath.  Bracing myself for more of the gaseous pudding.  But the air was clear.  Back to the smell of dirty carpet and wet paint and Steve’s vodka breath.
+Elenor smiled at that. “Feels like home already.”
 
-The woman, what was her name?  Stared at us, the baby squirming silently, still completely covered by the blanket.  Her face as expressive as a church statue.
+“Hopefully not too much,” Mae said gently. “The world out there’s a hard habit to break.”
 
-“Ah, stew of men!” Moe said. “My covenant to you my dear boon companions, is that this method of extraction is of greater preference to the alternatives!  Now please, rest!”
+Nick gestured toward me with his fork. “We’re the reason you’ve got two city folks at your table. Figured they could use a break from concrete.”
 
-Steve drug the pair buckets across the room, placing both in front of the woman, leaving a wet trail of parallel splashes in their wake.  His task complete he turned toward us, reaching into the back of his jeans, the object that had been tucked into his waistband was now in his hand.  
+Elenor smiled. “And smog. Don’t forget the smog.”
 
-A gun.
+Hailey grinned. “And rent.”
 
-“Sidet,” he spoke, the gun pointed at me, then at Clayton.  We planted our backsides on the dirty floor.  
+I laughed softly. “Yeah, mostly rent. City’ll charge you for air if you let it.”
 
-I glanced at Clayton, his eyes were narrow, drool around the corners of his mouth, his lips moving silently.  Prayer.  He was praying.  I joined him, tried to join him, but couldn’t remember the words.  
+Mae tilted her head. “And yet you stayed.”
 
-“I don’t want to die, please not like this,” was all my brain could muster.
+I thought about it. “Habit, I guess. You work so hard to afford a life, you forget to live it.”
 
-Moe reached into the pocket of his sweatpants, pulling out something with his meat sweaty fist.  He blew into his hand, shaking a few times, then holding his clenched fist gently to the mouth of the woman.  
+Abel raised his glass slightly. “Quiet’s not free either,” he said. “You just pay for it differently.”
 
-“Hark lady!  May the cataglottism of luck and skill transform stereo to mono!” he giggled a snort.  Her face didn’t move.  Had she even blinked?
+The fire popped. Nobody spoke for a moment.
 
-He shook his hand a few more times then dropped whatever was in his hands to the ground, some small object.  He knelt to inspect.  
+Then Mae’s voice softened. “Where’s Granddad tonight?”
 
-“17!” he yelled, falling to both knees, “17! 17!   Excelsior!”
+Abel didn’t look up from his plate. “In his room,” he said. “Said he needed to listen awhile.”
 
-The woman stared ahead, but the baby began to stir beneath the blanket.  First from where its feet should be, squirming further up the body toward the woman’s shoulder.  The woman placed one sock covered foot into a bucket directly in front of her, then the other foot into the next bucket.  The overfilled slop bubbling onto the carpet, wicking up her pant legs.
+Jonah nodded, swallowing. “The ground’s been stirring again.”
 
-Squirms turned to thrashes under the blanket.  
+Mae nodded like that made sense. It didn’t.
 
-“Heavenly Father, Jesus, please...” I said, grasping at the carpet to push myself further from this.  Clayton followed, his shoulder touching mine as we backed against the wall.
+The door creaked open behind us.
 
-“What’s wrong with that baby?” he asked.
+A girl stepped in, barefoot, dress smudged with dirt. Her braid hung loose, and there were dark stains beneath her fingernails—not wet, but not old either.
 
-Holes appeared in the blanket covering the baby.  Something was ripping…or gnawing…it away from the inside.
+Clara.
 
-“That’s not a baby…” I said.
+She kept her eyes down, slipping into her chair like she’d been there all along. Mae placed a bowl in front of her without a word.
 
-With a showman’s flourish, Moe tore away her blanket and frayed nightgown.  
+Silas leaned forward, resting his elbows on the table. “You wash up with mud now, kid?”
 
-“Ta-da!” he yelled, holding his arms to present the sight of the woman.
+Clara ignored him.
 
-It wasn’t a baby.  What should have been her right arm had been melded, welded, to her torso, melted callouses of skin and tumors, a stomach covered in patchwork scars and hair.  She had no right arm, only a mass of meat, jaundiced yellow, covered in dozens of black holes.  No, her entire body was covered in holes.  
+He grinned wider. “Guess that’s one way to blend in with the pigs.”
 
-A string of fiber appeared from one hole, then another, and another, like black sinew, tendons, strings of revulsion.  The fibers coalesced in front of the woman in a tangle of writhing, slick, menace.  
+Jonah gave a quiet “Silas,” under his breath, but it did nothing.
 
-“I present to you my cherished visitants, a sight unseen by few mortal men!” Moe said.  “For your eyes are beholden to Darja, the Witch of Tambov, she lives!  And as in service to me, I am in service to her!”  
+Silas dipped his spoon, flicked a bit of stew at her sleeve. “Missed a spot.”
 
-“Za nashimi usiliyami pus' budut nashi usiliya,” a broken gurgling voice spat.  Fibers vibrated from her throat, her mouth vomiting a mass of the wet black organic cables.  They reached out and caressed Moe’s cheek.  He giggled, his balled fist at his side rising and falling rapidly with elation.
+She looked up, expression calm but flat. “You done?”
 
-Clayton’s hand spidered toward me, his fingers touching the top of mine, then the sleeve, tugging. His eyes met mine, pupils dilated in the dim light, whites darting toward the stairs, lingering downward. Before I could process what he meant, he was on his feet, pulling the sleeve of my coat, finding resistance with my slowness to act, he let go and sprinted for the door.
+“Just making conversation.”
 
-“NYET!” Steve yelled and fired the handgun.
+“Try harder,” she said, voice low.
 
-Clayton cleared several more feet, unhit or not knowing he was hit and was almost to the stairs when fibers from the witch monster were around him, bunching around his feet like a gaucho’s bolo.  He fell, arms barely able to brace his fall.  The black sinews wrapping up his legs before his arms made contact with the floor.  He reached for something to pull him further way, grasping at dirty carpet as the witch yanked toward her.
+Silas laughed, a dry, empty sound. “Careful, sister. You’re starting to sound like Ruth.”
 
-I was on my feet, trying to get to the stairs, hoping to pull him away when my own feet left the ground.  I braced for impact but found myself floating.  Stinging, hot laces wrapped around my stomach, holding me airborne, squeezing the breath out of me.
+That was when Harlan stood.
 
-“Nay, nay, gentlemen, you have been invited!  You can’t leave unless disinvited, it’s basically reverse vampire rules!” Moe giggled porkily.
+The chair’s scrape cut through everything. He didn’t say a word, didn’t need to. His shadow stretched the length of the table.
 
-The fibers bore through my winter coat and into my skin, barbed like fishhooks, each struggling wiggle dug them deeper.
+Silas’ grin faltered. “Kidding,” he said softly. “Just kidding.”
 
-“M’lady, show them their fortune!” Moe said.
+Abel didn’t raise his voice. “Harlan.”
 
-The room went grey.  I’ve spent the better part of 45 years trying to think of what I saw then.  She reached into my mind, and showed me something, but not visually.  A feeling of panic, of dread.  Of eternity.  Of fire and pain and hunger.  A utopia of perfect suffering.  A reaping hook severing me from ancestor and offspring. A hammer setting the stone of a perfect cacotopia made of my teeth.  
+The big man’s head turned slightly.
 
-The fibers retracted.  I fell to the floor, pain added to pain.  The blows inside my head turning to knocking sounds below.
+“Sit.”
 
-The door?
+He did.
 
-Through my haze I registered Steve stepping over us and walking down the stairs.  I heard him say something, then the sound of a muffled scream and ripping meat.  Heavy boots on the stairs.
+Then Abel looked at Silas, calm and final. “You don’t sharpen a knife on family.”
 
-Someone on the stairs.  I squinted to clear my head, something blue and human shaped.  Blinking rapidly, my vision focused on an old man in a denim jacket and jeans.  He looked familiar.
+Silas nodded once, eyes low. “Yes, sir.”
 
-Something crawled on my hand, prickling legs and a soft breeze.  A yellow jacket, its alternating black and yellow abdomen gently touching the back of my hand as it walked along, wings fluttering.  I froze.  Another landed beside it.
+The room exhaled.
 
-“What is the intention of this encroachment!”  Moe yelled toward the old farmer.  “Lo to those who trespass!”  
+Clara finally glanced at Harlan, the ghost of a smile curling at her mouth. “Calm down, big guy. I can handle him.”
 
-Moe’s hand shook back and forth, something metal bouncing in his ham hand, He murmured, fist raised, preparing to drop the object.  
+A few small laughs slipped through the tension. Mae’s hand brushed Clara’s shoulder as she passed, steadying, grounding.
 
-“I cast-” cut off mid-sentence, his body flying sideways, shoulder wedging into the drywall.  Catapulted by the force, Moe lost the object.  It arced toward me, landing beside my head.  A circular thing made up of triangles covered in numbers.  Number 1 facing up.
+The meal carried on—slower now, but softer. Ruth asked Nick about his work, curious in a quiet, measured way. Mae asked Elenor about her ring, her smile genuine. Abel mostly listened, weighing silences.
 
-The stranger walked toward the woman-thing, bowlegged and slow.  Moe wheezed in pain, slumped against the wall.  Clayton was free from the fibers, trying to get to his feet.  I knew fleeing was the safest thing to do, every one of my own fibers screamed at me to run, to fly down the stairs and get into Clayton’s car and go home.  But this stranger saved me.  What if he needed help?  
+The food was rich, the warmth steady. But every so often, I caught myself noticing the details: like how the family drank from old, earthen mugs instead of the clear glasses set for us, I couldn’t quite tell what they were drinking.
 
-“Ma’am, are you spreadin’ Commonism here?”  The old man’s voice was hoarse, echoing, electric, tinged with a rural western accent.
+Abel’s hand rested near his cup, but his eyes kept drifting toward the window, as if something out there was listening too.
 
-“Darja my love, the numbers!  What does the number read?!” Moe burbled from the corner.
+When Mae finally rose, she did so gently, her voice the soft close of a hymn. “You’ve all had a long day. Tomorrow starts early. The light comes quick here.”
 
-Fibers shot out toward the strange object, more fibers wrapped around the old farmer.  On instinct I reached for the object and batted it down the stairs before the hideous strings could reach it.
+Abel stood as well, his chair groaning. “Rest well,” he said. “Work or not, everyone contributes here.”
 
-“You knave!”  Moe yelled.
+\*\*\*
 
-I struggled to my feet only to have the fibers redirect from the object to my neck.  The squeeze was immediate, barbed hooks digging in, squeezing my throat closed.  In a panic I thrashed against them, their grip growing tighter.  The two yellowjackets on my hand launched and landed on the rope of fibers, plunging their stingers into organic material.  More followed and the mass was covered in yellow and black and wings and legs and biting mandibles.
+Back in the guest bathroom, the air felt cooler. Hailey leaned against the sink, hair tied up, a half-drunk glass of wine in her hand.
 
-“Curses upon you!  I cast…GUN!”  Moe reached into the pocket of his bathrobe, a snub-nosed revolver emerged in his hand.  He took aim at the old farmer.
+“They’re nice,” she said, “but that was... different.”
 
-“NO!”  Clayton yelled and dove toward Moe.  The gun moved.  Barked twice and Clayton went down  Moe adjusted his aim and emptied the cylinder into the old farmer.
+Nick grinned, rolling up his sleeves as he washed his hands. “Different’s good. I didn’t see anyone glued to a phone.”
 
-A wave of sadness and rage filled me.  Blinding me.  On instinct I was on my feet, tearing through the tentacles around my neck, charging the seated form of Moe.  His weak hand awkwardly dug into a pocket of the robe but couldn’t fit, in desperation he threw the revolver at me.  
+“Maybe because they took them all,” Hailey said. “Pretty sure that counts as kidnapping.”
 
-As the gun lazily circled toward me, I caught it in my right hand and dove into him, leading with the handle down hard onto the top of his head.  He squealed, thrashed, I hit him again and his massive arms circled my waist.  I was on top of him, but I’d lost an angle to deliver a killing blow.  He squeezed.  He flipped me in a sloppy takedown and put his weight on top of me.  
+Elenor sat on the edge of the counter, towel over her lap. “They just have their way of doing things. It’s kind of refreshing, actually.”
 
-My lungs turned into a one-way valve, breath could escape but I couldn’t bring any more in.  I beat against his kidneys with the gun, and with the other hand grabbed fat and twisted.  He raised his hips to better position himself over me and I found my opening.  I kneed him in the crotch.
+“Until they say grace over a fresh guest stew,” Hailey muttered.
 
-“Oooooowww!”  He yelled and loosened his grip.  I escaped, positioned myself on his back, and put his flabby neck into a full Nelson.  
+Nick chuckled. “Hey, you’re the one who wanted to come. You’re just paranoid.”
 
-Across the room the old farmer stood facing the grotesque thing that was supposed to be a woman.  The fibers wrapped around him sizzled and withered to the ground.  Three bullet holes in his shirt, unbothered as black and white hornets crawled from inside his torso, a few at first, then more.  
+“I’m aware,” she said, taking another sip. “Doesn’t mean I’m wrong.”
 
-With a dismissive wave of his hand, hundreds of hornets erupted from the holes in his side, like an ancient glacial dam breaking, a torrent of flapping dots coalescing into a stream, landing on the woman, covering her face, her profane mound, her chest.  Her arm tried to brush away the bugs, only to be covered like moving sprinkles on an ice cream cone.  
+I turned on the tap. It gurgled, coughed, then fell silent. Elenor pointed to the black drum in the corner. “Guest water,” she said.
 
-Fibers shot wildly, blindly ripping through the air, each one in turn covered in yet more of the black and white wasps.  
+Hailey crossed her arms. “It’s weird we can’t even use the tap. What happens if you forget?”
 
-My hold on Moe slackened as I watched.  He surged to buck me off.  I stood, shoving his head down and kicked him as hard as I could in crotch, took a few steps and kicked him in the head.  He lay still save for a snoring gurgle.
+Nick shrugged. “Guess you don’t forget.”
 
-The woman thing, coated by hornets, collapsed to the ground.  The room fell silent save for the deafening buzz of thousands upon thousands of insect wings and the mastication of mandibles as the creatures stung and bit and chewed.
+Elenor smiled faintly. “You guys think too much. It’s just plumbing.”
 
-Clayton lay prone several paces away.  I left Moe’s piled form and ran to him.  His breath shallow, hands clutching inward.
+“Maybe,” Hailey said, glancing toward the window. “Or maybe it’s something else.”
 
-“Clay!  Clay!  We’re gonna get help, hold on!”
+Nick stepped behind her, pressing a kiss to her temple. “It’s just old pipes, babe. We’re fine.”
 
-Kneeling, I found two bullet holes in his chest, my hand covered them, blood leaking through my fingers.  I looked for a phone somewhere in the room.
+She relaxed slightly, smiling despite herself. “Fine. But if I start growing gills, I’m blaming you.”
 
-“There’s dignity in the transition son,” the old man stood at Clayton's feet.
+Elenor laughed softly. “God, you’re dramatic.”
 
-“Find a phone!  Call 911!” I yelled.
+“Occupational hazard,” Hailey said. “I like to keep the mood lively.”
 
-“Don’t use ‘em.  This life is but a probationary state.”  
+The light flickered once and steadied.
 
-He knelt, touched both of Clayton’s feet.  Clayton’s breath stopped.  Silence returned but for the chewing and buzzing bugs.
+Nick stretched, yawning. “Alright, campers. Big day tomorrow.”
 
-“He’s a martyr now, son.  Embraced and blessed by the gift of the Lord,” the old man said, a yellow jacket crawling out of nostril and into the other.
+Elenor stood, brushing her hair over one shoulder. “You coming?”
 
-“What are you?” I asked, adrenaline wearing off.  I felt cold.  Clayton still felt warm.
+“In a sec,” I said, glancing at the window one last time. The farmhouse glowed faintly through the trees, lanterns still burning inside.
 
-“I can never enter the Kingdom of Heaven, so I worship the King on Earth.  They call me Rathdrum now.”
+Elenor touched my arm. “Come on.”
 
-“Like the town?”
+I followed her, closing the door softly behind us.
 
-“I never been.”
+The night felt thick around us, the air cool and wet. Above, the stars burned sharp and endless—millions of diamonds I’d forgotten the city had stolen from me.
 
-Moe stirred, then didn’t.  A wretched flabby breath, then silence.
+\*\*\*
 
-Buzzing from the stairs, a ball of swarming hornets and yellow jackets returned to the man thing called Rathdrum, turning like a tumbleweed in the air.  Rathdrum held out an outstretched palm and the swarm parted over it.  Moe’s numbered triangles fell into his palm.  He turned it over, considering it.
+The guest cabin held the day’s warmth like a kept secret.
 
-“I was at Jacobugath when it burned.  Some Commonist dabbler don’t mean never mind.”
+The lantern on the dresser hissed low, its flame cupped in glass, throwing a soft amber sway across the walls. Outside, the crickets had gone still. The quiet wasn’t empty, just dense, like a blanket pulled over the night.
 
-“I don’t understand,” I said.
+Elenor sat cross-legged on the bed, brushing her hair. I watched her reflection in the small mirror: the way her eyes didn’t quite look at herself but at the space around her, as if the room were a pond and she was checking what moved beneath the surface.
 
-He stood, placing a wrinkled, liver spot hand on my shoulder.  Cold vibration through my jacket.  I looked up and he smiled, alternating black and yellow teeth.  
+“You know,” she said softly, “for a place this quiet, it doesn’t feel empty.”
 
-I looked to the thing that had been the woman, what had Moe called her?  Darja?  She was nothing but wet bones, coiled fibers, and bloody hair.
+I was half-lying on the quilt, propped on one elbow. “No. It doesn’t.”
 
-“What was she?”
+She set the brush down and turned, that small smile widening just enough to reach me. She looked like home, the kind that makes you forget what time is doing to you.
 
-“A wayward.  ‘...atonement bringeth to pass the resurrection of the dead; and the resurrection of the dead bringeth back men into the presence of God.’”
+When she crawled into bed, the quilt lifted with a papery whisper. Her palm found my chest, tracing slow, absent shapes. Her knee brushed mine; the mattress sighed, old but steady.
 
-“She…she was human?”  I asked.
+“You think they’re asleep already?” she whispered.
 
-“Used to be.  Some aren’t.  Lost.  I suppose.  Worthy of forgiveness.  You can hold your own in a fight.  Some have some use for a man like you.  A pious man.”
+I glanced toward the door. “Feels like the whole farm is.”
 
-His hand still on me, he raised his other hand toward the bar.  Hornets and yellow jackets carried the pitcher of ice water to his hand.  He took it, sloshing its half-melted contents above my head.
+She smiled. “Then I guess it’s just us.”
 
-“Brother Young, having been commissioned of The Christ, I baptize you for and in behalf of Darja, Witch of Tambov, who is dead, in the name of the Father, and of the Son, and of the Holy Ghost.  Amen.
+She kissed me, soft at first, then deeper, the kind of kiss that pulls the world in close. My hand slipped to the back of her neck, her pulse warm beneath my thumb. The lantern light wavered and set our shadows breathing on the walls.
 
-Ice water hit my face, ice cubes bombarding my eyes.  The cold shock hitched my breath, and I inhaled some involuntarily.  I collapsed and coughed, nearly retching again onto the stained carpet.
+We moved the way you do when you’re trying not to wake a house: slow, familiar, reverent. For a while, the world was only breath and skin and the heat of being known.
 
-When I looked up Rathdrum was gone.  Clayton’s body lay prone beside a barely breathing Moe. 
+She laughed softly into my neck. “You packed the condoms, right?”
 
-I leaned against a wall, warm tears mixing with cold water.  I reached into my back pocket for my handkerchief, tucked beside it was a small black and white comic book.  Something about dark dungeons, written by someone named Jack.  A phone number scrawled on the back.
+“Drawer,” I murmured.
 
-Somewhere in the distance I heard shouting.  Boots on the floor.  A man’s voice.  Men’s voices.  A light.
+Her hand reached past me, the drawer giving a small wooden sigh. A rustle, then stillness.
 
-“Sheriff’s Department!”  I think one said.
+“They’re not here.”
 
-I gazed into the light.  A revolver hovered beside it.  
+I blinked. “What?”
 
-“What the fuck happened here?”  I think the revolver said.
+“The condoms. You sure you packed them?”
 
-I couldn’t explain it.  So I said the only thing I could think of.
+I leaned over and looked into the drawer. No box. No wrappers.
 
-“We…were going to play…Dungeons and Dragons…”
+“I swear I put them right there. Maybe Nick stole 'em?” I said. “We’ll check in the morning.”
+
+“Yeah,” she said quietly. “Morning.”
+
+She came back to me, though the rhythm was different now, something cautious beneath the warmth.
+
+Then I felt it: the smallest thread of air against my ankle, cool, damp, shaped like a breath slipping through the crack beneath the door.
+
+I froze.
+
+Elenor did too. Our breathing fell out of sync.
+
+“What?” she whispered.
+
+The quiet had shifted tones, same silence, different weight.
+
+A board bent. Not the lazy sigh of old wood, but a careful test of pressure. Then a pause. And in that pause came a breath: long, uneven, dragged through a throat that didn’t quite know how to be quiet. A wet, rasping inhale.
+
+Elenor’s hand tightened on my arm. “Alex.”
+
+The door wasn’t shut all the way. A thin seam of dark where wood should’ve met wood. I remembered closing it, remembered the click. The gap was small, but wide enough to imagine an eye behind it.
+
+“We closed that,” I said, barely above air.
+
+The breathing came again, slow and steady, a soft gurgle like a man half drowning.
+
+“Nick?” El tried.
+
+Silence answered. Then another soft exhale, hot and damp, threading through the crack.
+
+I slipped from the bed. The floor met my feet like ice. The lamp’s glow reached only halfway across the room, beyond that, everything was a suggestion.
+
+“I’ll check,” I whispered.
+
+“Alex, don’t—”
+
+But I was already opening the door.
+
+Nothing.
+
+The hall pressed in close, walls breathing with the heat of the day. The lamp at the far end had burned down to an amber pulse. My heart made too much sound.
+
+I stepped toward Nick and Hailey’s door, the boards groaning softly beneath my weight. A line of light glowed under their door, steady, human. I knocked lightly.
+
+“Nick.”
+
+A muffled voice came from the other side. “Jesus, man. You good?”
+
+“Did you hear anything? Breathing? Steps?”
+
+There was a pause. Sheets rustling. Hailey’s tired voice somewhere in the mix. Nick laughed, low and hoarse. “Pretty sure that was you, dude. You two aren’t exactly subtle.”
+
+“Not that,” I said. “Someone was outside our door.”
+
+His tone changed. “You serious?”
+
+“Yeah.”
+
+He hesitated, then said, “Probably the wind. This place creaks like hell.”
+
+“Yeah,” I said. “Probably.”
+
+But the air didn’t move. Not even a whisper.
+
+When I turned back, my throat went dry.
+
+The front door of the guest cabin was standing wide open.
+
+Beyond it, the night was a flat sheet of black. The curtain beside the frame swayed once, then stopped dead.
+
+For a moment, I couldn’t move. Something had either just left—or entered.
+
+“Nick,” I called softly, but their door stayed shut.
+
+Wearing nothing but my boxers, I took a step toward the open doorway. The air that started to pour in from outside was cold, metallic, carrying the smell of wet leaves and soil. The yard stretched beyond: a wash of colorless shapes, the fence like a spine against the horizon.
+
+And then it hit me like a stone to the gut: *Elenor*.
+
+I ran for our room, hoping, praying, that something hadn’t reached her before I could.
+
+The boards wailed under me. The lamp flickered once, as if flinching from the noise. I reached our door, my hand slapping the wood as I went to push it open, but my palm landed on something warm.
+
+Not warm like sun-touched wood. Warm like skin. Damp. The kind of warmth that lingers after a mouth.
+
+I yanked my hand back. Someone had been standing there. Breathing against the door.
+
+I shoved it open.
+
+Elenor sat up in bed, eyes wide. “Jesus—Alex?”
+
+I scanned the room. Empty. Just the lantern glow, the quilts, the open drawer.
+
+“Door was open,” I said. My voice didn’t sound like mine.
+
+“What?”
+
+“The front door. Wide open.”
+
+She stared at me. The silence between us felt like static.
+
+I shut our door hard and twisted the latch until it caught. Then dragged the chair from the corner and jammed it under the knob.
+
+“If that door opens again, I’m going to lose my shit.”
+
+Elenor’s eyes followed me as I climbed back into bed. “You sure it wasn’t the wind?”
+
+“No,” I said. “Not the wind.”
+
+We didn’t touch. The air between us felt thick—watched.
+
+As I sat awake and watched the door fade into shadow, I swore I could still hear breathing softly through the wood, like the cabin itself had learned the rhythm of our sleep, and was keeping time.
+
+[Part Two >](https://www.reddit.com/r/nosleep/comments/1p5ytud/stillwater_farms_part_two/)
