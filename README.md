@@ -1,836 +1,168 @@
-# Stillwater Farms [Part One]
-Have you ever been in love before?
+# Only Once Have I Seen the Door
+Hey everyone. My name’s Jack. I’ve decided to write all this here. Maybe it’ll help me make sense of it all and keep a solid track on my chronology of things. Maybe someone out there has felt something similar. I doubt it, but hey, the internet can be a strange place.
 
-Then you’d know that feeling, that ache that isn’t pain, but still finds its way into your ribs. That steady hum in your chest that tells you you’re exactly where you’re supposed to be.
+First, some background. I’m not a crazy person. At least, I’d like to hope I’m not. I’m a pretty normal guy. I’m going to college. I have a part time job at a fast-food place, I’ve got ex-girlfriends, I drive a ford focus, blah blah blah. But, my whole life, I’ve had these moments. They’re hard to describe, so I’ll pose you this analogy to give you the right foundation.
 
-I asked Elenor to marry me on a rainy Sunday morning in the kitchen of our apartment. The smell of coffee lingered in the air, mixed with the sound of Billie Holiday playing through a cheap Bluetooth speaker and the soft hiss of rain against the window.
+I have a lot of these vague glimpses of memories, from when I was a very young child, of my own parents socialising, having a drink with friends, hosting events, whatever, where I’d wander downstairs to get a snack or something and I’d feel a little bit caught off guard for a moment by the sight of strangers in my house that my parents seemed to be getting on fine with. My parents would try to introduce me to their friend or cousin that I didn’t recognise, but I’d forget about whoever they were shortly after. I feel like a lot of people have early childhood memories like that, because when we were very young children, our parents were naturally younger too and were spending more time keeping up with friends and whatnot.
 
-She had just spilled egg yolk on her baggy pajama shirt and was half-singing, half-talking to herself as she wiped it with a wet cloth.
+Sometimes, I’ll get a glimpse of something like a wine glass or a lit candle on a table and feel myself floating away, back into vague flashes and feelings of a dinner party my parents had one night with the in-laws or something like that. And that’s what I’m getting at: random feelings of recognition in your surroundings that give you hard to pin down senses of familiarity, leading you back to half-formed memories. But the way I experience it is a bit different. It’s not Déjà vu. It’s more like a stutter. A momentary glitch in my own perception. I like to call it static.
 
-“Oh Elenor’s a dumbass who spills shit all the time, If anybody loved her, it’d surely be a crime.”
+It usually happens when I’m run-down, sleep-deprived, or intoxicated. Like, for example, I’ll be lying in bed hungover, listening to the low hum of my desk fan, and for a split second, the hum will resolve. It’ll sound like a distant crowd of people cheering excitedly about something, or a woman singing a song in a different language. The weirdest part, then, is the feeling that follows. The absolute, bone-deep realisation that I’ve been listening to those noises for the last five minutes, I just hadn’t realised it yet. It’s like a retroactive certainty. My conscious mind is always the last to know.
 
-“Arrest me then,” I said, cutting her off as I knelt behind her, the ring catching a glint of pale morning light.
+I’ve felt this “static” with sights, too. Like, a particular shade of peeling yellow paint on a bus stop that I gazed at for a few minutes before suddenly feeling sure I’d seen it on the wall of a hospital room somewhere I’d been in once when I was a kid. The feeling is never, “Hey, that looks familiar.” It’s “There it is again. It’s been here the whole time.”
 
-“Wow, you are so cor—” she started, but her voice caught halfway. Her hands flew to her mouth. The cloth hit the floor with a quiet smack.
+I’ve always written it off. A trick of a tired brain. My synapses misfiring. It’s always been so easy to disregard, because it was so rare. That was before everything that’s happened.
 
-“El,” I said softly. “I’ve loved you from the moment I met you.”
+How it starts is I’d already been feeling hungover and out of it from the house party I’d been at the previous day. It was 2 pm by the time I was up from the couch. I started my day, just like Anthony and the others waking up at his flat, with a breakfast of leftover Chinese poorly re-heated in the microwave, a glass of Dr. Pepper from the bottle we’d been using last night for mixers, and a few bong rips. So, by the time we’d gotten ourselves sufficiently baked, it was 4 pm and I was walking to the bus stop with our group. Anthony’s flat is in an estate about a twenty-minute walk down some barren roads and suburbs away from the town where me and him grew up. We were walking with some of the other guys and gals from the party with the intention of getting a bus back over to where our community college is, an hour or so away, where most of us were living in student accommodation. But somewhere along the way, in the scorching heat of the day and our hazy state, we took a wrong turn. Even Anthony wasn’t sure exactly where we were. We had a loose idea, since we were still near the huge woods of the state park that enclosed around much of the area between Anthony’s estate and our hometown. As we kept walking and chatting aimlessly, we eventually stumbled upon a strange pub, a sort of half-bar, half-arcade that was set up across from an empty, dusty yard or lot. There were only a few run-down bungalows nearby.
 
-“Oh my god, stop,” she said through her hands, eyes already glassy.
+We stared at the odd pub. I felt sure it was just a lame dive bar with a few arcade machines shoved in the corners to get 80’s nostalgic types all horny and drain them with shitty bar prices, but we were so bored and stoned that we saw the possibility of arcade games and freshly poured beers and thought, “Sure, why not.”
 
-“These four years with you… they’ve meant everything to me. I don’t need anything bigger than this, just more of it. More of you.”
+While everyone spent the following hours throwing back drinks in our elegantly dishevelled state in that crummy place, a strange sense of premonition in my mind, and Anthony’s too, I think, seemed to have sprouted. A strange feeling of growing dread, a sense of anticipation for some huge revelation. That feeling kept growing, something completely unknown and yet undeniable, as time passed into evening and then nightfall, as I continued drinking, trying to make conversation with people, chatting with girls I liked the look of, normal bar stuff. I remember there was this fat, nasty spider in one of the corners of the ceiling. It hadn’t made a web, it was just slowly skulking about in circles. I couldn’t take my eyes off it.
 
-I smiled, awkwardly, trying to keep my voice from breaking. “Will you marry me?”
+Now, my buddy Anthony is what you’d call an experienced tripper. He believes in expanding the mind, so to speak. I was always the cautious one. Anthony tapped on my shoulder late into the night and took me outside, where he showed me the tabs of acid he’d been talking about. I remember feeling that the moment was important. I mean that moment, standing outside that strange pub at night, staring across the road at that dusty yard and, behind it, the woods – I knew that I would remember that moment for the rest of my life. Even though nothing that special was really even going on. I knew I’d remember Anthony’s Marietta t-shirt. I’d remember the pile of tires scattered in the yard. I’d remember the rusty storm drain a few feet from where we stood at the pub’s entrance. We decided my first acid trip should be somewhere peaceful, in nature, so we picked one of the winding country roads around and through the state park woods, and started walking. Then we partook.
 
-“Yes, of course you idiot.”
+The come-up was fine. A little giddiness, the trees looking a bit more vibrant. Then I hit the peak. The world started to breathe. The asphalt of the road pulsed like a vein. Anthony was walking beside me, talking about the lifecycle of moss or something, his voice a steady, grounding presence. But then, a second voice started up.
 
-I stood, swept her up, kissed her. She was laughing and crying, and I could taste salt and coffee and morning on her lips. When I slipped the ring on her finger, she looked at it like it was a small miracle.
+It was also Anthony’s voice. But it wasn’t coming from beside me. It was inside my head, clear as day, as though he were sitting in an empty room right behind my eyes. He was commenting on my thoughts, narrating my panic.
 
-“You could’ve at least waited until I cleaned my shirt,” she said, smiling through tears.
+“He’s thinking about the fan now,” the internal Anthony-voice said as I looked in utter disorientation at the real Anthony, calm and conversational. “He’s wondering if it’s all connected.”
 
-“Well, take it off then,” I said, grinning.
+ I stared at the real Anthony. His mouth was moving, talking about how the universe is all connected and that means busting a nut and getting a girl pregnant is basically the same as planting a tree sapling. The voice of Anthony in my head, however, was speaking directly to me.
 
-She gasped and tried to wriggle away as I scooped her up and carried her toward the bedroom. She was laughing the whole way, that unguarded, open laugh that made me fall in love with her in the first place.
+“Dude, you okay?” the real Anthony asked. “You’re looking a little pale.”
 
-That Sunday morning was the happiest I’ve ever been.
+That’s when I saw a third man off in the distance. About fifty feet ahead, standing off the path under the canopy of an ancient oak tree, was a man. He was tall, gaunt, looked to be in his forties, wearing a brown suit that looked decades out of date. He was just standing there, staring at the bark of the tree, running his fingers over it like he was reading Braille. There was something about his facial features, the exact movements of his hands. At first, it was just a vague sense of familiarity - and then - I remembered.
 
-\*\*\*
+Something about a kid I’d known briefly in the early days of my childhood… his name was Douglas, I’m pretty sure. A third cousin, I think, or maybe a family friend’s son? Or was he some imaginary friend I had? No, he was definitely real, and he was in the family, but he wasn’t a close relative. I saw him maybe twice in my life. My one solid memory of him is from a family gathering when I was six. All the other kids were playing tag, but I found Douglas, who was a few years older than me, sitting alone by the creek. He was meticulously stacking these smooth, grey stones into a perfect, freestanding archway of sorts. Like a little depiction of a skyscraper jutting up from the ground. It was impossibly delicate. When he saw me watching, he didn’t smile. I thought it was cool and impressive, I remember, so I asked him how he’d made it. He just looked at me with these ancient, tired eyes and said, “It’s a door. But you mustn’t open it.” Then, he kicked it over and walked away.
 
-Later, lying together in the pale after-light, Elenor rested her hand against my chest, tracing the lines of my collarbone with her finger.
+The man standing underneath that tree was a grown-up version of Douglas. There was no doubt in my mind. I don’t know how I knew; I just knew it.
 
-“I have to tell everyone,” she said suddenly, sitting up and grabbing her phone from the nightstand.
+“Anthony, I slurred, my tongue feeling thick. “Do you see that guy? Under the tree?”
 
-She dialed her mom first, sitting on the edge of the bed as she talked. I just watched her, the way her hair caught the light, the way her voice broke between laughter and tears.
+Anthony squinted. “What guy, man? There’s no one there. Hey, dude, constellations. They’re weird. It’s like they’re people in the sky. Or in the things between.”
 
-I reached over and dragged my fingers down her back in little circles. I could feel her heartbeat through the thin cotton of her shirt.
+I didn’t understand what Anthony meant. It felt all wrong. I saw movement in the distance. The man – Douglas – turned his head slowly and looked directly at me. His face was a mask of sorrow so deep it felt geological. Like he wasn’t really a brain behind it all, just pure misery.
 
-“Who the hell should I call?” I thought to myself as El giggled in the background.
+*“This isn’t possible,”* I thought, my mind reeling. I realised how little this made sense, even if I was tripping. This couldn’t be Douglas. Douglas had only been a few years older than me as a kid. So this fortyish looking guy obviously can’t be him. And something else. My mom had told me about it years later. This memory took even longer to dredge up. It was the thought of constellations that brough it back to me. I don’t even know where the connection is in that. Douglas had had some mental break at some point, my Mom told me once years ago. He’s been in an institution since he was a teenager. He couldn’t even ne here right now, on top of him not being the right age. So why was my brain constructing all of this?
 
-At that time, I’d lived in the city for just over five years. I moved from my small town for a job fresh out of college. You’d think five years is long enough to make some friends, but the city had proved to be nothing but isolating. The only person I really talked to was my cubicle neighbor, Brian.
+As I continued locking eyes with the stranger, as Anthony stared off into space beside me, the internal Anthony-voice answered that last question the second it’d occurred to me. “He’s the devil.”
 
-That was, of course, before I met Elenor.
+The real Anthony was now looking across at me, concerned, asking if I needed to sit down. But in that moment, I knew two things for sure. The voice in my head was absolutely not my friend. And that man under the tree, whether he was Douglas or the devil or both or neither, was certainly real in a way that Anthony, the road, and the trees suddenly didn’t feel like they were. The filter wasn’t just down, it’d been torn off somehow, and I felt I could finally see the static that was there all along, even if I didn’t understand what that really meant.
 
-We met at a bar I didn’t even want to be at. My coworkers had dragged me there for “team bonding” — a bunch of guys in ill-fitting polos drinking cheap beer and complaining about their “bitch wives.”
+Anthony decided to call things off then, and we went and got a motel to wait out the rest of the trip, Part of me wanted to forget about everything, to pretend it just never happened or that, like Anthony said, I’d just gotten unlucky and had an awful first trip. But the other part, the part that’s been listening to the hum of the static my whole life, knew that wasn’t an option. The door was open, and I couldn’t just close my eyes on what was inside.
 
-I was nursing a Jack and Coke that had long since gone flat when she walked in: the girl in the yellow sundress with chipped nail polish and a messy bun that somehow looked intentional.
+Coming down from the trip was like being thrown back into a world made of cardboard after seeing the real scaffolding and foundations underneath. Everything felt thin and fake. Anthony drove me home, freaked out. He was saying, “Dude you were just having a bad trip. Even though it sucks that it was your first time, it happens.” But he wouldn’t look me in the eye.
 
-She looked like the kind of person who could make a stranger feel at home, and I think that’s exactly what she did to me.
+The problem is, it didn’t stop when the acid wore off. The filter was gone. Permanently. Now, the static was everywhere.
 
-I remember Brian catching me staring. He nudged me, reeking of whiskey, and said, “Go talk to her, man.”
+The first time it happened, I was making some coffee for myself. I was listening to the background noise of the *drip-drip-drip* of the coffee machine while going to the fridge for the milk. I realised the sound had, somewhere in the background, suddenly sounded unmistakably like the unintelligible voice of someone from long ago in my past. Some girl, I think, some girl called Molly from my elementary school that I hadn’t really been friends with and could barely even remember at first.
 
-“Nah,” I muttered. “What would I even say?”
+I could suddenly make out what her voice was saying as it coalesced into three clear and whispered words before it vanished from my mind right as I’d realised it. And even today I can’t remember the tone of voice or punctuation as she spoke them, just the words themselves.
 
-“You tell her your name, give her the eyes, conversation’ll make itself. Trust me.”
+*Ask your grandpa*
 
-Before I could argue, he grabbed my wallet and chucked it toward the bar—it landed right at her feet.
+I stood there, frozen, the carton of milk feeling somehow warm in my hand. This could’ve been nothing. It could’ve been exactly like before, just a random intense recognition, just like the moments of static I’d gotten in the past. “Ask your grandpa,” is a perfectly normal phrase in and of itself, after all. And it’s the kind of thing I might have a vague, mostly forgotten memory of someone almost completely irrelevant to my life saying once. And yet I felt sure that it wasn’t just a memory. I felt sure it meant something. That it was an instruction. I felt I had no real choice to make.
 
-“Go fetch, buddy,” he said, grinning like a fool.
+So I went to visit my grandfather. Me and Grandpa Francis have a good relationship. He’s seventy, but his mind is still mostly sharp, no signs of decline. He just gets a little wistful sometimes is all. I meet up with him at his house every few months to have a glass of something and a chat. He lives in a quiet, detached house about an hour away that smells of old books and liniment.
 
-I should’ve been furious, but instead I just… went.
+I gave him a call and said I was passing through his neck of the woods and was wondering if he wanted to catch up for a bit. He was more than welcome to it. When I arrived, he ushered me inside as always with a firm handshake. I didn’t know how to bring it all up. I just tried to stay engaged with Grandpa’s initial small talk and questions as he poured us each a glass of Captain Morgan’s spiced gold, before trying to subtly pivot and steer the conversation over. I did the only thing I could think of and asked him casually enough if he had any interesting or weird stories from when he was younger. Grandpa Francis is full of stories, and swapping them is something we’d often do. He got a suddenly distant look in his eyes.
 
-“Hey, sorry… my friend’s an idiot,” I said, crouching to pick it up.
+“Well,” he said, and I could almost hear it in his relatively steady voice. Underneath the lazy composure, the sound of the cogs in his head gradually kicking into action.
 
-She smirked. “I can see that.”
+“There was my old friend Petey. This was back around when we were no older than you are now. Just two guys with everywhere to be and nowhere to go. The two of us, working in the old autoshop all day long. Boy, you remember how it was, amount of times you’ve seen that dump over the years. But I was always happy with how things were. Quiet, you know. No fuss. That’s the life I wanted. But Petey thought there had to be more to the world. More to see, more to feel, more to experience. Always more with that fella. God, Jack, you remember all the stories I’ve told about the road trips, and the hiking, and the folks we’d meet at bars… wouldn’ta happened without Petey. He rattled my nerves to no end but I woulda lived a less full youth without him, no doubt.”
 
-“I swear I don’t usually make my entrances like this.”
+I leaned in. Grandpa had talked about his old friend Petey before. I felt this was going somewhere, but I played it cool. Grandpa took a sip and continued.
 
-“Shame,” she said, tilting her head. “It’s a bold move.”
+“Petey would go exploring when he was free. Exploring the roads, the abandoned houses, everywhere. ‘Specially the woods, the big state park, not far from where that friend of yours lives, actually.” At that, I had to supress a chill.
 
-I smiled. “Worked though, didn’t it?”
+“Petey was stupid. You hear me? Stupid kid. Always poking his nose where it didn’t belong, hoping he’d find something new. And eventually, he found something alright. Something strange. He took me into the woods one summer day, wanting to show me.
 
-She smiled back, eyes glinting. “Guess it did.”
+“It was a door,” Grandpa said after a pause. “Just a door, made of old, dark wood, standing all by itself in a clearing. No house, no walls. Just this door. It was in good nick, fresh paint job on there, and the bottom of the doorframe was nailed securely into the topsoil of the ground, so it stood perfectly upright, just like a normal door. Petey, he was always the brave one, he walked right up to it.”
 
-“So,” I said, still half-smiling, “what’s your name?”
+Grandpa paused again, taking a longer sip. The house was silent except for the ticking of the clock. I realised I’d stopped breathing.
 
-“Elenor.”
+“What does that make Petey?” Grandpa asked.
 
-By the end of the night we were the last two people in the bar, talking about everything from favourite movies to our deepest fears.
+“Stupid,” I answered, trying to force a jokey voice.
 
-After that, I started to actually have a social life. Her friends became my friends, her world absorbed mine. But when I tried to think of someone who was mine to call with the good news, no one came to mind.
+“He gets closer and closer to the doorframe, and I’m thinking it’s a bad idea. I’m thinking he’s putting himself in danger. But, I mean, why would I even have thought that? It’s just a door. But it felt all kinds of wrong. Petey’s almost able to reach out and touch the door when it opens up. A man stepped out. Or, well, I suppose he was always standing in that clearing in the woods, behind the door. You wouldn’t call it stepping out of the door so much as walking through it. No way to know which way’s in and which way’s out, right?
 
-I scrolled through my contacts and landed on one name I hadn’t seen in years.
+“He was dressed in normal enough clothes, but there was something wrong with his eyes. Petey told me later it was like looking into a well that had no bottom. He looked at us, and he had this expression of anguish on his face so profound it was almost alien. And then, his voice, it… it sounded exactly like the voice of someone I could remember, but I don’t know who. There was something about it that had been changed, something made poisonous. The whole clearing smelled like an electrical fire. “It’s worse inside,” he said. Petey fell back and grasped my arm and whispered to me like he just knew it, “He’s all bad.” And he was. We ran all the way home and never spoke of it again,” Grandpa finished. “I knew that day that the Lord works in strange ways, but I wonder sometimes, does the devil work in stranger.” He made the sign of the cross in an unfocused way as he gazed out the window. We both drained our glasses.
 
-Nick. My brother.
+I tried to keep myself in check while Grandpa and I carried on having a generally fine chat for the next ten minutes or so. I could tell it was time to leave. Grandpa was more zoned out now than before. We said our goodbyes. I knew why it was. He was brooding. I’d heard about Petey in a good few of Grandpa’s old stories from back in his day. If I was remembering correctly, Petey Jackson had died less than a year after that story Grandpa just told me, when he was around twenty. 1976. The exact details of his death are the only part that Grandpa himself had never actually told me. He’d never needed to. I’d heard it all before, because Petey’s death is still a mystery. I couldn’t help but think about it as I drove home.
 
-I stared at it for a while, thumb hovering. Then I hit “call.”
+Petey vanished one day. After a day’s work at the autoshop, him and Grandpa parted ways as always, but Petey’s family never saw him come home. Only a few hours later, Petey was found naked and dead in a ditch by some teenagers who were out camping a whole state away. Petey didn’t even have a car of his own. Nobody had any idea how he could’ve gotten there on his own.
 
-The call rang four times before he picked up.
+I only knew about this part from Grandpa Francis, but a few weeks after that, a bartender in our hometown opened up for the day and set about to work one morning as usual before he noticed, in the dusty, barren yard across the road, there was a small, slightly damaged and pitiful looking fridge standing by itself. He'd no idea who dumped it but wanted to get rid of it, since he thought it was an eyesore. He dropped it on his first attempt, and the door snapped open, spilling its contents. Stuffed inside that fridge had been some of Petey’s clothes, neatly folded and pristine. There were that clothes that didn’t belong to him at all in there too. A deck of weird playing cards, Petey’s baseball bat, and the shed skin of some kind of tarantula. Grandpa told me the bartender just left the fridge in the yard after that. Didn’t want to go anywhere near it. Grandpa called the police himself when he heard about the clothes and baseball bat, but nothing ever came of it. Petey’s death was never solved, and they never found out why his things turned up after the fact in that manner.
 
-“Holy shit,” Nick said, his voice crackling through the speaker. “No way. The city boy lives.”
+When I got home, the investigation began. I’m in the process of working through my sociology thesis for my sophomore year of college. I’m used to research. I started digging into local records, old newspaper archives. I wasn’t looking for shit about “the devil” or “strange doors in the woods”. I was looking for patterns. And believe me, I found them. It took many, many hours of digging, but eventually I stumbled upon them.
 
-I smiled. “Hey, man.”
+The first was an article from 2016 about a boy a few counties away from my area named Douglas Pickman, who, not long after his sixteenth birthday, was committed to a mental institution after being found wandering in that same state park. I’d heard bits and pieces of the story before, though I was shaky on the details, trying to pull at threads I could mostly remember from overheard conversations as a child.
 
-“Five years, huh? I thought you got abducted or something.”
+Douglas had seemed disoriented and strange for weeks beforehand, according to his parents. They said he’d been refusing to eat anything that had colour. It was rice, bread, mashed potato and milk every breakfast, lunch and dinner. He’d sneak out constantly at night, but there were no signs that he was meeting girls, partying, doing drugs, anything. His grades remained fine, near-perfect, actually.
 
-“Something like that,” I said. “Work’s been... busy.”
+He'd sneak outside and just stand outside his first-floor bedroom window, staring out into the night. Why even bother going outside? By day, when he thought nobody was looking, they’d sometimes see him out on the road leading out from the house, stooping over, staring down into a particular storm drain. They’d heard once from a postman that he’d been whispering things down into the drain. One thing the postman could remember hearing was “I remember I was killing you but it’s all different inside”. Douglas’ friends at school said he’d kept trying to give away his things to them, saying he’d just be throwing them away otherwise. Things they thought he prized, like his signed band t-shirts and magic the gathering cards.
 
-“Bullshit. You just hate small talk.”
+Once, his dad had heard him skulking about at night and went to investigate. He couldn’t find him in his bedroom or anywhere in the house for that matter. Staring out the window into the night – a terribly stormy one – lightning flashed for a few seconds. In the blue, white-hot light, illuminating momentarily the fields across from their house, he saw Douglas, a hundred feet away, running around carefree, going in and out from behind the many haybales scattered about. When the man got out to his son, he found him lying unconscious on the golden soil. He was wearing different clothes, somehow. Both his parents said they’d never bought or seen them before. They were old school, like 70’s high school style. There was a dead cat on the ground next to him.
 
-He wasn’t wrong. I smiled despite myself. “Fair point.”
+One day he snuck out and never came back. There was a search, and a day later the police found him in those woods of the state park, having climbed up a tree and refusing to come down, claiming he’d “found where it sounds right.” He was violently thrashing a long, rusty nail at any of the officers who tried to pull him down. He was only collected after he’d started bashing his forehead against a thick, jutting stump in the tree branch and dented his skull, falling down onto the ground about ten feet below. He was apparently very lucky to survive and had done permanent damage to his skull.
 
-There was a pause—the kind that sits between two people who used to talk without thinking and now have to remember how.
+I suddenly remembered something else as I read – something my mother had mentioned to me years ago when she told me about all of this. The memory was still foggy, but I remembered her telling me something Officer Dell had said to her once. He’s married to a friend of my mom’s, Caroline Dell, so they know each other well enough. According to him, as Douglas fell from the tree, and after he landed before passing out from shock and blunt force trauma, he kept screeching incoherently. “Screeches like a fax machine”, Dell had said. I’ve got no idea what that could mean but it didn’t sound good. And one thing, intelligible in the screeching, over and over. “Where’s the boy?”
 
-“So what’s up, Al?” he asked finally. “Not that I’m not honored by your once-a-decade phone call.”
+Dell said he seemed to be staring right at him, and his eyes were like “every pair of eyes he’d ever looked into but different.” And as he stared down at the boy being cuffed, he was startled when the air suddenly reeked of something like an electrical fire. All the other officers denied that detail when he mentioned it afterwards. A few months later, Caroline miscarried their child. As the doctors broke that information to them, Dell said he remembered that exact smell again, seeping into every crack of the maternity ward. He's never smelled it again, apparently. They never did end up trying again for a child.
 
-“I’m engaged,” I said, before I could chicken out.
+I’d no idea what to make of all this. It was all just strange things I could half-remember hearing about before, suddenly being spurred forward. But I felt sure it meant something, and it was plaguing me. I felt if I could get to the bottom of it all I might understand everything else that’d been happening to me, both as of late and throughout my life. The end of the article mentioned Douglas’ family’s – *my family’s –* long history of “nervous mental conditions”. I’d never heard anything about this before in my life.
 
-The silence lasted just long enough for me to think the call dropped. Then:
+I dug deeper. Census records, obituaries, police blotters. A great-uncle of mine I wasn’t aware of who’d vanished on a hunting trip in 1952. A daughter of a *great*\-grand-uncle who apparently died in a “domestic accident” after neighbours reported her screaming about a man in the attic. It’s all the same. An unnavigable breadcrumb trail of mental breakdowns and inexplicable tragedies, all leading seemingly to nothing, and yet it all felt connected somehow.
 
-“No shit.”
+It's hard to explain how cagey I was at this time. It was getting more and more invasive to my daily life, too. Like, one time I was walking to my house from the college library where I’d been doing my research, when I saw that there was a dude walking up the street against me. Seemed like another college guy from the backpack and the direction he was headed, towards campus. Way off into the distance – this particular street is long and straight – he’s walking up towards me. As we kept approaching one another, he came more into vision and the guy’s face was now less hazy from the distance, He was starting to look exactly like a guy called Ritchie who’d been in my year back in high school. I hadn’t really been super close friends with him and I never saw much of him after starting college, since he hadn’t had any interest in it and went straight to working at his dad’s autoshop.
 
-“Yeah. Her name’s Elenor.”
+That made this kind of strange. Since Ritchie never went to college to my knowledge, why’d he seem to be going to campus with a backpack? But that was crazy talk. Ritchie – I was certain now it was him – could be going anywhere in this direction, with a backpack, for any reason, right? It’s none of my business. And yet I felt sure there was something to this, something that meant something.
 
-“Elenor,” he repeated, drawing out the vowels. “Damn, Al. You actually did it. You found someone who can put up with you.”
+And then it got stranger, in a way. As Ritchie and I came even closer to each other, crossing paths at last, I realised I had been wrong, this guy didn’t actually look anything like Ritchie as I remembered him at all. As we fully intersected and crossed paths, I was left wondering what I’d just experienced. Whether this man was or wasn’t Ritchie, what was it about him that’d led my mind to conjuring all that up? He hadn’t actually done anything. As I thought about it, I couldn’t even remember exactly what Ritchie actually did look like. And, come to think of it, where was Ritchie? Did he even work at an autoshop at all? The only one around for miles is the one in my hometown, near Grandpas’ house, that he and Petey worked at.
 
-“Barely,” I said. “She still thinks I’m funny, though. I’m not gonna question it.”
+This type of strangeness of thought and paranoia had been pervading my life ever since the experience during the acid trip. Little things like this kept cropping up throughout my day to day life, making me momentarily question my sense of self, and as it piled up it all felt both more and more disjointed and ontologically incompatible, and more and more like it was all connected, I just couldn’t work out why or how. It was like there was something truly, utterly terrible hiding somewhere just out of frame in the metaphorical TV screen that I was viewing my memories through.
 
-He laughed, that deep, full laugh that sounded exactly the same as when we were kids.
+And maybe the more I’d began to remember, defences had been put in place and all these ominous, contradictory threads had been thrown at me. Maybe I was simply not supposed to remembered. I wondered if maybe my salvation was buried deep in my memories, too – what if all I had to do was keep trying to trigger more and more memories, because if I could just remember enough about something, I could get to the bottom of it all and expose whoever was behind it? But then, what would that something even be? And something else had been growing, a feeling that it was all going to be coming to a head soon somehow.
 
-“Damn. Mom would’ve lost her mind.”
+Anthony found me at the campus library. He looked scared. “Jack, you have to stop this shit, bro,” he said, lowering his voice. He sounded the least stoned I’d heard him in a while. “I looked a bit into your family. This whole thing doesn’t feel like, just, a joke, or a weird hallucination or whatever. Everyone like you who’s gone down this thing, they’re gone. They’ve either disappeared or they… they killed themselves. You’re chasing some kind of ghost story that’s still making more.”
 
-I hesitated before answering. “Yeah. Probably.”
+I heard his words. I really did. But as he was speaking, the other voice of Anthony, the one from before, the internal one, was smoother, clearer. It didn’t even sound much like Anthony anymore, it was just a calm, neutral tone, but I knew it was the same voice.
 
-He didn’t push it. We hadn’t talked about our parents in years, and the silence between that topic was a kind of unspoken agreement.
+*“He is a guardian,”* it said, the voice full of hate and causing flashes in my mind of teeth, of hair, of darkness, spiders, asphalt. *“He keeps the lambs from the pasture.”*
 
-“So what’s she like?” he asked, shifting the weight of the conversation.
+I didn’t tell Anthony what I heard this time. I thanked him for his concern and told him I thought I was getting over it all anyway. Inside my mind, however, the size of the rift that I’d instantaneously felt open up between us was like suddenly getting dropped into the Grand Canyon. I didn’t know what to think about anything anymore.
 
-I leaned back on the couch, looking over at El in the kitchen. She was still on her phone, laughing.
+The signals were changing. They weren’t just commentary anymore. They’re, they’re *navigational*. Like, yesterday, I was stoned and watching a nature documentary. I hadn’t been to any of my classes or my job for a while. I was trying to put myself into a foggy headspace deliberately now, trying to elicit more and more of the static in my subconscious, hoping it might trigger memories that could reveal more clues to me. I’d been denying myself sleep, deliberately zoning out to music or the TV, getting high non-stop, I’d even been experimenting with binaural beats. As I was zoning out, high, reading some texts on my phone and absorbing the background noise of National Geographic, a generally quiet and easy cacophony had filled the room. Until the sounds from the documentary of flowing water, of rustling leaves, of chirping birds, all tightened, sharpened, and became that same hate-filled voice, like friction on a carpet.
 
-“She’s... the best thing that’s ever happened to me. Smart, funny, way too good for me.”
+*The map the third drawer the green circle*
 
-“Good,” he said simply, and I could hear the warmth in it. “You deserve that.”
+I walked over to my desk, my body moving almost on its own. I pulled out the topographical map of the state park I’d picked up at their gift shop while I was driving home from Grandpa’s and all but forgotten about in the drawer. It was tucked into the third drawer. In the deep woodland, where Grandpa’s story had taken place, someone had drawn a small, precise circle in green ink. I don’t even own a green pen. I knew what was in that circle. I didn’t need to check the coordinates against my memories of the acid trip. I just knew. It was all coming together now, I felt. I was going to the woods.
 
-I leaned back into the couch. For a moment I just listened to his breathing on the other end of the line. It was strange how quickly things between us started to feel easy again, like muscle memory you didn’t know you still had.
+That brings us to the reason for my post, folks. I’m not looking for answers anymore. I’m just leaving a record. A warning, maybe, for anyone else who hears the signal. Stop reading now, if you’re smart. Go back to your life. Consider the static nothing but.
 
-“What about you?” I asked. “What’ve you been up to?”
+I went back to the woods. The green circle on the map was a pull I could never resist. The journey wasn’t like the first time with Anthony. There was no laughter, no intoxication, no adventurous feelings. This was like a funeral march. I told no one I was going. The woods were silent in a way that felt intentional, like the birds and the insects were holding their breath. I didn’t need the map at all. My own blood seemed to know the way, pulling me forward like a diving rod tuned to a lucid nightmare. The air grew colder, felt denser. The familiar panicky stutter in my perception I’ve experienced throughout my life was no longer a glitch, here. It was the dominant signal. And then, amongst all the thin birch trees and cracked beams of sunlight dispersing through the canopy overhead, I saw the door.
 
-He let out a short laugh. “Ah, you know. Working construction mostly. Still in town. Still driving Dad’s old truck.”
+It was exactly as Grandpa Francis had described. A simple, freestanding doorframe of dark, weathered wood; no walls or house to be seen. It was just there. It was both the most utterly mundane and the most wrong thing I’ve ever witnessed. The sight of it radiated waves of something bad, just pure bad. There was something inherent to the doorframe, something hidden beneath the atoms in the different materials and components that made up its structure, something lurking within that sent my nervous system into a state or revolt. Something about the doorframe and its presence here violated reality simply by existing.
 
-“Does it still run?”
+As I stood there, maybe ten feet away, the final broadcast from the signal came through. It wasn’t even a voice this time, more like a knowing, a sudden injection of utter truth. A data packet that an unknown force had suddenly downloaded directly into my soul for me. I understood. The door changed me. It changes us. It breaks our filters. When I saw who I felt, impossibly, was Douglas, I think the voice in my head of Anthony was telling the truth. In a way, I think it was. I must have seen the devil. I saw him, who had walked through the doorway and been change. He was perceiving everything like how I felt I could suddenly perceive everything. The weight of time, the memories trapped in the soil, the silent anguish of every living thing for miles. That must’ve been why it called him the devil, I thought desperately. It was the only word big enough to hold the terror.
 
-“Barely,” he said. “But it’s got character. So do I.”
+The signal, the static, everything, I think it’s what’s on the other side of that filter. It’s the raw data of existence. Beautiful. Entrancing. Labyrinthine. Terrible. Unbearable. Stepping through the door would be to understand everything. To become a clear channel. I would know why Douglas built his stone archways. I would know the name of the woman singing in my fan. I would know what the rocks remember. I would also cease to be Jack. I would be a vessel, overflowing, forever drowning in an ocean, a psychic avalanche of disjointed truths. I stood at the threshold for a long time. I felt the pull.
 
-I smiled. “Same old Nick.”
+The part of me that has always been curious, that has always listened, wanted nothing more than to step forward and finally, finally know. I thought of Anthony’s face then, full of fear. I thought of dead spiders curling up in on themselves. I thought of rusty nails and electrical heat and gnashing teeth and I thought of darkness, and I thought of life. I felt nauseous beyond belief and fell for a second to my knees. I thought of my grandfather, who lived a long, pleasant and normal life apart from one very strange day in the woods, because he’d ran away from this very clearing in them. I thought of the simple pleasure of a family gathering. Of getting high and goofing off with a friend. Of playing sports. Of brewing coffee in the morning. Of having a beer and awkwardly making small talk or catching up with someone.
 
-“Pretty much,” he said. “Although, there’s this girl. Hailey.”
+I made my choice. I turned my back on the door. I didn’t run, I walked. One foot in front of the other, away from the clearing, away from the silence, back towards the world of cardboard and whispers.
 
-“Hailey?” I repeated, sitting up a little. “Like, Hailey from high school? Blonde hair, loud laugh, used to date Jared *\[redacted\]*?”
+I am home now. The world is quiet. The signal is gone.
 
-“The one and only.”
+That’s the lie I have to tell myself to get through the day. The truth is, the signal isn’t gone, I don’t think. I think I’ve done something permanent to my ability to receive it, whatever it really is. I had to. To survive. It’s like I’ve taken a weed-whacker to my own mind with a psychological scorched-tar policy. I’ve severed the connection and I’ve scarred the landscape.
 
-“No way,” I said, grinning. “You’re dating Hailey *\[redacted\]*?”
+The world feels grey. Flat. The colours are muted. Music doesn’t really feel like music anymore, more like an arrangement of notes and beats in an order that’s sonically pleasing to the human brain for whatever evolutionary reason. A joke is just a sequence of information drip-fed to build towards a reveal and punchline. I still laugh, but more in an “oh, that’s clever” kind of way. The deep, intuitive part of me that sometimes just felt sure of certain things is now silent. It’s a numbness that I think I will carry for the rest of my life.
 
-“Yeah. Wild, right? Ran into her at the grocery store a couple months back. One thing led to another, now she’s got me eating salads and doing yoga.”
+I saw Anthony yesterday. We had a beer. It was a slight bit awkward and stilted. He says I seem better. More grounded. I agreed and it was almost like old times between the two of us, but he doesn’t understand, will likely never understand, that I had to cripple a part of myself forever to achieve this peace.
 
-“Oh no,” I said. “She’s turned you into a citizen.”
+I am safe. I am sane. I am empty.
 
-“Shut up,” he laughed. “She’s good for me. We’re still figuring stuff out, but she’s... solid. Different.”
+The door is still there in the woods too, of course. And sometimes, in the dead of the night, when the silence is absolute, I can feel the ghost of the static’s hum. A phantom limb of the soul. And I am filled with the most profound anguish and regret, so profound it feels almost alien, not for what I found but for what I had to destroy in myself to get away from it.
 
-“That’s awesome, man,” I said. “Seriously.”
-
-“Yeah, well, she’s got all these ideas about, like, bettering ourselves. We’re actually supposed to go to some couples retreat thing next weekend.” He paused, clearly amused with himself. “She got this pamphlet from some Amish-looking lady outside a farmer’s market. Says it’s this digital detox, back-to-basics kind of place.”
-
-“That sounds... sketchy,” I said, laughing. “You sure she didn’t recruit you into a cult?”
-
-“Hey, I thought the same thing,” he said. “But Hailey’s all in. Thinks it’ll be good for us. Get away from the world for a few days, clear our heads. Something about ‘reconnecting with traditional values.’ Whatever that means.”
-
-“Wow,” I said. “That’s a sentence I never thought I’d hear from you.”
-
-“Right? But apparently there’s hiking, home-cooked meals, farm animals... She keeps calling it Stillwater Farms.”
-
-“Stillwater Farms,” I repeated. “That sounds like either a retirement community or a brand of bottled water.”
-
-Nick laughed. “Yeah, I know. I told her it sounds like a horror movie. She didn’t find that as funny as I did.”
-
-“She wouldn’t,” I said, smiling. “Hailey always took things too seriously.”
-
-“Yeah, well,” he said, “she’s excited. And honestly, it might be good for us. Things have been... a little rocky lately.”
-
-I heard the honesty there, tucked between the humor. He tried to gloss over it. “Anyway, I was thinking, you and your lady should come. Make it a double thing. She gets her couples therapy, I get to hang with my brother again. Win-win.”
-
-I laughed. “You’re inviting me to a couples retreat that you know practically nothing about?”
-
-“Exactly,” he said. “If it’s a disaster, at least I’ll have backup.”
-
-“I don’t know, man. A weekend in the middle of nowhere with you and Hailey? Sounds like a trap.”
-
-“You’re scared I’ll outshine you.”
-
-“Yeah,” I said. “That’s definitely it.”
-
-He chuckled. “Come on, Al. I’d love to meet Elenor. It’s been forever. We’ll grab a couple cabins, get drunk on organic wine or goat’s milk or whatever they’re serving.”
-
-I hesitated, glancing toward the kitchen where Elenor’s soft voice still murmured over the phone. “Yeah,” I said finally. “That actually sounds... nice.”
-
-“You serious?” he said. “Hell yeah! I’ll tell Hailey she gets her couples retreat after all. I’ll text you the details.”
-
-“Alright,” I said, smiling. “It’ll be good to see you, Nick.”
-
-“You too, Al.” His tone softened, just for a second. “Feels good hearing your voice again.”
-
-“Yeah,” I said quietly. “You too, man.”
-
-When the call ended, I sat there for a while, listening to the rain fade against the window.
-
-Elenor walked back into the room, phone in hand, glowing from the conversation. “Who was that?”
-
-“My brother,” I said. “He wants us to go away with him and his girlfriend next weekend. Some couples retreat thing.”
-
-“Really?” she said. “What kind of retreat?”
-
-“Stillwater Farms,” I said. “Apparently it’s all about... reconnecting.”
-
-She smiled. “That doesn’t sound so bad.”
-
-“Yeah,” I said. “Guess not.”
-
-But as I looked back at my phone with the buzz of a text from Nick, the words *Stillwater Farms* sat there on the screen like they were waiting for something.
-
-***— Day 1 —***
-
-We left the city on a Friday morning that couldn’t make up its mind about the weather. The kind of gray that felt temporary, like the sky was holding its breath.
-
-Elenor packed snacks, playlists, and enough optimism to power the car. I packed one duffel bag and a quiet knot in my stomach I couldn’t quite name.
-
-Nick had texted me the directions the night before; not an address, just a pin dropped in the middle of nowhere, with a message that said:
-
-*Follow the road till it ends. They said they’ll meet us there.*
-
-Elenor glanced at it while I was driving. “That’s not... weird at all.”
-
-“Yeah,” I said. “Apparently we’re being met by our spirit guide or something.”
-
-She laughed, kicking her bare feet up on the dash. The smell of coconut lotion filled the car.
-
-“You think your brother’s nervous?”
-
-“About what?”
-
-“Meeting me. You said you guys haven’t seen each other in forever.”
-
-I thought about that for a second. “He’ll probably pretend he’s not. That’s kind of his thing.”
-
-Somewhere around noon, the city noise had completely dropped out. No hum of traffic, no skyline. Just trees, thick and patient, standing in rows that got taller and older the farther we went.
-
-By the time we reached the end of the pavement, it had turned to gravel, and the air had changed, thicker somehow, smelling faintly of wet hay and cedar.
-
-Nick’s truck was waiting just ahead, parked crooked at the edge of the road. He leaned against the hood, arms crossed, that same cocky smirk plastered across his face.
-
-Elenor nudged me. “He looks exactly how I pictured him.”
-
-“How’s that?”
-
-“Like trouble that never fully grew up.”
-
-She wasn’t wrong.
-
-Hailey was there too, perched on the passenger side, arms crossed, blonde hair tied back. She looked just as she had in high school.
-
-When Nick saw us pull up, he straightened and spread his arms like we’d just driven into a reunion movie.
-
-“Look at this city slicker!”
-
-I stepped out. For a second we just stared at each other; both of us realizing how long five years actually was. Then he closed the distance and pulled me into a hug.
-
-It wasn’t one of those polite hugs people give out of obligation. It was solid, unspoken, real. I hadn’t realized how much I’d missed him, how much I’d loved him, until that moment.
-
-When he finally let go, he looked me over and grinned. “You’ve gotten soft.”
-
-“And you’ve gotten older.”
-
-He grinned. “You’re damn right.”
-
-Elenor came around the car, and I saw Nick’s posture shift immediately. He smiled wider—proud.
-
-“You must be the one who said yes to this idiot.”
-
-“That’s me,” she said, shaking his hand. “You must be the brother who threw him into walls as a kid.”
-
-Nick laughed. “You’ve done your homework.”
-
-Hailey joined us, smiling like someone trying to prove a point. “Alex,” she said.
-
-It was the first time I’d heard her say my name since high school.
-
-“Long time.”
-
-“Yeah,” I said. “You look the same.”
-
-She rolled her eyes. “I’ll take it.”
-
-Nick clapped his hands together. “Alright, lovebirds. Ready for the middle of nowhere?”
-
-“Lead the way,” I said.
-
-We followed Nick’s truck down a dirt road, dust curling in the air like pale smoke. The road narrowed into a single lane bordered by tall oaks and maples, their branches stitching together above us until the sunlight broke into trembling gold patches across the hood.
-
-Elenor rolled down her window and leaned her arm out. “Smells different out here,” she said.
-
-“Like dirt?”
-
-“Like earth,” she corrected, smiling. “Real earth. Not the kind that comes in a bag.”
-
-Ten minutes later, the GPS lost signal completely. The map froze mid-scroll, our blue dot hovering over a blank patch of green.
-
-Then, without warning, the road ended. It didn’t curve or split, it just stopped.
-
-Nick’s truck slowed to a crawl, brake lights glowing through the settling dust. He stepped out, squinting at the treeline like he was trying to find something.
-
-That’s when I saw her.
-
-A woman stood at the edge of the trees, half-lit by the sun breaking through the clouds. Early fifties, maybe. Gray hair tied in a neat braid, a simple linen dress the color of wet clay. Her face was lined but gentle—the kind of face you’d trust without thinking about it.
-
-She looked like she’d been waiting.
-
-Nick waved like this was perfectly normal. “You must be Mae!”
-
-Her smile warmed easily, revealing faint dimples. “You must be Nicholas,” she said, her voice smooth and steady, touched with a southern accent that made you feel at home. “We were starting to think the road swallowed you up.”
-
-Nick laughed. “Wouldn’t be the first time. This my brother, Alex, and his fiancée, Elenor. And you’ve met Hailey before.”
-
-Mae turned to us, her eyes kind. “Welcome. You made good time.”
-
-Elenor smiled, brushing a strand of hair from her face. “We weren’t sure we were in the right place. The road just kind of... ends.”
-
-Mae chuckled softly. “The maps don’t quite know what to do with us. The farm’s further in, and the roads don’t show up online. We use this spot as a meeting place, easier for newcomers.”
-
-She gestured to the old pickup idling nearby. A man sat in the driver’s seat, tall and broad-shouldered, a sun-faded hat shading his face. He gave a polite nod but didn’t get out.
-
-“That there is Harlan,” Mae said. “He’ll take the lead. It’s not far.”
-
-There was something so effortlessly sure about her: a composure that made you feel foolish for being uncertain. She didn’t have the hollow cheer of a tour guide or the stiffness of someone running a business. She just seemed… steady.
-
-Elenor leaned closer to me. “She’s sweet,” she whispered.
-
-“Yeah,” I said, my voice lower than I meant it to be.
-
-Mae smiled again, meeting my eyes like she’d heard me anyway.
-
-“Shall we?”
-
-Nick clapped me on the back. “Adventure time, little brother.”
-
-I forced a grin. “Yeah. Let’s do it.”
-
-El and I climbed into the bed of Nick’s truck; there was no way my Civic would’ve made it down the muddy trail ahead.
-
-The smell of wet soil and exhaust filled the air. Light filtered through branches in long, molten beams that never seemed to move, frozen midair like dust caught in amber.
-
-Elenor rested her head against my shoulder, swaying gently as the truck rolled through the mud.
-
-As the trees closed in, I glanced back at my car parked at the edge of the lane. The windshield caught the sunlight, flashing once before the trees swallowed it completely.
-
-The trees thinned, and then, suddenly, the land opened up.
-
-\*\*\*
-
-Stillwater Farms spread out before us, quiet and sun-soaked. The white farmhouse sat in the center like it had always been there, its paint softened by decades of rain. A rust-red barn leaned nearby, half swallowed in shadow. Wooden fences traced the hills in looping, uneven lines.
-
-When Nick cut the truck’s engine, the stillness rose to meet us—not silence exactly, but a hush filled with the small, living sounds of the place: insects clicking in the grass, a pulley creaking on a line, the faint bleat of a goat far off.
-
-Harlan climbed out of their truck first. Up close, he looked even bigger, shoulders squared, face unreadable beneath the brim of his faded baseball hat. He gave Mae a short nod, then turned toward the barn. The weight of him seemed to pull the air along as he walked away.
-
-On the porch, a man sat with his hat in his lap, eyes on us the whole time. He didn’t move until we were close enough to hear the porch boards breathe under our feet. Then he stood, and the simple act of it made the air feel more serious.
-
-“You must be the travelers Mae told me about,” he said. His voice was low and even—the kind that didn’t need to be loud to be heard. “The road’s a teacher, isn’t it? Always finds a way to humble you.”
-
-“This is Abel,” Mae said, touching his arm with a familiarity that read like gravity. “My husband.”
-
-Abel’s gaze moved over us in no rush: Nick first, then Hailey, then me, then El. Not weighing, not judging. Seeing.
-
-“You’re welcome here,” he said. “All who come in good faith are.”
-
-Hailey beamed. “It’s so beautiful. This is exactly what I pictured.”
-
-“Pictures are flatter than places,” Abel said, one corner of his mouth tipping. “Places insist.”
-
-Mae’s smile widened at that, as if he’d said a private joke out loud. “Before supper, a little orientation,” she said. “Then a short walk, if you’ve got the legs for it.”
-
-We followed her inside for the “little orientation.” The entry smelled like cedar, heat, and something baking. Along the far wall stood a small table: plain wood, and a wicker basket in the center.
-
-“We keep Stillwater simple,” Mae said. “This is a retreat from noise—so we leave the noise behind.”
-
-She tapped the basket lightly. “Phones, watches, anything electric. They’ll be safe here until you head home.”
-
-Nick shot me a look like *be cool*. He dropped his phone in first. Hailey followed. El squeezed my hand and set hers down gently. Mine went in last.
-
-Mae lifted the basket. “Safe as houses,” she said, and disappeared through a side door. When she returned, the basket was empty. “Now. Water.”
-
-The way she said it made me pay attention.
-
-Abel nodded toward the kitchen window. “We keep a separate tank out back for guests,” he said. “Good, clean rainwater. If you need a drink, a wash, anything, use that. The well is for the house.”
-
-Hailey tilted her head. “Is the well contaminated?”
-
-“The well’s old,” Abel said. “Minerals in it can make newcomers mighty sick. Your bodies aren’t used to it.” His tone was ordinary, practical, almost apologetic. “Use the tank and you’ll be right as rain.”
-
-I glanced past him. Through the window, I could see a tall, black-rimmed tank set off from the house, a spigot glinting in the light.
-
-“Shall we stretch our legs?” Mae asked.
-
-\*\*\*
-
-We stepped back out into the late afternoon that felt like it had stalled five minutes before sunset. Abel walked beside us, hat in hand; Mae set the pace without seeming to.
-
-We crossed the yard to a kitchen garden laid out in neat squares: herbs, lettuces, rows of tomatoes strung on twine. A woman straightened up from the dirt as we approached, wiping her hands on a flour-sack towel. Thirty-five by the look of her, hair tied back, sleeves rolled to the elbow. Her forearms were strong in a way you only get from work.
-
-“This is Ruth,” Mae said. “Keeps us honest.”
-
-Ruth offered each of us a firm handshake, friendly but efficient. “If you feel like earning your supper, I’ll put you to real work by morning,” she said, not unkind. “We’ll need an early start. Rain took the soil from the east row.”
-
-Nick grinned. “I can dig.”
-
-“Good,” Ruth said. “You’ve got the arms for it.”
-
-Hailey’s smile stiffened, a quick flash of something territorial crossing her face before she looked away.
-
-Ruth moved on before it turned awkward, humming a tune under her breath that I couldn’t place, something old and crooked, like a lullaby remembered halfway.
-
-From there, Mae led us along a fence line toward the barn. A man about my age stood at a sagging gate, coaxing a hinge back into shape with a handful of nails and a hammer. A wheat stem parked at the corner of his mouth, and an easy grin on his face.
-
-“Jonah,” Mae said. “If it’s broken, he’ll fix it. If it’s not broken, he’ll fix it anyway.”
-
-Jonah stuck out a hand to Nick first, then me. His palm was rough but warm. “Ah, a city boy,” he added, friendly. “We’ve got a rehab program for soft hands.”
-
-Nick laughed. “I think he prefers to supervise.”
-
-“Supervisors get blisters too,” Jonah said. “Ruth sees to it.”
-
-From the barn loft, a skinny young man whistled and waved before vanishing again.
-
-“That’ll be Silas,” Jonah said, amused. “Don’t feed him after dark.”
-
-“Silas,” I repeated.
-
-“You’ll know him when you know him,” Jonah said.
-
-Mae and Abel led us on toward the animal pens. Chickens scratched in the dirt near a small shed. A girl sat among them, legs crossed, braiding flowers into her hair. For a moment I thought she was much younger than she was supposed to be, thirteen, maybe fourteen at most. Barefoot, dress hem torn.
-
-When she noticed us, she scrambled up and dusted off her knees. “You’re new,” she said.
-
-Elenor smiled. “We are.”
-
-The girl’s eyes darted to Elenor’s hand, to the ring there. “Pretty,” she whispered, then paused, thoughtful. “Do you like lemon or blackberry better?”
-
-“For what?” Elenor asked, laughing.
-
-“Just better.”
-
-“Blackberry.”
-
-The girl nodded like she’d been given an answer to a riddle, and hurried off, bare heels flashing in the dust.
-
-Abel watched her go, something like pride softening his features. “And that’s Clara,” he said. “That girl collects sunbeams like they’re chores.”
-
-We passed the tank Abel had mentioned, black-ribbed, cool in the shadow of the house. A tin ladle hung from a nail beneath the spigot. Beside it, a hand-lettered sign: GUEST WATER.
-
-Past the tank, the land rolled down toward a line of trees that gathered thick and dark at the edge of a field. From somewhere inside them, you could hear water, not loud, not obvious, just the steady hush of it, like someone whispering in the next room.
-
-Elenor cocked her head. “Do you hear that?”
-
-“Wind in the leaves,” Abel said easily, though there wasn’t any wind. “Best to keep out of those woods. Curiosity’s a debt that doesn’t stop collecting once you owe it.”
-
-Mae laid a hand on his arm, her voice soft but certain. “He’s right. Plenty of guests have come back from those woods with twisted ankles and bloodied shins. The ground turns mean out there, best to keep to the flat land where it’s kind.”
-
-“Aye.” Abel agreed absently.
-
-I smiled like I believed them, but I could tell the warning wasn’t about the terrain.
-
-We looped back toward the house before the light could decide which way to fall. Just to the right of the main house stood a small guest cabin, two narrow bedrooms split by a short hall, with a shared washroom tucked behind it under a sloped awning.
-
-“This one’s for you two,” Mae said, pointing to the door on the left. “And the one down the hall is for your brother and Hailey.”
-
-Elenor ran her fingers over an embroidered quilt. “It’s beautiful,” she said.
-
-Mae nodded. “The hands that make things put love in them. That’s what lasts.”
-
-Then she left us alone, her footsteps fading into the hall.
-
-El wandered the small space, opening drawers, smiling at the little note on the bedside table: *Welcome, Alex & Elenor.*
-
-“This is so cute,” El said. “It’s like staying at a museum you can touch.”
-
-I stood at the window and watched Harlan cross the yard with a log slung over one shoulder. He carried it the way I’d carry a backpack: absent, unbothered. For a second, his eyes lifted and met mine through the glass. Not hostile. Not curious. Just a long, flat look with something old behind it. Then he went back to the work that was already finished in his mind.
-
-“I’m gonna find a washroom,” El said, squeezing my shoulder as she passed.
-
-“Oh, alright, I’ll wait out front.”
-
-I stepped outside. The air had grown heavier, the gold of it deep enough to taste. Abel stood at the edge of the porch, lighting a lantern, the match burning close to his fingers before he bothered to shake it out.
-
-“It’s quiet here,” I said, walking up beside him.
-
-He watched the flame steady behind the glass. “Sometimes the things that change us are quieter than we imagine,” he said. “By the time you see them, they feel like they were always part of you.”
-
-The lantern light flickered against his face, carving the lines deeper. From inside came Mae’s voice.
-
-“Supper,” she called.
-
-Abel hung the lantern on its hook and straightened. El, Nick, and Hailey stepped out from the guest cabin at the same time, drawn by the sound of a dinner bell.
-
-Abel held the door open for all of us, that same patient calm still in his eyes.
-
-“Come eat,” he said. “You’ll need your strength for the morning.”
-
-\*\*\*
-
-The dining room was long and low, wood-dark and humming with warmth. Lanterns lined the walls, their glass fogged from heat, their light folding everything in amber. The table dominated the room, one heavy plank of cedar that looked older than anyone sitting around it.
-
-Bowls steamed between us. Mae moved quietly, ladling stew with the slow confidence of repetition. “Don’t be shy,” she said, smiling. “The food tastes better when it disappears.”
-
-Abel sat at the head of the table, posture upright but easy, like he’d been carved that way. Harlan sat near the door, shoulders filling his corner, silent as he had been since we’d arrived. Ruth and Jonah faced each other like a pair long used to working side by side. Silas lounged two seats down, tipping his chair on one leg.
-
-It was hard not to feel like we’d wandered into someone else’s rhythm—a pattern mid-beat.
-
-The family didn’t speak much at first. Only the sound of spoons scraping bowls, of Mae refilling plates before anyone could ask.
-
-Mae broke the silence with a smile. “You’ve met most of us already, haven’t you?”
-
-Nick nodded, mouth full. “Think so.”
-
-She gestured gently with her spoon. “Ruth runs the garden and keeps us all fed. Jonah fixes what time breaks. Silas… tries to help.”
-
-That earned a faint laugh from the others.
-
-Silas grinned. “You’re just jealous I work smarter, not harder.”
-
-“Smarter?” Ruth said. “Is that what you call hiding in the loft?”
-
-“Observation deck,” he said. “Better view.”
-
-Jonah snorted. “Better excuse.”
-
-Abel didn’t look up, but the corner of his mouth twitched.
-
-Even Mae chuckled softly, shaking her head. “You see what I live with.”
-
-Elenor smiled at that. “Feels like home already.”
-
-“Hopefully not too much,” Mae said gently. “The world out there’s a hard habit to break.”
-
-Nick gestured toward me with his fork. “We’re the reason you’ve got two city folks at your table. Figured they could use a break from concrete.”
-
-Elenor smiled. “And smog. Don’t forget the smog.”
-
-Hailey grinned. “And rent.”
-
-I laughed softly. “Yeah, mostly rent. City’ll charge you for air if you let it.”
-
-Mae tilted her head. “And yet you stayed.”
-
-I thought about it. “Habit, I guess. You work so hard to afford a life, you forget to live it.”
-
-Abel raised his glass slightly. “Quiet’s not free either,” he said. “You just pay for it differently.”
-
-The fire popped. Nobody spoke for a moment.
-
-Then Mae’s voice softened. “Where’s Granddad tonight?”
-
-Abel didn’t look up from his plate. “In his room,” he said. “Said he needed to listen awhile.”
-
-Jonah nodded, swallowing. “The ground’s been stirring again.”
-
-Mae nodded like that made sense. It didn’t.
-
-The door creaked open behind us.
-
-A girl stepped in, barefoot, dress smudged with dirt. Her braid hung loose, and there were dark stains beneath her fingernails—not wet, but not old either.
-
-Clara.
-
-She kept her eyes down, slipping into her chair like she’d been there all along. Mae placed a bowl in front of her without a word.
-
-Silas leaned forward, resting his elbows on the table. “You wash up with mud now, kid?”
-
-Clara ignored him.
-
-He grinned wider. “Guess that’s one way to blend in with the pigs.”
-
-Jonah gave a quiet “Silas,” under his breath, but it did nothing.
-
-Silas dipped his spoon, flicked a bit of stew at her sleeve. “Missed a spot.”
-
-She looked up, expression calm but flat. “You done?”
-
-“Just making conversation.”
-
-“Try harder,” she said, voice low.
-
-Silas laughed, a dry, empty sound. “Careful, sister. You’re starting to sound like Ruth.”
-
-That was when Harlan stood.
-
-The chair’s scrape cut through everything. He didn’t say a word, didn’t need to. His shadow stretched the length of the table.
-
-Silas’ grin faltered. “Kidding,” he said softly. “Just kidding.”
-
-Abel didn’t raise his voice. “Harlan.”
-
-The big man’s head turned slightly.
-
-“Sit.”
-
-He did.
-
-Then Abel looked at Silas, calm and final. “You don’t sharpen a knife on family.”
-
-Silas nodded once, eyes low. “Yes, sir.”
-
-The room exhaled.
-
-Clara finally glanced at Harlan, the ghost of a smile curling at her mouth. “Calm down, big guy. I can handle him.”
-
-A few small laughs slipped through the tension. Mae’s hand brushed Clara’s shoulder as she passed, steadying, grounding.
-
-The meal carried on—slower now, but softer. Ruth asked Nick about his work, curious in a quiet, measured way. Mae asked Elenor about her ring, her smile genuine. Abel mostly listened, weighing silences.
-
-The food was rich, the warmth steady. But every so often, I caught myself noticing the details: like how the family drank from old, earthen mugs instead of the clear glasses set for us, I couldn’t quite tell what they were drinking.
-
-Abel’s hand rested near his cup, but his eyes kept drifting toward the window, as if something out there was listening too.
-
-When Mae finally rose, she did so gently, her voice the soft close of a hymn. “You’ve all had a long day. Tomorrow starts early. The light comes quick here.”
-
-Abel stood as well, his chair groaning. “Rest well,” he said. “Work or not, everyone contributes here.”
-
-\*\*\*
-
-Back in the guest bathroom, the air felt cooler. Hailey leaned against the sink, hair tied up, a half-drunk glass of wine in her hand.
-
-“They’re nice,” she said, “but that was... different.”
-
-Nick grinned, rolling up his sleeves as he washed his hands. “Different’s good. I didn’t see anyone glued to a phone.”
-
-“Maybe because they took them all,” Hailey said. “Pretty sure that counts as kidnapping.”
-
-Elenor sat on the edge of the counter, towel over her lap. “They just have their way of doing things. It’s kind of refreshing, actually.”
-
-“Until they say grace over a fresh guest stew,” Hailey muttered.
-
-Nick chuckled. “Hey, you’re the one who wanted to come. You’re just paranoid.”
-
-“I’m aware,” she said, taking another sip. “Doesn’t mean I’m wrong.”
-
-I turned on the tap. It gurgled, coughed, then fell silent. Elenor pointed to the black drum in the corner. “Guest water,” she said.
-
-Hailey crossed her arms. “It’s weird we can’t even use the tap. What happens if you forget?”
-
-Nick shrugged. “Guess you don’t forget.”
-
-Elenor smiled faintly. “You guys think too much. It’s just plumbing.”
-
-“Maybe,” Hailey said, glancing toward the window. “Or maybe it’s something else.”
-
-Nick stepped behind her, pressing a kiss to her temple. “It’s just old pipes, babe. We’re fine.”
-
-She relaxed slightly, smiling despite herself. “Fine. But if I start growing gills, I’m blaming you.”
-
-Elenor laughed softly. “God, you’re dramatic.”
-
-“Occupational hazard,” Hailey said. “I like to keep the mood lively.”
-
-The light flickered once and steadied.
-
-Nick stretched, yawning. “Alright, campers. Big day tomorrow.”
-
-Elenor stood, brushing her hair over one shoulder. “You coming?”
-
-“In a sec,” I said, glancing at the window one last time. The farmhouse glowed faintly through the trees, lanterns still burning inside.
-
-Elenor touched my arm. “Come on.”
-
-I followed her, closing the door softly behind us.
-
-The night felt thick around us, the air cool and wet. Above, the stars burned sharp and endless—millions of diamonds I’d forgotten the city had stolen from me.
-
-\*\*\*
-
-The guest cabin held the day’s warmth like a kept secret.
-
-The lantern on the dresser hissed low, its flame cupped in glass, throwing a soft amber sway across the walls. Outside, the crickets had gone still. The quiet wasn’t empty, just dense, like a blanket pulled over the night.
-
-Elenor sat cross-legged on the bed, brushing her hair. I watched her reflection in the small mirror: the way her eyes didn’t quite look at herself but at the space around her, as if the room were a pond and she was checking what moved beneath the surface.
-
-“You know,” she said softly, “for a place this quiet, it doesn’t feel empty.”
-
-I was half-lying on the quilt, propped on one elbow. “No. It doesn’t.”
-
-She set the brush down and turned, that small smile widening just enough to reach me. She looked like home, the kind that makes you forget what time is doing to you.
-
-When she crawled into bed, the quilt lifted with a papery whisper. Her palm found my chest, tracing slow, absent shapes. Her knee brushed mine; the mattress sighed, old but steady.
-
-“You think they’re asleep already?” she whispered.
-
-I glanced toward the door. “Feels like the whole farm is.”
-
-She smiled. “Then I guess it’s just us.”
-
-She kissed me, soft at first, then deeper, the kind of kiss that pulls the world in close. My hand slipped to the back of her neck, her pulse warm beneath my thumb. The lantern light wavered and set our shadows breathing on the walls.
-
-We moved the way you do when you’re trying not to wake a house: slow, familiar, reverent. For a while, the world was only breath and skin and the heat of being known.
-
-She laughed softly into my neck. “You packed the condoms, right?”
-
-“Drawer,” I murmured.
-
-Her hand reached past me, the drawer giving a small wooden sigh. A rustle, then stillness.
-
-“They’re not here.”
-
-I blinked. “What?”
-
-“The condoms. You sure you packed them?”
-
-I leaned over and looked into the drawer. No box. No wrappers.
-
-“I swear I put them right there. Maybe Nick stole 'em?” I said. “We’ll check in the morning.”
-
-“Yeah,” she said quietly. “Morning.”
-
-She came back to me, though the rhythm was different now, something cautious beneath the warmth.
-
-Then I felt it: the smallest thread of air against my ankle, cool, damp, shaped like a breath slipping through the crack beneath the door.
-
-I froze.
-
-Elenor did too. Our breathing fell out of sync.
-
-“What?” she whispered.
-
-The quiet had shifted tones, same silence, different weight.
-
-A board bent. Not the lazy sigh of old wood, but a careful test of pressure. Then a pause. And in that pause came a breath: long, uneven, dragged through a throat that didn’t quite know how to be quiet. A wet, rasping inhale.
-
-Elenor’s hand tightened on my arm. “Alex.”
-
-The door wasn’t shut all the way. A thin seam of dark where wood should’ve met wood. I remembered closing it, remembered the click. The gap was small, but wide enough to imagine an eye behind it.
-
-“We closed that,” I said, barely above air.
-
-The breathing came again, slow and steady, a soft gurgle like a man half drowning.
-
-“Nick?” El tried.
-
-Silence answered. Then another soft exhale, hot and damp, threading through the crack.
-
-I slipped from the bed. The floor met my feet like ice. The lamp’s glow reached only halfway across the room, beyond that, everything was a suggestion.
-
-“I’ll check,” I whispered.
-
-“Alex, don’t—”
-
-But I was already opening the door.
-
-Nothing.
-
-The hall pressed in close, walls breathing with the heat of the day. The lamp at the far end had burned down to an amber pulse. My heart made too much sound.
-
-I stepped toward Nick and Hailey’s door, the boards groaning softly beneath my weight. A line of light glowed under their door, steady, human. I knocked lightly.
-
-“Nick.”
-
-A muffled voice came from the other side. “Jesus, man. You good?”
-
-“Did you hear anything? Breathing? Steps?”
-
-There was a pause. Sheets rustling. Hailey’s tired voice somewhere in the mix. Nick laughed, low and hoarse. “Pretty sure that was you, dude. You two aren’t exactly subtle.”
-
-“Not that,” I said. “Someone was outside our door.”
-
-His tone changed. “You serious?”
-
-“Yeah.”
-
-He hesitated, then said, “Probably the wind. This place creaks like hell.”
-
-“Yeah,” I said. “Probably.”
-
-But the air didn’t move. Not even a whisper.
-
-When I turned back, my throat went dry.
-
-The front door of the guest cabin was standing wide open.
-
-Beyond it, the night was a flat sheet of black. The curtain beside the frame swayed once, then stopped dead.
-
-For a moment, I couldn’t move. Something had either just left—or entered.
-
-“Nick,” I called softly, but their door stayed shut.
-
-Wearing nothing but my boxers, I took a step toward the open doorway. The air that started to pour in from outside was cold, metallic, carrying the smell of wet leaves and soil. The yard stretched beyond: a wash of colorless shapes, the fence like a spine against the horizon.
-
-And then it hit me like a stone to the gut: *Elenor*.
-
-I ran for our room, hoping, praying, that something hadn’t reached her before I could.
-
-The boards wailed under me. The lamp flickered once, as if flinching from the noise. I reached our door, my hand slapping the wood as I went to push it open, but my palm landed on something warm.
-
-Not warm like sun-touched wood. Warm like skin. Damp. The kind of warmth that lingers after a mouth.
-
-I yanked my hand back. Someone had been standing there. Breathing against the door.
-
-I shoved it open.
-
-Elenor sat up in bed, eyes wide. “Jesus—Alex?”
-
-I scanned the room. Empty. Just the lantern glow, the quilts, the open drawer.
-
-“Door was open,” I said. My voice didn’t sound like mine.
-
-“What?”
-
-“The front door. Wide open.”
-
-She stared at me. The silence between us felt like static.
-
-I shut our door hard and twisted the latch until it caught. Then dragged the chair from the corner and jammed it under the knob.
-
-“If that door opens again, I’m going to lose my shit.”
-
-Elenor’s eyes followed me as I climbed back into bed. “You sure it wasn’t the wind?”
-
-“No,” I said. “Not the wind.”
-
-We didn’t touch. The air between us felt thick—watched.
-
-As I sat awake and watched the door fade into shadow, I swore I could still hear breathing softly through the wood, like the cabin itself had learned the rhythm of our sleep, and was keeping time.
-
-[Part Two >](https://www.reddit.com/r/nosleep/comments/1p5ytud/stillwater_farms_part_two/)
+Don’t look for the door. If you hear the static’s hum, learn to live with it. The only thing worse than hearing that signal is the silence you have to create to make it stop.
