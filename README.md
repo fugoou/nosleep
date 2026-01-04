@@ -1,142 +1,142 @@
-# I was stalked by a man and I don't know why
-Hi everyone.
+# I was investigating a missing girl who took the midnight bus (Part2)
+[Part1](https://www.reddit.com/r/nosleep/comments/1p1zied/i_was_investigating_a_missing_girl_who_took_the/)
 
-Just for some context, I am a HUGE horror fan. I work as a creative writer within the indie film industry and even have several produced films on streaming platforms.
+While sitting next to Elise, I caught the musicians’ hostile glances directed at me. They were probably expecting me also to be in a trance just like Elise, but I was wide awake, alert and in full touch with reality. 
 
-I often wonder what actually prompted my interest in horror, and how it became such an integral part of my life and career. They say your life experiences can mould you into who you become, both professionally and personally.
+I had clearly disrupted their plans, and they made it obvious I wasn’t a welcome presence on the bus. 
 
-I believe the moment that changed everything was an experience I had when I was in my late teens. I was around 16 or 17 years old. I'm currently 25, so this happened roughly a decade ago now. Oh, and also, I'm male. This isn’t incredibly important, but given the context of the situation, what happened to me more often happens to females, so that’s why I’m including it.
+Then two of the musicians slowly began to approach me with a threatening intent, but I lifted my cross in readiness. The sight of it made them recoil, forcing them to eventually retreat back to their seats.
 
-I grew up in a small village in the South of England. It was completely remote, surrounded by hundreds of fields until they reached the closest town, which was about 20 miles away. Yeah, pretty remote.
+I tried to wake Elise, who sat in a trance, staring into a void. I even chanted a few mantras, hoping to break her out of it, but nothing seemed to work.
 
-It was the middle of the week when it happened. My friend (who I’ll call Ryan for privacy reasons) and I decided we were going to travel to the abandoned remote house that lay in one of the fields about a mile out of the village.
+Meanwhile, the bus seemed to continue on its familiar route after departing from the train station, and was now headed towards its next stop—the Vintage Movie House. 
 
-Now, this house was creepy, but me and Ryan had been there so many times - normally during the night - that the creaks and shadows in the place didn’t frighten us one bit anymore.
+There was one key difference this time, though: it didn’t stop at the movie house but continued to drive past it, heading next towards Grace Supermarket, followed by the local gas station before finally looping back to the bus stop near St. Mary’s Hospital, the exact spot from where Elise had boarded the bus a week earlier.
 
-There was nothing special about this place at all. It was literally just an abandoned house, shrouded in overgrown grass and trees. Easy to miss if you didn’t know where you were going.
+ I observed silently that the bus had just completed the pentagram ritual and I secretly wondered what would follow next. 
 
-We had no idea who had lived there in the past, but it had clearly been abandoned many years ago.
+But something strange happened as the bus passed the hospital, and continued to move without stopping.
 
-Ryan and I grabbed a couple of deckchairs and some beers out of our parents’ fridges, and met at the entrance to the field before taking our first steps into what seemed like endless patches of dirt, wheat and grass.
+Elise suddenly snapped back to her senses, breaking free from her trance. Panic spread across her face, as she looked wide awake and fearful. 
 
-It took us roughly 15 minutes to reach the house, and when we did, we did our usual set-up. We walked up the broken staircase to the first floor - second floor, if you’re American - and set up the deckchairs in the corner of the room that we always chose.
+Thankfully, I was sitting right beside her, ready to help and calm her down. 
 
-The wall next to that corner was heavily damaged. There were large holes in it, allowing you to see in and out of the structure. We made sure never to lean directly on it, for fear that it might collapse entirely.
+“Hello, Elise. I’m Harrison Ward, a paranormal investigator. Your father, Mr. McDonald, sent me to rescue you. Don’t worry; I’m here to get you back to safety. But first, I need your help. Do you know where we’re headed next?” I asked, as the bus began to slow down at a traffic stop.
 
-Ryan always brought a speaker and a large flashlight, so he set that up too, and within minutes we were listening to music and chatting about college, jobs, girls… everything two teenage boys like to discuss.
+She nodded, sweat dripping down her forehead. “Toll Gate. I am supposed to get off at the toll gate. All passengers have to leave the bus when another one climbs on board,” she explained, referring to me.
 
-We did this roughly every two weeks or so. It wasn’t a scheduled event, more like a random “Do you wanna go to the house?” message at 8 p.m. from one of us to the other - and nine times out of ten, we’d go. We normally only stayed for around four hours, max.
+“Do you know where this toll gate is?” I asked, straining to listen.
 
-Anyway, we’d been at the house for about two and a half hours when Ryan suddenly pressed stop on the speaker, turned off the flashlight, and froze. I asked him what was wrong, and he just put his finger to his lips. Ryan didn’t scare easily - he’s actually in the military now - so I was slightly on edge when this happened.
+She nodded, fear etched across her face as she pointed with her hand, and at that moment, I understood why the bus had stopped. 
 
-After a few seconds of pure darkness and silence, I heard it. It sounded like somebody was moving through the thick, overgrown grass towards the house. Despite the darkness, we could just make out each other’s expressions. Ryan and I exchanged a look as if to say, “Should we get the hell out of here?”
+I turned to my side and saw an old, abandoned building with a massive wrought iron gate in front. An old sign above read "Abagnale Mental Asylum," sending a chill down my spine. 
 
-But we didn’t move. We just listened as the sound gradually came to a stop. And it didn’t stop just anywhere. It stopped maybe a few feet away - below us.
+This was exactly the spot where the cops had discovered the bodies of previous passengers. 
 
-Ryan gently moved to the wall and looked through one of the holes. After a few seconds, he turned to face me and shook his head.
+Suddenly, as the bus slowed near the traffic light, the driver began revving the engine hard, sending thick plumes of smoke billowing around us, quickly filling the air with an oppressive haze.
 
-It was my turn now. I looked through - and with a sense of adrenaline and newfound courage building - I went to take the flashlight from Ryan’s hand. He wasn’t expecting me to grab it, so instead of taking it, I knocked it out of his hand. It landed on the ground in front of us… and of all the things that could have happened, the worst one did.
+Our visibility plummeted, and we started coughing as the smoke thickened around us. 
 
-The flashlight turned on. I snatched at it, shining it up so I could see the buttons. This was a heavy-duty, military-style flashlight - the kind that could illuminate for literal miles if it wanted to. It wasn’t on that setting, but it might as well have been.
+The driver then slammed the accelerator, and the bus suddenly lurched forward at full speed, even as we all were completely shrouded in smoke.
 
-Realising that our position had been given away, I instinctively flashed the light out of one of the holes towards where we last heard the movement.
+Moments later, it came to a sudden halt in front of a large toll gate in the middle of the road. There was nothing else on either side of the gate—no cars, no passengers—nothing except the midnight bus parked in front of it. 
 
-My heart has never raced so quickly in all my life.
+My eyes immediately gravitated toward a man dressed in a security uniform seated in a booth near the gate.
 
-Hiding in the long grass… was a person. The face was covered, except for the eyes. I couldn’t make out any distinct details, but one thing I did see scared me half to death.
+“The Toll Collector……,” I silently muttered under my breath, recollecting what the old man in the nursing home had said, and I immediately felt an uneasy feeling in my stomach.
 
-This person wasn’t standing in the field. They were lying in it. I quickly realised why Ryan hadn’t seen them.
+ Suddenly the environment around us became deathly silent; I could smell fear all around me. 
 
-As the flashlight made contact with the person, they turned and bolted for the field. Ryan had seen it too through another hole and had already started packing the chairs and gathering the other supplies.
+It was not just me or Elise, even the musicians who were busy glaring at me all this while, were now cowering in their seats. 
 
-We didn’t say anything to each other in that house. We just left the way we came in. Unfortunately, that way was through the long grass the person had been hiding in. If we hadn’t seen them run off, we might have had to leave another way. We sprinted almost the entire way back.
+But the worst affected seemed to be the driver. He looked absolutely panic stricken.
 
-It wasn’t until we saw the lights of some village houses that we finally stopped running. Ryan and I began speculating. This had been - and still is - the most scared I had ever seen my friend. We wondered why they had been lying there and what they had planned to do if they’d caught us.
+ Infact, I noticed he wasn’t pale and white looking like the musicians, he looked more like me or Elise. He was actually human!
 
-We both got shivers just thinking about it and decided we were never going back there again. It just wasn’t worth it.
+The driver slowly rose from his seat, turned toward Elise, and said, "Your stop has arrived. You need to get off the bus."
 
-I wish I could tell you that was the end of the story.
+As Elise began to stand, I grabbed her hand, urging her to stay seated.
 
-But there are two more parts yet to be told.
+ “She is not getting down anywhere,” I shouted. “ She is going to continue to stay here in the bus next to me.” 
 
-I didn’t mention this before, but when I saw this person stand and run, I’d been amazed at their height. It was clearly a man - it had to be. He was around six and a half feet tall (I’m six, and so is Ryan, for context), and he was stocky. The height was one of the reasons we were so scared. This person could easily have overpowered both of us.
+I watched the color drain from the driver’s face as he seemed to wrestle with the dilemma of confronting me. His shoulders finally slumped, and he stepped off the bus, walking over to the booth where the security guard was seated.
 
-A week later, I was shopping with my mum. Remember that town 20 miles away I talked about? That was the biggest supermarket near us, and my parents regularly went there to shop.
+From where I sat, I could hear the guard’s irritated voice ask, “Why are you here? Where is the passenger?” 
 
-I hadn’t mentioned any of what happened to my parents. They didn’t approve of us going there, citing it as a dangerous building that could collapse at any second (which, on reflection, they were clearly right about).
+The driver leaned in and whispered something I couldn’t quite catch, but the guard’s reaction was immediate. He sprang to his feet and strode outside the booth, visibly looking very angry.
 
-My mum was looking at the large drinks packs in the final aisle of the store. I had a sudden urge to pee, so I told her I’d go to the store restroom and be back in about five minutes. She said okay, and I left.
+Then, to my horror, I watched as the guard’s torso began to expand, his uniform ripping apart as his form began to change. 
 
-As I walked to the restroom, I remembered that person and shivered instinctively. As I entered the men’s, I thought about what they were doing out there. The village was the closest location for miles. Did they live there? They had to. If they’d lived in the house, that wouldn’t have been the first time Ryan and I had seen them.
+He transformed into something monstrous—a towering, demonic figure with the head of a crow, a human-like torso, with enormous claw like hands, and vast black wings that folded along his back.
 
-Thoughts swirled in my mind as I entered the cubicle. I’m not kidding when I say that almost immediately after I closed the cubicle door, the main door into the men’s restroom opened.
+The creature clamped its massive, clawed hands around the driver’s face, squeezing until his eyes bulged and finally burst, the driver’s terrified screams filling the air. 
 
-This freaked me out, but I just assumed it was weird timing. As I undid my belt, I waited for the sound of the men’s restroom door to shut… but it never did. It was as if somebody was holding it open. This wasn’t a silent-closing door either. It made a loud sound when it shut - as I’d found out mere seconds before.
+With a single brutal swipe, the creature next tore the skin clean off his face, leaving him shrieking in agony.
 
-Now I was really freaked out. And my mind began to piece things together. Had this person followed me that night? It wouldn’t be hard, given that Ryan and I had walked straight back to our houses. That person didn’t need to be a genius to figure out that we lived there.
+The demon then leaned in close and drew in a deep, ghastly breath, sucking the driver’s very soul from his body. 
 
-If only to cement these anxiety-inducing thoughts, the thing that happened next scared me more than the first time I saw this person.
+In one final act of savage brutality, he yanked the driver’s head from his shoulders, and let the body drop lifeless to the ground.
 
-I heard a voice coming from the small block between the store and the men’s. You know the one - the space where you decide which room to enter: men’s, women’s or disabled, normally.
+I finally realized why he was addressed him as the toll collector and why everyone was so petrified of him. He took people’s souls.
 
-The voice came from a man who clearly wanted to enter the restroom. “You alright, mate… hey, what’s going on?”
+ I could already feel beads of sweat forming around my forehead as well.    
 
-Almost immediately, I heard a figure moving fast, followed by a groaning sound from the man who’d spoken. “Oi, watch it?!” Then, slowly under his breath… “That guy was wearing a bloody mask…”
+The Toll Collector then climbed onto the bus, his taloned finger extending to point at Elise and me. 
 
-I froze.
+His menacing voice echoed through the vehicle as he warned, “If you don’t get off now, your fate will be far worse than the driver’s.”
 
-“Hey, is anyone in here? He’s gone now, don’t worry, mate. You can come out.”
+ I could feel Elise trembling beside me, but I wasn’t about to back down. Not now against this monster.
 
-My hands were completely shaking, but I managed to do my belt back up and exited the cubicle. My bladder could wait.
+I stepped forward, defiant even as I felt fear rippling through my veins. 
 
-When the man saw me, his eyes widened. He told me exactly what had happened. He’d been standing there, hand on the door, waiting. He could only see the back of him as he approached, and when he asked if he was alright, the man turned to face him. That’s when he saw the mask. It was covering everything apart from his eyes. He had bolted out, shoving past the man in the process. Hence the "Oi!"
+But my act of defiance only seemed to enrage the creature further as he lurched toward me, his dark form swelling with anger. 
 
-We had a brief conversation, where I explained what had happened at the abandoned house and how Ryan and I had been terrified. The man told me he was surprised when I stepped out, given how young I was. He thought he’d just caught a drug deal gone wrong or something like that. He wasn’t expecting to see a teenager exit the stall.
+I moved quickly as well, slamming into him with all my strength, and together we crashed through the windshield, shattering the glass as we tumbled outside. 
 
-After that, I thanked the man and told my mum and dad everything. They called the police, who assured us they’d find this guy. CCTV had caught him outside the store, but once he was out of sight, they lost track. The town was small, so CCTV wasn’t everywhere.
+I held my cross tightly in one hand, and as I faced off against the creature, he paused, taken aback by my resistance. 
 
-The main theory was that the man was homeless, and Ryan and I had just so happened to go to the house not long after he decided to make it his own home. This had prompted him to make sure we never went back by threatening us. We’d just been unlucky.
+He hissed, his eyes burning with fury, as he called out to the musician-ghosts. They rose from their seats and surrounded me, their spectral forms closing around me in all directions.
 
-But something didn’t add up. If he was homeless, how the hell did he manage to follow me and my mum 20 miles to that store? There was no footage of him in a car. The only footage outside the store showed him walking down the road towards it on foot. This confused not only me, my family and Ryan, but also the officers.
+Now outnumbered, I fought them off one by one, but they clawed and tore at me, pressing me down. As they overwhelmed me, the cross slipped from my grip, clattering to the floor. 
 
-They speculated that he might have grabbed a lift with somebody else and left not long before entering the store. Worse - he could have stolen a car. Each was a possibility. The man was huge… definitely intimidating.
+I then felt a cold, merciless hand wrap around my head, squeezing until pain shot through my skull. 
 
-So after all of this, you’re probably thinking… how unsatisfying is that? Just a homeless man who wanted to make sure we never returned to his house. Well, the police monitored the house, and despite having officers there for around a month, the man was never seen by them.
+My vision blurred, and I could feel my eyes threatening to burst from the pressure as I screamed in agony.  
 
-Ryan was never directly approached either. Although, he was on high alert, fearing that he might be cornered like I was - only without an upstanding citizen to help.
+Just as the Toll Collector leaned in, ready to steal my soul, I reached for the amulet around my neck—a talisman my grandfather had gifted me, one he claimed held magical powers of protection.
 
-I’ll end this story by telling you one final event that happened.
+Gripping the amulet, I felt a surge of energy suddenly rip through my body.
 
-When I was 19, I was accepted into my chosen university to study Literature, which was great. I was finally leaving home and would have the sense of independence I’d been craving at that age. Weirdly, when I opened the acceptance letter, it had been ripped in half. Luckily, I received an email too, so I was able to read the whole thing.
+The demonic being was blasted backward, flinging 10 feet in the air. 
 
-One day, about a week before I left, the doorbell rang. I answered to see the letterbox in the door was open, but no letters were on the floor. Instead, they were on the outside of the door - like someone had posted them from the inside. I found this strange, but opened the door nonetheless.
+I held up the amulet, and a burst of light exploded from it, tearing through the musician-ghosts around me, freeing me from their grasp. 
 
-One thing I’ve always noticed is that we normally have the same two postmen in the village. They don’t live here, but they always cover our route.
+With renewed strength, I seized the cross from the ground and charged at the Toll Collector. 
 
-I looked up to see this postman was a different person. Not only that, but he was waiting in his car on the road outside my house. He was also wearing a low cap, so I couldn’t see his face. I frowned as I saw the man waving a letter outside the open car window.
+Beams of light poured from the cross, piercing his form as he writhed in agony. The dark creature let out a final, blood-curdling scream as his body disintegrated into a cloud of feathers that scattered to the ground. 
 
-“Sorry, I forgot to give you this one! Can you come get it? Knees are sore.”
+With the Toll Collector’s gone, the musicians’ ghostly forms also began to soften, their faces showing relief as the curse of almost a hundred years was finally lifted. 
 
-The way the man said this almost sounded… rehearsed. I walked up slowly and took the letter from him. He was wearing black gloves. Thick ones, too - definitely not part of the uniform. Almost immediately after I took the letter, I caught him looking at me.
+They thanked me with a nod, each dissolving into the night air as they vanished, leaving Elise and me alone in silence.
 
-As I did, his gaze dropped instantly. But it was too late. I’d already seen the man’s eyes. And my God… they had the strangest expression I’d ever seen in a stranger’s eyes. It could only be described as a longing one - an expression of desire or warmth. The only thing I could compare it to is the look a mother gives when she hasn’t seen her child in a while - that initial look of love.
+Elise and I looked around, finding ourselves stranded on the road in the middle of nowhere, with only a large toll booth looming in front of us. 
 
-You might think I’m overreacting, but at first I felt incredibly unsettled. After he drove away, I thought nothing of it.
+Suddenly, I remembered the bus tickets. 
 
-Not until I opened the letter. It had no Royal Mail stamp on it. No return address, and no posted address. Just a plain piece of paper. Inside, it read:
+Moving toward the Toll Collector’s booth, I found a large box of collected tickets. I lit a match, setting the entire stack ablaze. As the flames consumed the tickets, the world around us began to spin, colors swirling, until everything went dark.
 
-“I missed you. Don’t go.”
+When I opened my eyes, I was back on an empty bus with Elise, parked in front of the Abagnale Asylum. I heaved a huge sigh of relief to be back on familiar ground. 
 
-That was it.
+When Mr. McDonald finally reunited with his daughter, he was overcome with emotion, his eyes brimming with gratitude. I felt a deep sense of happiness knowing I had helped them, and as I began my drive back home, a warm satisfaction settled over me.
 
-It had been at least a couple of years since the first event, but it had stuck with me all my life. When I read that letter, the pieces clicked. That man had given me the letter. That man had ripped my acceptance letter in half. That man with the longing eyes.
+That night, as I lay in bed, my body bruised and my mind utterly exhausted, I drifted off to sleep the moment I closed my eyes. I found myself standing before the Abagnale Asylum, a slow laughter suddenly cracking through the stillness. 
 
-I did call the police after that, and they found out that the postman who normally did the run on that day had disappeared around two weeks earlier. The letter showed no trace of DNA - the man’s gloves had probably made sure of that.
+The massive wrought iron gates swung open, beckoning me toward the crumbling structure cloaked in twisted vines and overgrown shrubs. 
 
-Since then, I’ve never seen him again. Probably because I live on the other side of the country now. This experience was definitely a creepy one, but it also helped shape my interest in the subject of horror. It inspired some of my writing, and even some of my films.
+Inside, I wandered through shadowed halls, until I reached a locked door at the end of a darkened corridor.
 
-The strangest thing of all for me… was that Ryan was never contacted by him.
+ “You think you have solved the mystery have you?” a voice called out as a laughter ominously echoed through the air. 
 
-This man… he only wanted me.
+I jolted awake, sitting upright in bed, sweat trickling down my forehead. Reaching for a glass of water , I noticed a single crow feather resting on my bedside table.
 
-And I don’t know why.
+\*\*\*\*\*\*\*\*\*\*\*\*
