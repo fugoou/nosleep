@@ -1,158 +1,94 @@
-# Every Halloween The Pumpkin Father claims a soul. This year I think he is coming for me.
-I used to think the story was fake, just a rumor to keep kids away from the old farmhouse. I had never seen anything myself, not until last year when it all happened. Not until I made a mistake, the worst mistake in my life, when I wrecked that pumpkin. It was an accident, but it didn’t matter, he did not care. I barely survived the nightmare of our first encounter and now I think he is coming for me again.
+# I am rot.
+I’ve read that a body can take over a year to fully decompose, so I guess I’m just really good at it. Every single day, another piece of me seems to loosen or open up or fall off. I can’t even scratch an itch anymore without losing chunks of flesh from the simple friction of my nails against my skin. I don’t know how much longer I have, or what will happen when the final pieces of rot slide off my skeletal frame. Will I “die?” I’m already dead, at least I think I am. Will I still be conscious? Even when I’m nothing but a pile of slimy bones, unable to move or do anything at all? I deserve this.
 
-To start I should say my name is Jake and I used to live in a small town in Iowa, I wont say where for both privacy reasons and to keep people well away from that place at this time of year especially.
+Last month I got off work and walked home like I always do, stopping at the pita shop that I stopped at every single day. I got my normal, but they fucked up my order and let me keep it anyway, so I had two gyros. It sounds stupid but that genuinely felt like a shining piece of good luck and I hardly ever get anything like that, so my day had gone from bland to absolutely glowing in an instant. The little things in life, right?
 
-My town has a disturbing urban legend about a strange figure, “The Pumpkin Father”.
+On the walk home there was a homeless guy on the street corner, leaned up against the brick wall. He didn’t have a sign or anything, but he smelled bad, I could actually smell him from several dozen feet. It was like rotten eggs, and the closer I got the worse it was. I tried my best to keep my distance from him but of course the light changed as soon as I got to the cross walk, and I had to stand there awkwardly as I waited for the walk sign to come back on. 
 
-They say the Pumpkin Father first appeared here in 1967, after old farmer Keller's family disappeared. The man went mad with grief and lost his mind after his wife and children died in a house fire.
+“You ain’t gon’ eat all that.” 
 
-It was tragic, but what happened after, was where is got more…disturbing. They say he began to carve faces into pumpkins. Not the cheerful, grinning Halloween kinds, but twisted, anguished expressions that looked too real to be made by human hands. People claimed the faces resembled his lost children. Worst of all, were the stories of how he would abduct people from town, sever their heads and place his pumpkin family jack'o lanterns on them to join his twisted surrogate family.
+At first I didn’t even know he was talking to me, his voice sounded closer than he was sitting, so I looked over my shoulders to try and figure out who was speaking. He was the only person near me, and he asked me again. His voice was gravely, and he had a southern accent. I looked down at the bag of food in my hand, which was a brown paper bag so he shouldn’t have even known how much food was in it. I ignored him and turned to face the crosswalk again, but then he said it again. 
 
-I remember hearing the stories as a kid. How every year on the anniversary of the fire, one person would disappear from town. Always someone who had damaged one of the Pumpkin Father's creations. The police called them runaways or accidents, but everyone suspected something worse. People would say that pumpkins would appear on the victims' porches the night before. I never paid much attention to the warnings. Not until last year, in October, right near Halloween. Not until I accidently ran over that pumpkin on the edge of Keller's property on a dare.
+“You ain’t gon’ eat all that.” His voice was louder, angrier, more direct. 
 
-My friend Emily and I were driving home and passed the old farmhouse. Something distracted me from where I was going and I missed it, it was a jackolantern right on the edge of the road, just outside the driveway of the infamous farmhouse.
+“It’s for my girlfriend” I snapped back, lying to him. I honestly don’t know why I lied, it’s not like he could know what was even in the bag. I just felt like I had to defend myself in a strange way, like I owed the guy some explanation of why I wasn’t giving him my food. Now, looking back on it, I think the messed up order was not a stroke of good luck. 
 
-I stopped the car and got out, to check. When I looked closer, the side of the Pumpkin fell in further. But it didn't just break, it seemed to scream. A sound like wind that somehow formed into a child's wail after a moment. Emily heard it too. Her face went white and we both knew we had made a huge mistake. When we turned around we saw something, or someone.
+The lights changed and I almost ran across the street to get away from that man. I pushed it from my mind and tried to recapture the positivity that I had before the stranger spoke to me, but in my efforts to relax I found myself absent minded. I never saw it coming, I still don’t even know what kind of car it was, but it felt like a bus. 
 
-It was a tall, impossibly thin figure standing at the edge of Keller's property, silhouetted against the dying sun. Its head was misshapen, bulbous. I blinked, and it was gone.
+It hit me on my left side and my vision instantly went black. I couldn’t see or hear, but I could feel. It was like every bone in my body was shattered into pieces, and the little shards stabbed into every part of me from beneath my flesh. I felt my feet get ripped from the asphalt, I felt my body weightless in the air before slamming back into the ground, wrapping itself around what I can only assume was a stopping or telephone pole. Nothing ceased, aside from my lack of vision and hearing, I was *present*, I could feel and think and realize. 
 
-"Did you see that?" I whispered to Emily.
+Every single minute that I laid there, I felt it. I felt the cold ground beneath me, the warmth of the blood leaving my body and pooling under me. I remember the way it felt when I was finally lifted up, the nearly coagulated blood sticking to me, like tape being peeled. I remember the way my legs felt as they swayed back and forth, the way the arms held me up. I can’t stress how long it took, from scraping me off the sidewalk to dumping me in that shallow grave. They carried me for what felt like hours, and every single minute I was trying to snap out of it and wake up. Until I finally did.
 
-She nodded, her fingers digging into my arm. "Let's get out of here."
+The first thing I remember was how cold I felt, the morning dew had glazed my flesh and almost frosted over. The coldness was numbness though, so initially the only part of my body I dared to move was my eyes. The moon, the trees above me, the stars, that was all that existed for a brief moment. That’s all I could see. When I finally gained the courage to move, the *pain* started instantly. Every part of me was sharp and jagged, like the mere thought of movement was enough to paralyze me in pain. 
 
-We didn't talk about it after that. Not until the pumpkins appeared soon after.
+I lifted my head from the wet dirt and lifted my left arm. It was worse than it felt, the bone was entirely exposed, and the worms had already began their grisly task. I never thought about seeing my own bones before, but the pain had overshadowed the shock of it all. I could see the details, the pours, the way the worms wriggled and the slight tickle that they offered me to dull the burn of the wounds. The most fascinating part was that I could see, with my own eyes, where my wrist connected to my hand as well as all the little veins and intricate structures that existed between the hard parts. 
 
-I was heading home after my late shift at the gas station, the October wind biting through my jacket. The streetlights cast long shadows and most of the shops were already dark except for the seasonal displays of pumpkins and cornstalks. That's when I noticed it, one of the pumpkins had been freshly carved, its jagged smile and triangular eyes seeming to follow me as I walked past.
+When I gained the strength to lift my body from the earth, I realized just how bad my condition truly was. My body was caked in dirt and dried blood, several bones were shattered and I could feel them floating around like foreign objects beneath the skin. My first thought was just how lucky I was to have survived such a traumatic incident, but I didn’t survive it. 
 
-I wouldn't have thought anything of it if not for what was carved into the fence behind it: "Family grows when seeds are sown."
+I carried myself on aching bones all the way back to my apartment. It was still so early that nobody was out and about, if they had been in certain they would have fainted at the sight of me. I went to my bathroom and looked into the mirror, and what stared back at me was not me. Or, it was less of me than I remembered. 
 
-The same words had been scrawled in faded paint on the old Keller barn by people trying to scare everyone each year. But seeing it now, a chill ran up my spine that had nothing to do with the autumn air.
+My skin was grey, almost green around the edges, like rotted meat laced with infection. The worms had already taken my left ear, which made sense because the left side of my body was covered in open wounds and protruding bone. I turned my head and looked at the festering hole where my ear once was and I could see deep into it, the ivory color of bone just visible. My *skull.* I felt sick, my stomach turned and my head felt light and swimmy. The writhing worms had to go, so I turned on my shower head and detached it from the wall, spraying the open flesh with both of the knobs turned on as high as they could go. 
 
-I quickened my pace, keeping my head down. The whole way home, I felt eyes on my back. Twice I spun around, certain I'd catch someone following me, but the street remained empty. Just the wind stirring dead leaves across the pavement and the distant sound of a train whistle.
+The sound of the maggots tapped against the shower floor like rain, and black and red gunk washed out of the cavities in my body. In less than 30 seconds, the dirt and the worms and the slime had clogged my shower drain. Before long, I was up to my ankles in a soup of rot and decay, a tarry black sludge that rippled with wriggling worms. No matter what I did or how much I scrubbed, more worms kept falling from the shattered arm. I felt so disgusted with myself that I could hardly breathe, scraping handfuls of the things off my body and into the putrid stew at my feet. 
 
-When I got home, there was a pumpkin on my porch. I almost dropped my keys. The pumpkin had been carved with a face so detailed, so precise, it looked like... Emily. The same gentle curve of her cheek, the slight upturn of her nose, even the small scar above her right eyebrow from when we were kids. The craftsmanship was impossible, no human hands could capture a likeness that perfect. But there it was, Emily's face staring back at me with hollow eyes that somehow held recognition.
+Finally, after half an hour of spraying myself down, I had gotten what I thought was the last of them off me, but then I had the tub to contend with. I couldn’t even see the drain anymore. The fluid was entirely opaque to the point that it was reflecting my own rotted visage back up to me. I kneeled down and reached where I knew the drain was and plunged my finger into it. A thick, paste like substance swallowed my finger as I hooked and pulled. That tell-tale sound of the drain giving way echoed against the white shower walls. 
 
-I called her immediately, my hands shaking so badly I could barely hold the phone.
+The swamp of decomposition began to swirl like a diseased tornado, clogging itself back up. Each time the flow of the drain stopped, I ripped another handful of disgust from the drain and tossed it onto the floor outside the tub. Eventually the bathtub drained, and I fell onto my back into it. I pressed both hands against my temples and tried as hard as I could to relax, but it was nearly impossible. Despite the fact that I had drained most of the “water,” the tub was still decorated in dark clumps of worms and dirt. 
 
-"Jake? What's wrong?" Her voice was cut off by a sudden crash, followed by the sound of breaking glass.
+My bathroom was entirely wrecked, but naturally I felt that there were more pressing matters at hand, so I forced myself out of the tub and into the kitchen and pulled my cellphone from the rot covered jeans that I had hastily kicked off. The screen was shattered and the battery was dead, but it miraculously still worked well enough to see the dead battery icon. I plugged it in and waited. My first idea was to call the police, but naturally I hesitated because I wouldn’t even know what to say. Then I thought of calling my doctor, the office opened early enough that he might have already been there. Again though, I didn’t know what to say or how to explain the situation that I was going through. 
 
-"Emily?" I called out, panic rising in my throat. "Emily, are you there?"
+Finally, the phone buzzed and the screen lit up. I was shocked to see dozens of missed calls and texts from just about every person that knew me. “Are you okay???,” “I miss you! “I hope you’re safe.”
 
-For a moment, all I heard was shuffling, then Emily's voice returned, pitched high with terror.
+A week. I had been gone for a week. Rotting in the shallow grave for a week. Being food for worms for a week. A week. 
 
-"Jake, there's someone in my house," she whispered. "I think, I think it's him. The pumpkin on my windowsill, it has your face."
+I felt like crying, but the tears didn’t come. It was like my eyes were dry and tacky, like marbles, but I could still see clearly. I unlocked the phone with the passcode, already knowing that the facial recondition would falter at the sight of me. The first and only person I wanted to call was my girlfriend, Mercy. 
 
-"I'm calling the police," I said, already moving toward my door. "Just hide, I'll..."
+I went to my recent calls and clicked on her name. The phone rang, the muffled sound vibrating through my skull. Once, twice, three times. Finally, she answered.
 
-A scream tore through the phone, cutting off abruptly. Then nothing.
+“Baby! Oh my god where are you? We’ve been worried sick, the police have been looking for you all week!”
 
-"Emily!" I shouted into the phone. The line was dead. I couldn’t believe it but the call to 911 was not connecting, it just kept ringing, no one was answering to help!
+Her voice was the first moment of peace I’d felt all morning. It was soft and sweet and I could literally hear how much she cared about me. It was like a warm hug wrapping my entire body into a bundle and holding me until the rot washed away. I opened my mouth, eager to speak to her, but nothing came out. It was like the moment in a nightmare where you’re so close to something but your hand doesn’t quite reach it. The only noise that manifested from my throat was a stringy groan, so quiet and subtle that she probably heard nothing at all on the other line. 
 
-I grabbed my car keys and sprinted outside, nearly tripping over the pumpkin with Emily's face. In my panic, I kicked it aside, watching as it rolled down the steps and split open on the sidewalk. For a split second, I could have sworn I saw something red and wet inside, not pumpkin flesh, but something else. Something that shouldn't have been there.
+“Baby?” She asked with a disappointed panic.
 
-The drive to Emily's house took less than five minutes, but it felt like hours. I screeched to a halt outside Emily's house, the headlights illuminating her front door hanging open. The porch light flickered, casting distorted shadows across the yard. My heart pounded in my chest as I killed the engine and stumbled out of the car.
+I hung up, instantly, trying not to panic her more than I already have. Obviously, despite my inability to formulate words audibly, I still could type so I texted her.
 
-"Emily!" I shouted, rushing toward the house.
+“Please come over as soon as you can. Will explain.”
 
-The moment I crossed the threshold, I knew something was wrong. The air felt thick, almost viscous, carrying the cloying scent of rotting vegetation and something else, something metallic and sharp. Glass crunched beneath my shoes as I moved through the darkened living room. The silence was deafening, broken only by the distant ticking of a clock.
+As soon as my thumb tapped the send button, my stomach turned again. This time it was a different kind of ache, an empty ache. A hunger. It was debilitating, like the walls of my stomach closing in and constricting against itself. It was more painful than the wounds, more painful than the shattered bones in my broken limbs. My body curled like a shrimps, shrinking in agony to reduce the otherworldly sting. 
 
-"Emily?" I called again, my voice sounding small and afraid.
+I lumbered on awkwardly smashed legs to my refrigerator, grasping the handle and yanking the door open. I grabbed a plastic packet of shredded cheese and poured the contents into my mouth, shaking every piece out. I tour open a package of raw bacon and shoved each slice into my throat desperately. I hadn’t eaten in a week, so I guess the hunger had finally caught up. After the bacon, I ripped open a carton of eggs and grabbed one whole, biting down on it like an apple. The sticky mess was repulsive in taste but the hunger was so strong that I would have eaten anything. 
 
-I fumbled for the light switch, flicking it on. What I saw made my blood run cold. The living room was in disarray, furniture overturned, pictures knocked from walls. But it was the trail leading down the hallway that made me freeze. Pumpkin seeds. Hundreds of them, scattered across the floor like breadcrumbs, glistening wet with something that wasn't water.
+The pain hadn’t subsided though, not even for a moment. In fact the hunger was growing. The food that I had swallowed seemed to cause a reaction inside me, like a cheap science fair experiment. An excruciating pain radiated from deep within me, and the contractions of my stomach pulsated, eventually sending everything that I had eaten back out. 
 
-I followed the trail, eachstep forward with growing dread, my hand sliding along the wall for support. The hallway seemed to stretch and distort, shadows playing tricks with my vision. The seeds led straight to Emily's bedroom.
+Every piece of raw bacon and cheese and eggshell sprayed again the refrigerator door. I looked down at the mess I had made and noticed that within the mixture were clumps of worms and bugs. The rot was far deeper than I’d originally suspected. Still, the hunger consumed me, so I went for more, grabbing a jar of olives and swallowing several whole, but it *still* didn’t work. Everything that I put in me, immediately came back out. It was like my body was rejecting sustenance. 
 
-The door was ajar, moonlight spilling through her window onto the hardwood floor. I pushed the door open wider with trembling fingers.
+I staggered to my bed, still unmade from a week previous, and I curled up on-top of the unkempt sheets, wrapping myself in the blankets that used to offer a tinge of comfort. I agonized there in the fetal position, trying with everything in me to ignore the rupturing feeling of my insides revolting against me. Then, from the other room, a knock. 
 
-Emily's room was empty, but her window had been shattered from the inside out, glass fragments glittering on the carpet like fallen stars. On her bed lay a single, perfectly carved pumpkin. Not with Emily's face this time, but mine. My own face stared back at me, rendered with such perfect detail that it might have been a mirror, except for the expression. The carved likeness wore a look of pure terror, mouth open in a silent scream, eyes wide with horror.
+Mercy. I knew it was her, I knew her knock like the back of my hand, or at least when my hand still had a back to it. The mere thought of her ceased the ache, as if love was the cure for my ailment. She always made me feel that way, despite us only having dated for about 4 months before all of this. She knew me, she knew how to calm me, she knew how to save me. 
 
-And that's when I saw it, the note. Tucked beneath the pumpkin, written on yellowed paper in handwriting that looked decades old:
+I lunged from my bed, leaving a greasy stain in my place. I ran to the door and grabbed the handle, pulling it open with more excitement than I’d felt since I died. There she was, standing in the door frame in all her beauty. Her blonde hair was curled and bouncy. Her makeup was immaculate, I assumed she must have just gotten ready for work before I disturbed her. Her blue eyes ripped the pain from my flesh like novocaine. But her smile… wasn’t there.
 
-"The seed is planted. The harvest approaches. Family waits at home."
+No, instead she looked like she’d seen a ghost. Her skin was pale and clammy, her mouth open in fear. I could see the slight give in her knees as she looked at me, like she might have fainted before catching herself at the last minute. I tried to say her name, I tried to tell her how much I love her, but when I tried to speak a mass of worms and raw meat regurgitated from my mouth and onto the floor in front of her. She screamed. 
 
-My hands shook as I read the words over and over. Home. He meant Keller's farm. A sudden noise behind me made me whirl around, but it was too late. Something hard struck the back of my head, and pain exploded across my skull. I caught a glimpse of a tall, impossibly thin silhouette, the unmistakable bulbous head glowing faintly in the darkness. The pumpkin face looked almost sad as I crumpled to the floor, darkness rushing in from all sides.
+I didn’t know what to do, but my instincts took over. I grabbed her by her shoulders and pulled her into my apartment, slamming the door behind her. The whole reason I called her was to avoid the attention of the police or doctors or other strangers. She’s the only one I wanted to speak to. She tried to back away from me, but her foot landed on a clod of meat and bugs and she slipped. I heard her head hit the corner of the kitchen island, a loud cracking sound that I could feel in my bones. Despite the incessant pain I was feeling, I just *knew* that had to hurt.
 
-I thought I was dead. Maybe I should have been.
+She was dazed but still mostly conscious. I reached for her to comfort her, wanting to hold her, but she kicked me in the stomach and I stumbled back. Despite her fall, she managed to climb back to her feet, and she grabbed a long knife out of the knife block on the island. I couldn’t believe she wanted to hurt me, especially after all I’d been through. I thought she’d be excited to know I was okay. 
 
-When I came to, the throbbing in my head was unbearable. The air was thick with the smell of earth and decay. I tried to move, but my limbs wouldn't respond. Slowly, painfully, I opened my eyes to find myself lying on cold dirt in near-darkness. Only a faint orange glow illuminated my surroundings, a root cellar of some kind, with rough wooden beams overhead and earthen walls. Keller's farm. I was at Keller's farm.
+Before I could react, she plunged the knife into my chest. It hurt, badly, but the pain had been dulled and numbed by the plethora of other wounds that had covered my entire frame. She let go of the knife and I stumbled back further, my back hitting against the door. In that moment, like something entirely new came over me, the hunger returned. 
 
-"Emily?" I whispered, my voice hoarse and unfamiliar.
+The very same hunger that had driven me to devour an entire fridge of raw food had gripped me again, but it was clearer. I knew what I needed to consume. I loved that girl more than anything, but the feeling in my stomach was far stronger than the feeling in my heart. She ran toward the bathroom, and I chased after her. She got inside before me and slammed the door, but my hand had just entered the threshold as well. The heavy door crashed against the fingers on my right hand, severing them like a guillotine. She screamed from inside the bathroom, but the hunger had drowned out any sense of feeling inside me. 
 
-A soft whimpering came from somewhere to my left. I turned my head, wincing at the stab of pain, and there was Emily. She was bound with rough twine, her clothes torn, a trickle of dried blood running down her forehead. Her eyes widened when she saw me.
+I kicked the door once and the cheap knob gave way nearly instantly, breaking and clanking against the bathroom floor. She was on the ground, looking up at me. My mouth watered, or at least it felt like it did but I doubt saliva was present. Without thinking I pulled the knife from my chest and turned toward her. She was scared but I was hungry, and that came first. She put her arms over her head to block the blade but I stabbed and stabbed and stabbed. 
 
-"Jake," she rasped, "we need to get out. He's..."
+It didn’t take long until she stopped moving, maybe 50 or 60 stabs. As soon as the life escaped her eyes, I couldn’t resist the hunger and indulged. My teeth sunk into the flesh of her throat, just above her collarbone. The taste of her skin was intoxicating, so I closed my jaw and ripped. I kept shearing chunks of her flesh off with my teeth until her head was entire separated from her shoulders, and only then did the pain of hunger subside. I looked down at her, covered in crimson and segmented like a twisted puzzle. She was still beautiful. 
 
-A door creaked open somewhere above us, and heavy footsteps thudded on wooden stairs. Emily fell silent, trembling. I tried to push myself up, but my limbs were leaden, unresponsive.
+It felt poetic. I loved her so much, and now she was inside me, a little piece of her to follow me around wherever I go. It felt warm and comforting. I was glad she showed up. 
 
-The Pumpkin Father descended into view, his unnaturally tall frame hunched beneath the low ceiling.His jack-o-lantern head glowed from within, casting flickering light across the cellar. The carved face was crude—a mockery of human features with jagged teeth and hollow eyes that somehow still managed to convey emotion. Right now, that emotion looked like... joy.
+I stayed inside the apartment for several days, only visiting Mercy’s remains when the hunger came. The pain of the rot on my own body grew with each passing day. The open flesh felt like a cold sore, or a fever blister but even more intense. Like the edges were tender and hot with a stinging kind of pain, like salt in a wound. Every part of me weeped with discolored discharge. I was, and still am, walking rot. At one point I noticed that the wound from the knife was sort of peeling, like the punctured skin had flayed open slightly, and my curiosity took over. I pinched the edge of skin, like the corner of a paper, and pulled it. A long, thick sliver of flesh peeled from my torso, like a cuticle that hangs on too long. 
 
-Somewhere beneath the terrible pumpkin helm, it looked like the vestiges of terribly burnt skin and a human face beneath.
+I can’t leave this apartment, I know I can’t. If anyone were to see me, they’d take me away somewhere, so I’ve resorted to rotting here for the foreseeable future, scrolling around on the internet to pass the time. I still don’t know what happens when the rot finally takes me, but I supposed I’ll find out soon enough. 
 
-"Family," he said, his voice like dried leaves scraping against wood. "Family waits."
+Oh, and before I go, I almost forgot to mention another little detail. When I went into the bathroom for another meal, I noticed the strangest thing. There was a note laying on top of what was left of Mercy, which was incredibly strange because I didn’t write it and nobody had come into my apartment. I unfolded it and read it to myself.
 
-He moved toward us with unnatural grace, bending down to grasp Emily by her bound arms. She screamed and thrashed against his grip, but he lifted her effortlessly.
-
-"Don't touch her!" I tried to scream but it was no use and he carried her upstairs. I looked around for some means of escape. I struggled against my bonds, fueled by desperation. The coarse rope bit into my wrists as I twisted and pulled, feeling the skin tear beneath. A warm trickle of blood ran down my fingers, making the rope slick. With one final, painful wrench, my right hand slipped free.
-
-Then I had an idea. My pocket. My phone. Was it still there? I patted frantically at my jeans, nearly sobbing with relief when I felt the rectangular shape. With shaking fingers, I pulled out my phone, squinting against the screen's harsh light. My heart sank when I saw no signal bars, but I desperately dialed 911 anyway. To my shock, it connected.
-
-"911, what's your emergency?" The dispatcher's voice was like water in the desert.
-
-"Please help," I whispered, terrified the Pumpkin Father would hear. "We're at the old Keller farm. He's going to kill us. Please hurry, send someone, anyone!"
-
-"Sir, stay calm we will send help right away. Please stay on the line and….” The phone fell out of my hand and I saw the Pumpkin Father had come back in. He Grabbed me and hoisted me over his shoulder and I was carried upstairs to a dining room where a horrible sight awaited.
-
-There were dessicated old bodies strewn around a table, each wearing leering pumpkin heads carved meticulously with the faces of what was once, living people. I saw our own pumpkins sitting on the table facing empty chairs. I was shoved into place and stared at my own visage carved into the pumpkin closest to me and I saw Emily sitting across the table in a similar situation. The Pumpkin Father's hand pressed down on my shoulder, pinning me to the chair with inhuman strength. I struggled, but it was like fighting against iron bars. The table before us was set with rotting food on ancient plates, a mockery of a family dinner.
-
-"Welcome home," the Pumpkin Father rasped, his voice like autumn leaves skittering across a grave. "Family dinner. Family forever."
-
-I looked at Emily, tears streaming down her face as she fought against her restraints. The pumpkin faces around us seemed to watch with hollow amusement, their carved expressions frozen.The Pumpkin Father moved behind Emily, his grotesque jack-o'-lantern head tilting as if in consideration. From beneath his tattered coat, he produced a rusted carving knife, its edge gleaming dully in the flickering light.
-
-"Time to become family, first we must prepare," he said, his voice crackling like burning leaves. "The head must be... emptied... before it can be filled with new light." He whispered, while raising the blade to Emily's throat. "Time to wear your face."
-
-"No!" I screamed, thrashing against my restraints.
-
-Emily's eyes met mine, a silent goodbye in them that tore my heart to shreds. The Pumpkin Father pressed the knife against her skin, drawing a thin line of blood. I watched in horror as a single drop rolled down her neck, staining her collar crimson.
-
-I had no idea what to do, I looked on in hopeless terror and thought we were going to die there.
-
-Suddenly, the front door exploded inward with a deafening crash. Blue and red lights flashed through the windows, painting the grotesque scene in alternating colors.
-
-"Police! Come out with your hands on your head!" An officer's voice thundered through the farmhouse.
-
-The Pumpkin Father's head swiveled unnaturally toward the sound, the carved grin somehow twisting into a snarl. In that moment of distraction, I lunged forward with all my might. The chair toppled with me still half-bound to it, but I managed to throw my weight into the Pumpkin Father's legs. He staggered, the knife slicing air instead of Emily's throat.
-
-"Jake!" Emily screamed as the Pumpkin Father regained his balance and turned toward me, his pumpkin head burning with an unholy light.
-
-A Police officer burst into the dining room, gun drawn and aiming at the knife wielding, pumpkin headed monstrosity. "Drop the weapon! Now!"
-
-The Pumpkin Father tilted his head, regarding the officer like a curious child studying an insect before crushing it. The orange glow within his hollowed head pulsed brighter, casting long, distorted shadows across the macabre dining room.
-
-"Not family," the Pumpkin Father rasped, his voice like wind through a graveyard. "Intruder."
-
-Before the officer could react, the Pumpkin Father lunged with inhuman speed, his elongated limbs propelling him across the room. I heard the gun fire once, twice. The rounds struck the monstrous figure and the Pumpkin Father reeled but did not fall. A high-pitched, inhuman shriek filled the room as the bullets tore through the Pumpkin Father's form. The orange glow within his head flickered wildly, like a flame caught in a sudden draft. The knife clattered to the floor as he stumbled backward, his elongated limbs jerking spasmodically.
-
-"Not time," he hissed, black ichor oozing from the wounds in his chest. "Not yet."
-
-More officers poured into the room, their flashlight beams cutting through the gloom. The Pumpkin Father's head swiveled and he shrieked and then was gone.
-
-He left the twisted remnants of his pumpkin family behind and we had been spared the fate of joining them.
-
-It was a Halloween we would never forget, for all the wrong reasons.
-
-In the aftermath of that nightmare, I left my hometown. I managed to save up enough to just go wherever I could afford to move. Anywhere was better than there. I did not know if the Pumpkin Father was still out there, still alive but I would not stay and find out.
-
-Things have been alright since then, but now that almost an entire year has passed, it's happening again.
-
-Even now it's Hallows Eve and when I got home from work tonight, I found something terrifying. I knew it was wrong immediately, I had not made a jack o'lantern this year, and I might not ever make another one.
-
-Yet there it was on my front porch, a pumpkin with a face, my face. Not just any generic carving, but a perfect likeness down to the small scar above my right eyebrow. The craftsmanship was unmistakable, those same impossible details that only one entity could create.
-
-I backed away, nearly tripping over my own feet. My hands trembled as I fumbled for my phone, thinking to call Emily. We'd promised to keep in touch, to warn each other if anything ever happened.
-
-That was just a few minutes ago, she didn't answer. I left a message and hope to God she is alright. I am panicking and I don't know what I can do, it can't be happening again!
-
-Please, if you are reading this, be careful. He is still out there, still looking for people to add to his twisted family. I made a mistake, but next time it could be you. I hope for your sake you never destroy one of his creations and never see him yourself.
-
-I am going to lock my door, my windows and barricade myself in my room, then call the police. I hope they get here soon, they won't believe me, but it will make me feel a bit safer tonight, at least for a while.
+“You ain’t gon’ eat all that.”
