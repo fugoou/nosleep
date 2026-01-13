@@ -1,488 +1,196 @@
-# Whatever Drove My Neighbors From Their House is Coming For Me Now
-"Pilar, I don't think they're ever coming back."
+# Every night a strange flight of stairs appears in my room. I need to find out where they lead before it's too late. (Final Part)
+[Part 7.](https://www.reddit.com/r/nosleep/comments/1p57y1s/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-My husband, Noah, was peeking through the blinds at our neighbor's hastily abandoned house across the street. Three weeks ago, in the middle of the night, we heard screaming and saw Jim and his long-term girlfriend Joy ("You can call us J & J," they annoyingly told me when we first met) burst out of the historic River Rock house across from us and drive away in a panic.
+I pushed the door open to find another corridor stretching ahead, a faint glow beckoning from its far end. As I made my way forward, a subtle hum vibrated at the edge of hearing. The hallway emptied into what I can only describe as a white void, not a white room, but an absence of any real architecture. No visible walls, ceiling, or floor, just a void of white that somehow held me up. Three more corridors branched from this non-space, each terminating in a door that seemed to hover in the distance.
 
-They didn't even close the front door.
+After standing for a moment in the center of the surreal space I had found myself in, I decided to pick another hall and approach the door. It looked plain at first, until I got close enough to see a strange word carved near the top into the door itself.
 
-The cops came, did a cursory look around the house, filed a report that no one would ever read, and left. Since then, it's been radio silent. Jim and Joy haven't returned. Haven't sent a text. Haven't picked up anything. It's like they'd been edited out of the film of our lives and left on the cutting room floor.
+It said,
 
-Noah had become obsessed with this story since the night it happened. I had to convince him not to go "check out the house" after they'd first run off. He said he wanted to see what had scared them and if there was anything he could do to help. I reminded him that 1) he didn't like Jim, 2) he wasn't a cop, and 3) the growing tear in his right meniscus would hamper any quick escape. He tried to argue, but my "no means no" stare backed him down.
+“**S N O M E D**”
 
-Since then, we've kept watch on the place. All the neighbors have. We're not a close-knit community by any stretch, but when something strange like this happens, it fires up the gossip machine. That machine forges instant connections. Neighbors become closer, if for no other reason than to get the latest scoop.
+It was strange but I had no other idea on which one to pick so I opened it. The knob gave a soft click, and the door opened slowly to reveal the sight beyond.
 
-Nobody knew what had happened, but everyone had a theory. Everything from con-men to poltergeists was given consideration, but the plot most of the neighborhood settled on was some kind of violent struggle related to the drug trade. And boy, did the rumor mill churn.
+The first thing I noticed was the smell. The stench poured out of the place in a noxious wave that made my eyes tear up. It was like charred meat and burnt blood mixed with boiling sulfur. The terrible sight beyond made me freeze in place. Just a few yards away lay a red bowl of stone; its floor carpeted with limbs still twitching between gorged silhouettes. Horned shapes squatted over the remnants; their jaws unhinging farther than anatomy should allow. There was an awful tendon snapping sound. One beast lifted a face smeared in blood and saw me. It rose on massive hooves and presented terrible black horns. It bellowed something that sounded like the vocalization of a bull and a grizzly bear combined and launched itself at me.
 
-"Nobody is that perky all the time. Has to be cocaine abuse."
+I snapped out of my daze and scrambled to close the door. I managed to shut it just in time as the thing crashed into it. Yet once the door was closed, there was no impact, no violent shudder, no horns piercing through the plain door. I let out my breath and tried to calm myself. I was not going back there unless I had no choice. I decided to try another door.
 
-"I heard he was a trained assassin for the cartels."
+The second corridor felt longer. When I reached the door, its surface bore no word, only a shallow depression shaped like a human hand. Though when I looked closer, I saw the fingers were too numerous, the palm was too wide. I pressed my own hand onto the irregular print before I could think better of it. I looked near the depression where a handle ought to have been and as my hand was held there a small engraving started to shimmer into existence just above.
 
-"Didn't they move from Miami? Makes you think, no?"
+It read,
 
-J & J being drug mules never sat right with us. Jim and Joy were a lot of things - affable, annoyingly upbeat, Instagram pretty - but violent druggies isn't how I'd describe them. That'd be like finding out your toy poodle was a serial killer.
+“**S R E P A E R D N I M**”
 
-Besides, they were the couple your parents compared you to. "Be more like them. They have it all figured out, dear." The default couple photo that comes with every picture frame. The goddamn blueprint for modern suburban happiness. These kinds of people don't flee in terror in the middle of the night and never return.
+I considered pushing the door open, but as I started to nudge the door, the pulsing behind it increased and I felt something tickle the back of my mind. The sensation felt like the consciousness eaters but worse. I took a reflexive step back and left that door, not wanting to see what horrors might lay within. I had to reconsider; I had to try another door.
 
-Something spooked them.
+The third corridor swallowed light as I walked into it. Each footfall echoed longer than physics should allow. The door at its end hung crooked; its warped wood expanding and contracting like diseased lungs. No carving, no handprint, only a thin seam weeping clear fluid that hissed when it touched the whiteness beneath me. I pressed my ear close to the door and gasped when I heard my mother’s voice speaking backwards. I reached for the knob and it felt like warm skin, pulsing with a heartbeat not my own. Then it whispered into my mind,
 
-"They were spies," Frank, our crotchety neighbor, declared the other night. Nobody asked him for his thoughts, but, as stated by old person law, he saw two people minding their own business and felt compelled to interject his opinion.
+“**E M O H K C A B**” I realized that somehow, I’d already opened it from the inside hours ago.
 
-We stopped our nightly walk and turned to the man. "What?" I said, letting my annoyance creep into my words. I felt Noah's elbow pop me in my ribs, letting me know the tone didn't go unnoticed.
+I tried the final door and this time I saw something I had remembered writing in chalk just a while ago.
 
-"Spies. Get those ears cleaned out," he said.
+“**N E A R Z E**”
 
-"What were you saying about the neighbors now?" Noah said.
+I remembered Sherrie’s words, “Write it backwards.” I considered the other doors and shuddered. I felt foolish that I was almost devoured by the horrors on the other side. Yet this one made no sense. “N E A R Z E” or “E Z R A E N”
 
-"Those people were probably spies that got called back. One day, they're mowing the lawn too goddamn early in the morning. Next, they're having cocktails in a bar in some third-world hellhole."
+I did not know who or what was an Ezraen, but if Sherrie was through the door I had to try. I held my breath, gripped the handle and opened it.
 
-"Like Florida?" Noah joked.
+The door led to something I had grown accustomed to at this point, more stairs. The stairs were bone white and too smooth. They ascended into a terrible gallery that was as horrific as it was memorizing. Rows of black iron cages lined against both walls, packed tightly to envelop the whole area.
 
-Frank snorted. "Whole damn world's been turned upside down. Wasn't like this when I was a kid."
+Inside them I found the denizens of the stairs.
 
-"The generational lament," Noah joked.
+Twitching Grabbers folded over and partly skinned but somehow alive. The terrible, blind hunter beasts clawing aimlessly at sounds they heard. There was one of the nightmarish consciousness eaters spinning slow circles with its mouth sewn shut by what looked like braided hair.
 
-"Didn't people say they heard them screaming like they'd been spooked?"
+Near the end of the awful menagerie was Sherrie.
 
-"Sure. But they were the ones doing the spooking. I guarantee it."
+I rushed to her cage and checked on her. She was crouched at the far end, chalk still in her hands, eyes wild as she saw me approach. I stepped toward her and every cage rang at once, sounding like a thousand tiny bells inside my skull. I looked back and noticed the white stairs behind me quietly vanishing.
 
-"We've heard their place was maybe haunted," I said.
+“Sherrie...” I whispered, fingers scraping rusted bars.
 
-Frank laughed. "Specters? Please. A bunch of hoo-hash." He looked at Noah. "Have you never folded a flag before?"
+She crawled forward and spoke with a voice that was a cracked whisper.
 
-Noah shrugged. "No. Never had one."
+“I...was too slow. A bunch of grabbers chased me down and I tripped and fell. They took me here. I have not been here since I first arrived, when I first lost it. I lost my scream, my soul in this place. I thought I could get it back...but he was here. You have to go. You have to leave now!”
 
-"Part of the problem right there," Frank said. "You just hold the edges and I'll do the hard work."
+Her eyes were wild and manic. There was a disturbing fear in them, not for herself and her own fate, but for me. She was genuinely frightened for what might be coming for us both. Despite her fear for my safety, the state she was in had made me want to help her even more.
 
-"Generational lament," I echoed. Noah gave me a look but chased it with a sly smile. Frank didn't hear anything because a woman was speaking. Or at least that was my take on the subject.
+I set about trying to find some way of opening the gate when I heard a different voice ring out overhead.
 
-"You lived next to them. You ever notice anything off?" Noah asked Frank.
+“Visitors, oh my my my.”
 
-"There was a lot of nighttime activity. A lot of prowling. Night conversations. Movement in the house and yard."
+We looked up and saw a man standing on a dais near a second story of the grim prison. He loomed over us for a moment, then jumped theatrically down to our level. He landed neatly, suffering no discomfort from the drop which looked at least twelve feet or so.
 
-"Night conversations?" Noah asked. "What does that mean?"
+He was wiry and emaciated, but had an odd energy in his movement, like he was hiding something unnatural. When his features became clearer, I was disturbed to see he wore a pallid, expressionless mask on his head. The blank sight amidst all the madness of this prison was jarring.
 
-"Whispering in the backyard. Wasn't in English, so I have no idea what they were saying, but it was constant. Every night."
+“I am Ezraen,” he crooned, arms drifting wide. “You must be my other honored guest. Oh, how I have longed to find you both here. I’m so happy it’s finally happening, two of you together. This time I cannot fail, this time I will be released.”
 
-"What language was it?"
+Sherrie clutched the bars as she watched the strange man move closer to us. Then she started mumbling.
 
-"I only speak English, so I have no clue. Just another data fact that points to them being spies."
+“I mapped the salt crusted steps below. I had to come here, I had to get it back, my spirit, my focus, the tether to my soul.” She looked distant and broke into her sing song rhyming again,
 
-"Have you seen anyone go inside since they left?"
+“The water bends, the waves break. Cast a shadow on the path to take, away from him, away from fear, to finally see a way out of here...”
 
-"No," Frank said. "Outside the police, nobody has even stopped by. I keep an eye on the place, too, just in case their handlers visit. I know a few people connected with the Company, if you know who I mean."
+Ezraen’s laughter rang out and Sherrie spoke.
 
-"Do you know Sears or Roebuck?" I asked. It fell on deaf ears and was the conversation-ender I'd been hoping it was. Frank told us he'd keep us in the loop if anyone came by and headed back off to his house, the flag tucked under his arm.
+“Silence, little chalk sparrow.” Unless you want me to add you to the other enclosures and see if they treat you any better. Sherrie looked back at me as if pleading for me to run.
 
-Noah gave me a look. "Sears and Roebuck? You sound older than Frank."
+I did not know what to do, but I had seen enough to know whatever this crazy man wanted to happen was not something that would be good for us.
 
-"I was meeting him on his level," I said with a shrug. "You think J & J were a pair of spies?"
+I called out, trying to sound braver than I felt,
 
-"No way," he said. "Spies are supposed to blend in with a local population. J & J were the trendsetters in this place. They planted begonias, and soon houses all along the street followed suit.
+“Let her go! She is a human being, not a monster like these other things.” Ezraen chuckled again, a cutting sound that illustrated his disdain for me.
 
-"I love that you noticed that."
+“Is she? Well for now yes, though this one is special. Her spirit, her ability...well she would make a fine specimen, perhaps even a replacement. She could hold this place together with some training, but with two, oh why yes, I think it might finally be time.”
 
-He shrugged. "My point is, you can't blend into the scenery if you're building it."
+He clapped his hands together and cocked his head in what might have been some semblance of happiness. Despite the disturbing situation, my curiosity about the situation won out and I had to ask this strange man living at the top of the stairs about this place and why he needed us.
 
-"Did you learn this from your years in counter-surveillance at Langley or?"
+“Why did you take her? And what is this place?” I asked him directly. He paused for a moment, and I heard a delighted laugh under the impassive mask.
 
-"Shhh," he said, wrapping his arm around my waist as we made our way up the driveway. "You'll blow my cover, and Frank knows people in the company."
+“Why haven't you noticed? It's just a lot of stairs!” He cackled at his own remark and laughed until he began a hideous wheezing and coughing fit. He composed himself after and continued.
 
-I laughed and tried my best to affect a Russian accent. "Do you need me to call my friends in Moscow to resolve this 'Frank' situation?"
+“Truth be told even I don’t know its exact nature. Though I suspect it is a nexus. An idea of a place, shared in many minds. It is here and not here. It only appears to a select few people who are in the right place at the right time and are willing to see it. I never meant to find it when I did, yet I was overjoyed when I had stumbled upon a different dimension just outside my room. But of course, all knowledge has a price and the gifts of this place cost me something as well.” He paused for a moment and looked down as if he was lost in thought.
 
-It was Noah's turn to cackle. "That's your Russian accent?"
+“I don’t know how long its been now, how long I have languished here. Even the dominion I asserted over the strange creatures here brought fleeting respite. I tried to expand for a time, to leave for another nexus. But the pinnacle is only able to control the things here. The others that live beyond, the ones separated by the other doors are horrible things that resist my control and slaughter my servants, yet the simple doors and words keep them contained. Yes, I have learned much and gained power. But the power means little when I cannot leave. The beasts I feared when I arrived, I brought them to heel. Then I sought to control them and succeeded. Though now they only disappoint me in their random and eternal instinctive nature to possess and destroy. Who could live in this place with only them as company?” He had a deranged almost pleading appeal in his voice that wavered and cracked into a cynical laugh.
 
-"Forgive me," I said with a wink, "I've been on assignment in America for far too long."
+“Suffice to say I have had my fill of this place now, that is where you two come in. I have played enough; I need someone with as much mental energy as I had when I first arrived to keep this place alive. It will not let me leave otherwise.” He sounded more agitated as he continued.
 
-We went inside and started cooking dinner. While I was simmering a sauce, there was a knock on the door. I glanced over at Noah and gave him a confused look. We weren't expecting anyone. Especially later in the evening.
+“Fortunately, your little friend arrived, the curious little lamb. She eluded my pets for a while, but eventually she fell into my web, I thought I had her, thought I could keep her as a companion, but she ran. So, I had to take a piece from her, to keep her from leaving. I knew if she would not stay with me, then she could take my place. The price of the pinnacle of the knowledge to control this place is a piece of your soul. The part I stole from her was not enough, not enough for me to leave this place, or for her to. But with a third person....” He paused and looked at me, and I could feel him smiling under the distorted mask.
 
-Noah opened the front door to reveal Melissa, the mousy-looking neighbor two doors down. I could count on my hands the number of times we'd spoken, but I knew that she and Joy had hit it off. Usually a cute woman, Melissa now looked like she'd just gone ten rounds in the octagon. Nervous, sweaty, and jittery - kind of like an addict needing a fix.
+“Well that might just be enough to finally get out. It is only fair really, I have been here so long, but you, yes you two can stay. Perhaps in another century or so someone else can come along and you can convince them to stay and you can leave. But my time is up I am leaving and I’m afraid you are in no position to refuse. As long as I’m in control here, I will have my pets rip you limb from limb if you try and escape or deny me my freedom again.”
 
-Maybe J & J were drug dealers after all.
+I almost felt sympathy for the creature speaking to us. The man had been trapped for who knew how long, surviving in this nightmare, somehow taking control of the creatures and living alone on the pinnacle for ages. Yet I was not prepared to stay in this purgatory for his sake or leave Sherrie to do the same. I knew I had to think of a way to escape for both of us.
 
-"Hi, I don't know if we've formally met, but I'm Melissa. I live two houses down, in the white one with red trim. Begonias in the front."
+I looked at Sherrie, and she glanced back at me and gently shook her head. I knew she wouldn’t trust anything he said and for good reason. Suddenly she gestured with her eyes towards a large stone plinth near the area where Ezraen had descended from. I saw it then, a small crystal like stone embedded in the face of the rock. It seemed to shimmer with a strange after image, like a mirage in the desert.
 
-"Oh yeah," Noah said. "I love your landscaping. Bold move with the begonias."
+I slowly nodded my head at her when I looked back. We had to reach that rock, it had to have the piece that was taken from Sherrie.
 
-"Oh, thanks," she said, pushing her glasses up her nose.
+Ezraen began tapping his foot and then snapped his fingers. I heard the shambling sounds of a host of grabbers walking into the room.
 
-"You okay, Melissa?" I asked, coming into view behind Noah.
+“I’m afraid I don’t have all day, or night, or whatever time it is in the real world. So I will ask again, stay here and try your hand and managing this place? Or I can have the grabbers disassemble you and maybe I can make something interesting with what remains. I always wanted to make a chimera but I wanted the heads to have more....sentience.” He cackled maniacally and I did not know how the hell we were going to get out of the situation.
 
-"Oh, well, not really, no," she said with a nervous laugh. "I'm actually, well, I'm actually a little freaked out right now, to tell the truth."
+Sherrie spoke up, surprising me.
 
-"Please come in, come in," I said, nudging Noah away from the door.
+“Wait, you can keep me here. Just let him go, I will stay, he was never supposed to be here. I lead him here to try and escape, it's my fault.” I looked back at her, shocked that she would suggest that now.
 
-"I don't want to interrupt your dinner plans or anything," she said, quickly glancing across the street at the abandoned house. She did it a few times, actually. Small glances, like she was worried someone was watching her. Maybe Frank's spies were on the case?
+“Wait no, you don't mean that. You can’t stay here!” I blurted out.
 
-"Noah was already delaying it by messing around on his phone. Come in, please. Take a seat. Need something to drink? Water? Seltzer?"
+“Sherrie looked back at me, pain and resolve mixing into a beautiful but tortured expression.
 
-"Maybe a shot of something," she joked, but I got the sense she was serious. She was skittish. Her hands kept moving for no other reason than to stay busy. A person on the brink of a nervous breakdown pretending the world around them isn't burning to ash.
+Ezraen chuckled. “Well I managed to find a way to keep you here after all, I almost regret that I won't be here to enjoy the company. Alright then, come up to the dais here with me, as for you.” He pointed at me. “You stay right there and don’t cause any fuss untill we are done.”
 
-"I can do that. We have some good booze. Or maybe wine? I have a bottle I've been wanting to try," I said, reaching into the cabinet and pulling out two glasses.
+Sherrie was released from her prison and slowly walked up the incline to the stone on the dais overlooking the room. As she walked, she stumbled for a moment, and it looked like she had dropped something which landed only a few feet away from me. It was her chalk.
 
-"If you don't mind," she said, her gaze flitting between me and the floor.
+Soon she reached Ezraen and he took her hand.
 
-"You're doing me a favor. Noah, can you keep an eye on the pan?"
+“A wise choice my dear, now place your hand on the stone, it will take a bit more than last time. You may feel a draining sensation that will leave you flushed, like giving blood...but worse.” She held out her hand reluctantly and while Ezraen eyed the stone and began the strange ritual, Sherrie looked at me and then the chalk she had dropped. I saw her mouthing something to me, it looked like she was trying to say,
 
-He nodded and continued the tedious job of slowly stirring the bubbling red sauce. "Did you plan the landscaping yourself, or did you hire out?" he asked ,a bubble popping and leaving a red ring on the stovetop.
+“Draw something now.”
 
-"What? Oh, sorry," Melissa said. "Sorry, I did it myself. I took an online course about it."
+I was not sure what to do, what could I draw? Then I had an idea. She could not escape with me yet, but maybe I could make a distraction that could allow us to escape. Ezraen began muttering some words and the stone changed color. The pressure in the room changed and a static charge seemed to linger in the air, I had no idea what was happening, but I knew I did not have much time. I inched closer to the fallen chalk and a grabber noticed me and moved to intercept, I managed to pretend to trip and fall. Then I inched forward and grabbed the chalk. I fell down on my face and lifted my head, pretending to watch the scene unfolding before me. The grabber stopped when it realized I was not running away.
 
-"Noah has raved about it since you put it in," I said, bringing the bottle over and popping the top. "We want to do something, but haven't decided on what."
+Then while I was still down on the ground I wrote something that I hoped would be able to help and not get us killed. I wrote the word I had seen on the door before.
 
-She took the glass from me and downed it in one gulp. She placed the glass down and slid it toward me. I refilled.
+I did not write it backwards like on the door, I wrote the simple, frightful word correctly and hoped I had not just done something that would see us all killed,
 
-"What's going on?"
+I wrote, “D E M O N S”
 
-Melissa took the glass and downed it again. I had to imagine it burned going down, but her face gave away nothing other than fear. "It's, well, it's going to sound weird, but I promise you I'm not crazy or anything."
+Then I reached down below the writing to the handle that was on the ground now in the shape of a door. I opened it and madness emerged.
 
-"You're in a safe space," I told her, my voice softening. I nodded down at the glass, but she waved me away.
+The strange energy in the air was sucked out immediately, and Ezraen knew something was wrong. The grabber nearest to me tried to seize me, but an amorphous shifting shadow burst from the door on the ground and swallowed it whole.
 
-"So, uh, you know about Joy and Jim, right? They used to live across from you."
+I shouted out, “Sherrie the stone!” She reacted instantly and wrenched her hand free from Ezraen, grasped the strange crystal from the stone and pried it free. There was a howl of rage from behind the mask of Ezraen and just as he was about to grab Sherrie again, the monstrous bulk of a horned demonic figure had leaped onto the dais and knocked him over.
 
-"Is this about them fleeing in the middle of the night?"
+I thought he might be dead, but I saw a brilliant flash of light and the demonic form of the creature who attacked him began to bubble, then eventually burst with a wet popping sound. Ezraen stood, covered in blood and visibly shaking with rage. Sherrie was rushing to get back to me, crystal in hand.
 
-She nodded. Tears formed in the corners of her eyes. She tried to play it off like nothing was there, but I handed her a napkin, and her facade broke. "Thank you. Yes, the ones who left a few weeks ago."
+More demonic beasts emerged from the door and legions of grabbers and other stairs dwellers marched forth to meet them in a clash of nightmares come to life. We used the terrible battle as cover to flee and took off as quickly as we could. Ezraen burst into motion to pursue, but was assaulted again by more of the demonic cohort. I grimly suspected that they might be drawn to his power and looking to feed off whatever strange energy empowered him.
 
-"Are they okay?"
+Some of the grabbers and blind beats tried to pursue us, but they were attacked in turn by more of the demonic entities breaking forth from the door. We had a chance, we had our distraction so we ran for our lives.
 
-"They're better now but still frazzled," Melissa said. "I don't think they'll ever be the same, to be honest. I don't know if I will either."
+We fled out of the strange antechamber and the swirling mass of monstrous carnage. I had lost the chalk in the melee, but Sherrie pulled me along. Whatever it could do to help was not as important as getting as far away as possible just then.
 
-This got Noah to turn down the burners and switch his attention from the sauce to the tea. "What happened to them?" he asked.
+We made it to the long halls and saw the way back. We burst through the door and continued, rushing down the strange, gilded glass steps back to the stairs. As we ran we heard more movement following us. Worse, bellow us there was a lumbering scraping sound that heralded more of the blind beasts. At the rate we were moving, they were bound to hear us and the cover of the demonic invasion was too far away to help us.
 
-"It started the day they moved in. Little things. Strange noises. Cold spots. Things getting misplaced. That kind of stuff. But then it got worse. Chairs sliding around the kitchen floor, doors slamming at all hours of the night. Whispers in the dark. Phantom touches on the arm. Smell of cigarette smoke wafting through the house," she said, her voice shaky. "Then they saw him."
+We slackened our pace and Sherrie put a finger on her lips. We stopped just in time to avoid a large figure dropping down onto the steps just a few feet away from us. We heard it sniffing the air and scraping the walls. We had to move, but if we tried it could bring more of them down upon us. I looked at Sherrie apologetically, and she shook her head, not knowing what I was going to do and not condoning it if she did.
 
-"Who?"
+I couldn't blame her, it was not smart, but we were desperate. I crouched low and took a few quiet but hurried steps towards the massive blind beast. Just as it regarded my footsteps and turned to face me, I struck. It attempted to bellow a warning, but I was already in the air, jumping out and extending my legs in a makeshift dropkick that sent the giant creature tumbling off the stairs into the abyss bellow. It screeched as it fell and the other ones seemed to converge on the falling monster bellow, instead of on our location. I landed hard on my side, but managed to keep from falling off when Sherrie grabbed me and kept me from slipping.
 
-She slid her glass towards me again. I refilled it and realized that this woman had put down most of this before I'd even had a sip. I should've started with the two-buck Chuck and not something I actually wanted to drink. Regardless, Melissa was rattled. If liquid courage helped unlock the mystery, bottoms up.
+“This way.” She urged, as we rushed down the steps.
 
-"They called him the Drover."
+“There is an angle here, its close to where the door back to the room has shown up before. We just have to hope it will manifest here.” She said, with a hint of desperation in her tone.
 
-"The what?" I asked.
+“What if it doesn't?” I asked, despite not really wanting confirmation of the answer.
 
-"Drover," Noah said. "It's a rancher." I gave him a confused look, and he shrugged. "Years of horse camp."
+“Then we will be trapped, and he will find us...” She responded grimly.
 
-I had no idea Noah had ever even ridden a horse, let alone attended "years of horse camp," and I planned to find all that out later, but right now my attention was on the potentially haunted house across the way from my own. Melissa had asked me not to think she was crazy before she spoke, but I was struggling with that idea at the moment.
+We moved down a few more steps and she held out her hand,
 
-"Once he made himself visible, the attacks became more frequent. More violent. Specifically to Joy. The Drover would push them, trip them. He scratched Joy across the back so deeply that it left bloody wounds. Jim was nearly shoved down the basement stairs."
+“Wait! It's here!” She cried. We took a step back in tandem then forward and then back.
 
-"Jesus," I said.
+Then it was there, the door. I saw the safety of the room again, and we moved in unison toward it. Sherrie paused for a moment and held her breath. I took her hand and we moved to the threshold together. I crossed my fingers and we moved. It worked; she was able to step through. Yet just as we were almost in and ready to shut the door behind us, a terrible burst of energy erupted in the door frame that nearly burst my eardrums and caused me to fall, half in, half out of the door. 
 
-"They kept a brave face on in public, but to me, they broke down in tears. Joy was manic. She couldn't be home alone with it. When Jim went to work, she'd spend her days at the library or Starbucks."
+I looked back in a daze and saw Ezraen, he was floating down the center of the stairs. He channeled torrents of a strange shimmering energy that pulsed through him and when I looked closer I saw his mask had fallen off in the attack. The withered and hideous visage I beheld was no longer human. He looked like a mummy, dry withered skin emaciated flesh and only that odd shimmering light burning in the shriveled sockets where his eyes had once been.
 
-"Why did they stay?" I asked.
+I tried to scramble in through the door but the strange energy held fast onto my leg.
 
-"They'd just bought the place. They were afraid they'd lose everything if they left," Melissa said with a shrug.
+He spoke, sounding distorted and less human than before,
 
-"Sunk cost fallacy," Noah diagnosed.
+“You two are not going anywhere. You have destroyed the only peace this nexus, maybe even this dimension has ever known. You let them in, they will be even worse. You will stay you will suffer for this act” He reached for us and was about to pull me into the vortex of lethal energy.
 
-"I guess. They thought they could stick it out. I know they were contacting a priest to see if they could come and cleanse the house. But they were gonna have to do it without attracting too much attention. Jim is trying to make partner at his firm - it'd be a mark against him if he started talking about how his house is haunted."
+Then Sherrie rushed forward and threw the strange crystal she had recovered earlier onto the ground near me. Before I could react she stomped on it and a burst of force emerged from the act, along with the ressonating sounds of shattering stone. I couldent tell if it was just the crystal or the steps collapsing themselves but the effect was imediate, a blinding flash burst forth and Ezraen screamed and fell into the abyss. He powers leaving him just long enough for gravity to do the rest of the work. He cries rang out even as we rushed through the door and slammed it behind us.
 
-"Oh my God," Noah said. "What happened the night they left?"
+We fell in a heap on the floor in my bedroom. We looked back at the door then each other. We started laughing, the tired semi hysterical laugh of people who had just survived an impossible situation.
 
-Melissa took a breath. "They had just sat down for dinner when they heard the voices calling out for them from the pantry. They tried to ignore it, but when the voices started becoming agitated and threatening, Jim and Joy moved out into the living room. The Drover appeared down the hall. They tried to ignore it, but how do you do that?"
+Suddenly I realized she had shattered the stone. I touched her face and made sure she was really there with me. “The stone? How? Are you...” I mumbled in a daze.
 
-"I can't even stop myself from throwing recyclables into the regular trash. I can't imagine trying to eat with a goddamn monster staring at me."
+She smiled, “I think whatever was stolen has come back. I can’t believe it, I made it out. We made it out.” She started to cry tears of joy and I found myself doing the same. I held her for a while we decompressed from the horror of our ordeal.
 
-"They decided they couldn't either. They got up and left for the evening. When they got home around one in the morning, things were worse. Their couches had been flipped over. The chairs in the kitchen had been stacked on the table. Plates and bowls were smashed on the ground. As soon as they entered the house, they smelled cigarette smoke all around them. Then, then the Drover materialized directly in front of them."
+In the aftermath, we had a bit of explaining to do when we reconnected with our families. Sherrie’s family had thought her missing or dead for a long while and were overjoyed to see her again.
 
-"Oh fuck," I said, taking a long pull from my wine. Wow, this is tasty.
+My parents thought I had gone missing too since my latest adventure into the stairs had seen two weeks go by in the real world, despite only feeling like a couple of days. When they had calmed down after seeing I was okay, I asked them many questions on what they knew about the stairs.
 
-"She said he's hideous. He was there one second and gone the next. Then she felt his hands on her throat."
+It was not much, but they each acknowledged that they had seen them before. I decided to move out of our old house since I did not like the notion of seeing the stairs again. They could be gone now, but I believe they still exist somewhere. Though wherever they truly are, I don't think I will ever know. When I think about them I shudder as I consider how the things haunting the endless spiral are more terrible than they ever were before.
 
-Melissa stopped speaking. The silence was deafening. I finished my glass and poured another for both of us. Melissa took it and tipped it back. I followed suit. I could smell the sauce burning. Noah must've too, because before I could say anything, he rushed over and shut off the burner.
+Sherrie and I settled things down with our families and lives after a while. But our connection remained strong. We had saved each other and were still drawn to each other. It felt inevitable that we would end up together and soon we were moving in together to an apartment building downtown.
 
-"Jim told me Joy couldn't breathe and turned blue. He tried to help, but there was nothing to do. He eventually laid on top of his wife to try and break any connection between her and the Drover. It worked. She caught her breath, but the Drover wasn't finished. Jim felt a burning sensation on his back. They smelled burning flesh. The Drover had branded a star symbol on his shoulder. That's what did it. They ran out and haven't been back."
+Its a small cozy place on the second floor. We managed to move in quickly and I think we will be happy here. Sherrie is waiting for me by the entrance with one last box. She smiles at me and I feel content. We walk in and I move towards the stairwell. She holds up a hand and I stop.
 
-We sat in stunned silence. Everyone in the neighborhood had been wrong. It wasn't drugs or spies or mob violence. It was an actual angry ghost. I suddenly understood why Melissa was hydroplaning the wine.
-
-"Jesus fucking Christ," Noah finally said, breaking the tension. "Are they okay?"
-
-"No."
-
-"Did something happen tonight?" I asked. Again, tears formed at the corners of her eyes. I reached out and touched her hand. Letting her know she was safe here. No judgment.
-
-A tear fell, and Melissa nodded yes. I didn't want to pry, but I assumed the reason she was over here was that something had happened. She'd either tell me or not.
-
-"Umm, Joy called me this afternoon and asked a huge favor. She asked if I could go into their room and grab some important paperwork for her. They needed it to sell the house. She said the activity was lowest in the late afternoon. I didn't want to do it, but that poor woman had gone through so much already, so I said okay."
-
-You could've knocked me over with a feather. If a ghost had choked me, I'd never ask anyone - let alone a casual neighbor friend - to go into the house. I was raised better than that. Melissa, as far as I was concerned, was a saint. If I had a vote in the papal conclave, she'd get it.
-
-"What happened?"
-
-"Everything was fine. At first. I wasn't planning on staying long. I'd walk in, head to their bedroom, grab the files, and run out. Ten minutes was the maximum amount of time I'd be in there. As soon as I entered, I felt the temperature shift. It was freezing. As I moved through the hallway, I heard whispers around me."
-
-"What were they saying?"
-
-"I couldn't make anything out. It was like human vocal static. Just sounds, but my brain knew they were voices. I pushed past and went into their bedroom. I rifled through their dresser until I found the paperwork I needed. Then the smell hit my nostrils - cigarette smoke. As I turned to leave, the Drover," her voice caught. She waited a beat, collected herself, and continued. "H-he was standing in the doorway. A shadow in the shape of a man in a hat, just watching. He disappeared, and I f-felt fingertips dragging up my arm. I ran out and came over here. I dunno why, I needed to feel safe or check my sanity or…."
-
-Melissa put her head on the counter and broke down into sobs. I moved from where I was standing and wrapped her in a supportive hug. She was trembling. I said nothing. I wanted her to know that she had our support.
-
-She stayed that way for damn near five minutes, letting all the trauma come pouring out of her. When she had cried out all her tears, she thanked me and sat up. Her face was puffy and her eyes red from the salty tears.
-
-"You're safe now," I said.
-
-"No," she said. "I'm not. None of us are. Before I left, I heard him say to stay off his land - all of it. I think he was talking about the neighborhood."
-
-"Why would you think that?" Noah asked.
-
-"This whole area used to be one big ranch. You can find old maps online. I don't know what he meant, to be honest, but I wanted to let you know. You're right across the street. You could be next."
-
-Once she breathed those words into existence, they found a home in the "holy hell, what the fuck?" fear region of my brain. I escaped my growing dread long enough to tell her she was always welcome here. Melissa stayed for a bit longer, collecting herself. Noah offered to escort her home, which she gladly accepted. I can't say I blame her. Not only is Noah a looker, but if a haunted ranch hand were threatening me, I'd have a buddy with me at all times.
-
-While he was gone, I pulled out my laptop and started searching. Dinner was going to have to wait - we'd ruined the sauce, anyway. I needed to know if a haunted rancher was going to come into my house and choke me out.
-
-By the time Noah returned, I'd found what purported to be a map of this area from the late 1800s. With a little Photoshop wizardry, I placed the old map on top of a modern one. Sure enough, our neighborhood was smack dab in the middle of "Badwater Ranch." J& J's home was labeled as 'the boss's house.' I showed Noah.
-
-He frowned. "Badwater doesn't exactly portend good things, does it?"
-
-"Not really," I said. "How was Melissa when she got home?"
-
-"Little better. The wine helped calm her down, but also made the trek longer than normal. We did more weaving than walking. She gave me the link to that landscaping course, though."
-
-"Fantastic. The flowers that grow on our graves will look lovely."
-
-"You honestly think that thing is going to come over here?"
-
-"If we agree that there is already a ghost over there, then it crossing the road to our place isn't a gigantic leap in logic."
-
-He nodded. "Should we go over there and see if anything is there?"
-
-I knew this was coming. Noah had wanted to go check things out from the jump. Now that there was a spooky story attached to J & J's departure, the drive to go "check it out" would be full-bore. I had zero desire to see what was what inside their haunted abode. Nor did I want my husband poking around.
-
-"No," I said. "I don't want to invite this thing over."
-
-"Assuming there is a thing, which we won't know until we check it out."
-
-"Noah," I said, narrowing my gaze. "Seriously, that lady told us it nearly choked Joy to death. We really want to go pissing a violent ghost off?"
-
-He held up his hands to show his surrender. "Okay, fine. You're sticking to your guns on this one, huh?"
-
-I pointed my finger guns square at his chest. "I'd rather you not die if I can help it," I said, holstering my hands.
-
-He walked over and kissed me on the forehead. "What a lovely sentiment."
-
-"I'm sappy like that," I said, leaning into him. "Is dinner salvageable?"
-
-Noah looked back and shrugged. "How do you feel about pizza?"
-
-About forty minutes later, ten after the app's promised delivery time, Noah looked out of our blinds and saw the pizza guy pull into J & J's driveway. The scruffy-looking man walked up to the front door, pies in hand, and was about to knock on the door when it swung open.
-
-The pizza guy was talking to somebody inside the house, but Noah couldn't see who. "Pilar, did someone sneak into J & J's house when we weren't looking?"
-
-"What?"
-
-"Arju is talking to someone over there."
-
-"Who's Arju?"
-
-"The guy delivering our food. Don't you ever check the app?"
-
-I pulled myself from my book and walked over to Noah. "Why is the pizza guy over there at all?"
-
-"Maybe he got the wrong address?"
-
-I glanced out and, sure enough, Arju the pizza guy was chatting with someone just out of view. I looked at Noah. "Did J & J come back? Is Melissa over there again?"
-
-"I dunno."
-
-"Go say something," I said, prodding him. "He could be walking into a dangerous situation."
-
-"I thought you didn't want me going over there," he asked, already heading toward the door.
-
-"I'm not heartless. Go save Arju."
-
-Noah opened the door, and I peered back out the window. We both saw, in our shared horror, the pizza guy walk into the house. The door slammed shut behind him.
-
-"Oh shit," Noah said, sprinting over there.
-
-Even though every fiber in my body told me to stay, I couldn't let the love of my life go running into a ghost house alone. I put on my big-girl pants and ran after Noah. I wouldn't let him face down the Drover without me.
-
-I caught up with him as he reached their porch. He didn't seem surprised to see me tagging along. Noah walked up to the front door and touched the handle. He instantly yanked his hand back, waving it painfully in the air.
-
-"What?"
-
-"It's hot," he said.
-
-"Fire?"
-
-"I don't smell or see a fire," he said. He glanced down at his hand, and his jaw dropped. He held up his palm to show me, and I felt my heart skip a beat. A small star had been burned into his skin. Like the Drover had branded him.
-
-"Fuck this guy," he said. He took a step back, squared his shoulder, and rammed into the door. Or, he would've, if the door hadn't suddenly swung open and sent him tumbling into the house. I went to follow him, but the door slammed in my face.
-
-"Noah!"
-
-Despite just watching him burn his hand on the door handle, out of instinct, I grabbed at it, too. It was ice cold. I turned it and pressed against the door, but it didn't budge. I took a step back and kicked it. All that did was send waves of pain up my leg.
-
-Still, I gave it another go. It still didn't budge. Not wanting to try a third time and find myself tumbling into the abyss, I ran around to the backyard and looked for another way in.
-
-To no one's surprise, J & J's backyard was a Homes and Gardens quality retreat exquisitely designed with top-end patio furniture, a wet bar, and, I shit you not, an actual, authentic brick pizza oven. I sprinted to their ornate French doors and yanked on the handles, expecting them to be locked. Amazingly, they were unlocked.
-
-Opening the doors like the Sun King, I strolled into the house and felt the cold instantly. I called out for Noah, but he didn't respond. Neither did Arju. I felt bad for him - I delivered pizzas in the past, and it's already a thankless job. Throw being trapped in a haunted house by an angry ghost into the mix, and it might be the worst job imaginable. Even Little Caesar would tuck toga and run away.
-
-I made my way to the front door, but nobody was there either. The pizza boxes were even missing. None of this made sense - where the hell could they have gone? I called out again for Noah, but didn't hear him.
-
-But I heard something.
-
-Whispers. All around me, like bees near honey.
-
-Melissa had called it human vocal static, and that was apt. The whispers sounded like what I imagined English sounded like to foreign ears. Noises that would make sense if God just turned the dial a little to the right or left.
-
-My nose caught a scent that, regrettably, wasn't pepperoni. Cigarette smoke. Both of my parents smoked for years, and I've always hated that specific stink. All this did was piss me off. The smell transported me back to sitting with my father, sick with cancer, lamenting that the hospital wouldn't let him smoke anymore.
-
-"I don't care that you're here," I said to the empty room. My voice echoed off the walls. "I'm here to get Noah - and the pizza guy - and you're not going to stop me. This isn't your home anymore! Hell, you're not even alive. There hasn't been a ranch here in a hundred years! There's nothing you can do that's going to stop me from helping my loved one…and Arju, the pizza guy."
-
-The power cut off.
-
-Begrudgingly, I had to give the Drover credit - that was a good way to stop me from finding these two.
-
-"Pilar! Pilar! Help!" It was Noah, and his screaming was coming from under the house. I didn't know this place had a basement - no one else in this area did. If it was anything like the backyard, I imagined I'd be stepping into an aristocrat's apartment.
-
-"Please! Help!" came another voice that I assumed was Arju. I felt horrible that he had blundered into this entire ordeal. His tip would have to be biblical to atone for all of this. Exorbitant tipping - another legitimate reason to hate the Drover.
-
-I scanned the room for the stairs to the basement. Not that I was excited about the prospect, but I knew if Noah were down there, I'd soon be. I wasn't even sure how they got down there in the first place, but when an angry ghost is haunting your neighbor's house and nearly killed the last occupants, you don't question odd shit. It's par for the course, and in that moment I felt like Tiger Woods.
-
-The cigarette smell swirled all around me, and I had to assume the Drover was on the move. The whispers started again, louder this time. Clearer, too. While there weren't a bunch of coherent phrases, every once in a while, an actual word slipped through the static and found my ears. "Death," "Leave," "Torture," were among the winners.
-
-I spied a door tucked away in the kitchen. That had to lead to the basement. I ripped it open and saw an ancient wooden staircase that seemed out of place in the home's interior. While the bones may have been made with classic river rock, the guts had been completely modernized. Why do all that and not change the stairs?
-
-"Pilar! Is that you? We're down here!" Noah yelled from the darkness. I patted for my phone, but I'd left it at home. I'd have to descend into the basement in the dark. Great.
-
-As I took my first step, I smelled cigarette smoke again. Melissa's story about Jim nearly being thrown down the stairs came back to me. I glanced over my shoulder but didn't see the Drover. I didn't want to stick around to find out if he showed up.
-
-Running down the stairs, my foot caught on something sticking out of the wall about halfway down. It was enough to throw off my balance. My body pitched forward, and I grabbed at the railing to keep myself from falling. But the timeworn wood splintered, and I went hurtling down the stairs in a heap.
-
-Throwing my left arm up to protect my face did little to limit the total damage, but it probably saved me from at least a broken nose. My cheek slammed into the corner of the step. I felt a cut open up and blood trickle from the wound. Because I cartwheeled down the stairs, the blood ran up and down my face, depending on where my head was at the moment.
-
-I hit the landing with a sickening thud. The air rushed from my lungs, and I heard my head smack onto the dirt floor. I saw stars, and my vision went blurry for a moment. My landing had kicked dirt off the floor, and I started coughing.
-
-Wait? Dirt floor? Why in the world did this basement have a dirt floor? Unless this wasn't a basement, but a root cellar. Of course, J & J were homesteading, too. Probably had homemade kimchi buried somewhere down here.
-
-Is this how a concussed brain processes thoughts?
-
-As I took a life-saving gulp of air, I sat up and shook the cobwebs from my head. Looking up the stairs, I felt my heart stop. Dozens of disembodied arms were coming out of the walls, their ghostly fingers extended, looking for another leg to grab.
-
-"What the ever-loving fuck is going on?" I heard myself say.
-
-From the top of the stairs, a figure rose from the floor. The Drover. He was mostly in shadow, but I could see his blood-red eyes just below his hat brim. There were no whispers now. He didn't have to say a word. His appearance there said everything I needed to know.
-
-I was in danger.
-
-I kicked away from the bottom of the stairs and scooted across the dirt floor. As I did, the Drover disappeared, and the door to the basement slammed shut. I was in total darkness.
-
-I felt the gritty dirt under my fingernails. I was trapped in an overgrown crawlspace that had been here since the original pioneers laid down the first rock. Glancing up, I saw just how low the ceiling was. I didn't think I'd even be able to stand fully down here. I'd have to stoop to avoid cracking my head on the wood and pushing my concussed brain to NFL player levels.
-
-"Noah," I whispered. "Where are you?"
-
-"Over here," he called out.
-
-"That's not helpful," I said. "Where is here?"
-
-"Follow the sound of my voice."
-
-I turned to where I thought I'd heard him, but as I was trying to locate him, the whispers filled the crawlspace. More aggressive, more angry. Made finding Noah almost impossible. It was like they were in my ears.
-
-I started crawling toward the far wall, assuming they were there. Each time I moved, I kicked up more ancient dirt into my nostrils. I sneezed and coughed, but kept moving. Finally, through the noise, I heard Noah's voice calling for me. I was heading in the right direction.
-
-"Pilar! PILAR! Can you hear me?"
-
-"Yes," I said, reaching out my hand. I felt his hand wrap around mine. He pulled me closer. Then he started yanking at me. Pulling way harder than he should be. His grip tightened, and I felt a burning sensation ripple across my skin.
-
-The cigarette smell returned.
-
-In the dark, I saw those blood-red eyes in front of me. The Drover had me in his grasp and was pulling me into a dark corner of the cellar. I started screaming and tried yanking my hand back, but his grip was iron clad. I rolled onto my back and dug my feet into the dirt floor. It slowed him, but my shoes wouldn't catch.
-
-I kept sliding.
-
-Behind the Drover, a swirling white light formed in the corner of the crawlspace. At first, it looked like a candlelight flickering in a storm, but it kept growing and soon looked like a whirlpool of lightning. A portal? I didn't know where it led and had no intention of discovering that for myself.
-
-The swirling white opening provided enough light for me to see where Noah and Arju were being held. They were locked in an old coal storage area just below the remnants of an antique coal chute. Someone shoved a metal rod through the latch, trapping them inside. Noah was screaming for me and throwing himself at the bars, but they wouldn't budge.
-
-The whispers were so loud and omnipresent now that it was just a buzzing white noise. My eyes were laser-focused on the swirling storm in the corner. In the eye of the cellar hurricane, I glimpsed what looked like crackling flames. That's never a good sign. I needed to do something, and fast, or my life would literally slip away from me.
-
-Melissa had said that Jim had gotten on top of Joy to break the connection and stop the Drover from choking her. But the Drover had been invisible then. I saw him now. Felt him. I wondered if feeling was a two-way street.
-
-I raised one of my legs off the ground and instantly felt myself being dragged faster toward the portal. With my leg free, I took dead aim at those blood-red eyes and kicked. I didn't expect to hit anything, but when the bottom of my foot hit something solid, I unleashed a Bruce Lee-level barrage of kicks.
-
-I chopped my free hand at his arm and felt his hold on me loosen. With my ass mere inches from the lip of the portal, I reared my leg back and called upon the spirit of every horse that had ever kicked a person in human history. I slammed my leg forward and landed a kick so hard between his eyes that his grip loosened enough for me to rip my arm away.
-
-I was free! Well, free-ish.
-
-My kick knocked the Drover back so far that his form got caught in the pull of the swirling light. He reached out for me again, but I scooted away from his desperate clawing. His hands landed in the dirt, his fingers carving little troughs as the gravitational pull of the portal sucked him deeper into its psychedelic light.
-
-I left the Drover to struggle with whatever was going on and scrambled over to the coal storage bin. Noah and Arju were cheering as I knocked the bar from the latch, freeing them. Noah wrapped his arms around me, but I brushed him back.
-
-"Run now, hug later."
-
-The three of us made our way to the stairwell. Before we went dashing up, though, we all skidded to a stop.
-
-There were hundreds of arms coming out of the walls now.
-
-They waved back and forth like seaweed in a strong current. There were substantially more than I'd seen just mere moments ago. If we went up the stairs and they grabbed us, where would they drag us off to? Back to the Drover? To another portal?
-
-"Shit," I said.
-
-"What the fuck is this place?" Arju asked, his eyes wild.
-
-The whispers were frenzied now. I knew it was a response to the Drover being yanked down into that portal. I wasn't sure if his anger stemmed from being dragged down or from the fact that he had failed to bring me with him. Was he working for something on the other side that needed a living woman for some unspeakable reason? Either way, I wasn't sticking around to find out.
-
-"Coal chute?" I offered.
-
-"Too small," Arju said. "I tried it."
-
-"There has to be a cellar door somewhere, right?" Noah said, his hands reaching the ceiling and feeling around. "This is an old house with a root cellar. There has to be one."
-
-"I've never noticed one outside the house," I said. "Maybe they sealed it up a long time ago?"
-
-A sick, sinister laugh broke through the whispers, silencing our conversation. We all glanced back at the Drover. Despite his straining, half of his body had disappeared into the portal. But he was fighting to free himself. His blood-red eyes watched our every move. Plotting.
-
-"You can't leave Rebecca. I told you, down here, no one will hear you or your worthless children scream!" it said, cackling like a deranged madman. I didn't know who Rebecca was, but I was instantly on her side. The Drover didn't become a monster after he died - he'd always been one. Death had only increased his power. "They're waiting for you down there! I'll drag all of you down with me!"
-
-"The fuck you will," I said, my blood boiling.
-
-The surrounding dirt beneath our feet shook. I looked down just in time to see a tiny hand burst forth from the soil. And another. And another. They felt around for something to grab.
-
-"I'm never delivering pizza again. Tips ain't worth this shit," the pizza guy said in a panic.
-
-From the opposite side of the crawlspace, Noah's hands found something that felt like a cellar door. He tried pushing up on it, but it didn't budge. He called Arju to help him. With their combined efforts, the buried cellar doors moved ever so slightly.
-
-I ran and helped. With the three of us straining, the doors briefly parted. Fresh dirt from above us fell through the crack. An old owner must've landscaped right over the cellar door. Probably to keep whatever the fuck was down here trapped.
-
-With all of our attention on our escape route, we hadn't noticed that several child-sized figures had crawled out of the ground. I turned and saw half a dozen pairs of blue glowing eyes watching us. I screamed, which prompted the men to turn and add to my chorus of fear.
-
-"On three, give it everything you have," Noah said, readjusting his grip. "One, two, three!"
-
-We all shoved the doors. My arms strained against the wood, but the harder we pushed, the more I felt us breaking through. Dirt fell onto our heads in bucketfuls. We closed our eyes and gritted through it.
-
-Finally, moonlight was visible. With a last struggling push, the doors opened wide. The night sky was above us. Arju scrambled up through the hole first, nearly leaping straight out. He helped Noah out after.
-
-I turned and watched as the figure of a woman crawled out of the ground. The children moved to her, and she wrapped her arms around them. This had to be Rebecca and her children.
-
-She looked up, and we locked eyes. She nodded to me. I nodded back.
-
-"Pilar, what's the hold up!?!"
-
-Before I reached for Noah and Arju's waiting hands, I watched as all the figures moved toward the Drover. He struggled to free himself from the portal, but it was in vain. Rebecca and her brood surrounded him and kicked at his head and body. As I was being pulled up, I watched as the Drover completely disappeared down into the portal. As soon as his hateful form was gone, the portal winked out.
-
-We crawled out of the hole in the ground and scurried away from it as fast as our exhausted bodies could move. We made it out to the lawn, where Noah and I collapsed. Arju didn't stick around. He ran to his car and took off like a bat outta hell.
-
-Noah and I lay on the grass and stared up at the night sky. I felt for his hand, found it, and intertwined our fingers. We didn't speak - there was nothing to say. We just looked up at the stars and let our bodies slowly recuperate. If anyone had looked out, we'd have looked like the druggies that J & J had sold their wares to. The tea would be piping hot among the neighbors. I was too emotionally drained to care.
-
-What finally got us moving was the sprinkler system turning on. The ice-cold water hitting our skin made us jump up like firecrackers. We moved to the driveway, but it was no use. We got soaked. Noah and I locked eyes and started laughing. Just pure, unhinged cackling that echoed down the street.
-
-"What the hell is going on here?" It was Frank, holding a bag of trash and looking confused. He glanced at us and shook his head. "You two on drugs?"
-
-"Not yet," I said, pushing my wet hair out of my face. "But I'm hoping to change that soon."
-
-"Pilar," Noah snapped.
-
-"Listen, you two want to use devil's lettuce, do it in your own home, not on your neighbor's lawn," Frank said. "I'm gonna throw this trash bag away. Don’t be here when I get back. I know a guy on the force, and he'll drop everything to help me." Frank was a lot of things, but a jokester wasn't one of them. He would absolutely call the cops on us tonight and then engage us in conversation tomorrow during our walk, as if nothing had happened. Thus is the way of the wild Boomer.
-
-In the days since, things have calmed down over there. Melissa had to go back and get something else for J & J, and reported she felt nothing this time. I thought it was ridiculous to go back at all, but whatever. Maybe she was truly running for pope. She told us movers were coming at the end of the month, and it'd be hitting the market not long after.
-
-The Drover was gone. No clue where he went. I don't know why he tried dragging me down with him. I don't understand why he was so violent. I saw his face as he was being yanked down. I saw fear in his eyes. The same fear he saw in the people he'd tortured and hurt and killed over the decades. Sometimes when I'm feeling down, I think about his horrified face, and it never fails to brighten my day.
-
-The other night, as Noah and I were coming in from our nightly walks, I glanced over at J & J's place. In the living room window, I saw Rebecca's blue eyes staring out at me. I nodded at her, and she nodded back. Solidarity across time and dimensions.
-
-Soon, child-sized shadows joined her. Their bright blue eyes shone in the evening's purple light. Some even waved. I waved back and felt a stirring in my chest. Those poor, tormented souls finally found the peace they had lacked during their lives.
-
-I looked at Noah, who was holding the door open for me. The man never raised his voice to me. Never treated me as a lesser. Never locked me in a root cellar coal chamber. I walked to him and gave him a tight hug. He was surprised but eventually melted into me. He was my dude, in good times and bad. Hot damn, how lucky was I?
+“Can we take the elevator? I know it's just one floor, but I think I've had enough stairs for a while.” She grins and I nod my head as she presses the button to call the elevator. She has a good point.
