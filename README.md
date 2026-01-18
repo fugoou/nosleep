@@ -1,88 +1,40 @@
-# The ANGEL treatment was supposed to cure evil. They're hunting the creator now
-[Part 1](https://www.reddit.com/r/nosleep/comments/1og51cb/the_angel_treatment_was_supposed_to_cure_evil_i/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1ogzhlc/the_angel_treatment_was_supposed_to_cure_evil/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1ojimnu/the_angel_treatment_was_supposed_to_cure_evil/)
+# The new security app I downloaded is making me feel unsafe
+The house I live in isn’t really mine. It’s a place that’s been handed down from generation to generation, the way a track runner passes off a baton - hurriedly, yet with a kind of practiced grace. Over the years it descended through the branches of my wife’s family tree until it finally settled in her hands. She hadn’t lived here in more than a decade, but according to her, nothing about it had changed except the slow, inevitable aging of the bones that hold it up.
 
-**Rule 3 when dealing with the ANGELS: Once converted, an ANGEL retains all specialized knowledge but applies it to the new mandate.\*\***
+It was a quaint little home, out of the city but not quite in the middle of nowhere. Settling in was surprisingly smooth, and we even made friends with a few of the neighbors. Most of the other homes around us were occupied by families who’d lived in the same walls for generations, so when they started warning us about the need for security in the area, it didn’t feel like idle small talk. It felt like something we were meant to take seriously.
 
-"Come on, damn it. They should have been here by now."
+“The world is really going to hell,” one man muttered to nobody in particular as we happened to be checking our mail at the same time. It caught me off guard; I try to keep neighborly conversation to a bare minimum. On its own, it was a throwaway remark.
 
-My head was still throbbing as I pulled out my phone, finger clawing its way toward my sister's phone number, when the administrator slapped it out of my hand. "Are you crazy?" He was like a disgruntled parent, catching their child sneaking sweets after bedtime. The stakes now were obviously much higher.
+“Break-ins are on the rise around here. Mary-Jane down the road had her generator and all the batteries in the house stolen. Batteries! Out of the clocks and remotes even!” another concerned local told my wife while delivering yet another round of housewarming stew. My wife, far more sociable than I’ll ever be, actually asked for more details.
 
-"My sister," I stuttered out. "I need to warn her—"
+“Break-ins? Were there any arrests made?” she asked, with genuine concern.
 
-The administrator's face hardened, then his expression eased slightly. "Did you hear about the incident at site 8-B in Colorado last year?" I shook my head. His tone was rhetorical anyway. He shifted his gaze toward the rushing fields of corn around us. "There was a breach. They were testing twins—one incarcerated, one civilian. They thought they could use the good twin's... essence, or whatever the hell it is, to cure the evil one. Turns out evil flows both ways. The good twin turned, and fast." He paused, searching for his next words. "When they put her down, sixteen men, sixteen good men, were dead." His eyes fell to the floor of the jeep. "Seventeen, if you count that site's administrator, and the brass didn't, when they tallied the cost. They don't let this shit get out. I don't want anyone else taking my lashes."
+“Oh, of course! Good ol’ MJ had AllEyesOn installed. It informed the police at the slightest hint of trouble. Those two kids were arrested before they even made it out of the driveway!”
 
-I brushed my hair out of my face. Maybe I had misunderstood him. "They're not gonna kill you—"
+By then, my ears had heard enough about “good ol’ MJ” that my eyes began their familiar climb toward the back of my skull. While I love my wife dearly, I have strict limits when it comes to enduring what feels like a sales pitch.
 
-His voice dropped. "I'm as good as a dead man walking. I knew the consequences when I took the role." The veins in his arm strained against his skin. "We have a job to finish, and if we do it right, headquarters might at least spare you."
+“How the hell is that even possible? The drive from just about anywhere is longer than a jog down a driveway,” I muttered.
 
-I couldn't look at him anymore. I was sitting in a jeep, escaping a nightmare with a guy already busy writing out his own eulogy.
+The very next morning, there I was leaving the department store, arms loaded with all the wires, cameras, and motion lights a single app could possibly want from a man. There are a lot of assumptions one could make about me on sight, and most of them would be correct. I like video games. I like anime. I spend way too much time online. All of that just to say: I would rather cut my leg off than have to do IT work.
 
-The sound came before I could see them: a low rumble that grew into a roar. Two fighter jets screamed overhead, their silhouettes cutting through the darkening sky like knives. The administrator's whole body tensed as he watched them pass, continuing their trajectory toward the facility we'd just escaped.
+The endless wires coiling in and out of one another in their boxes looked like a snake pit. The firewalls singed whatever was left of my sanity. All of this for an app that worked about as well as just calling 911.
 
-"Finally," he breathed, but there was no relief in his voice. Only resignation.
+Once the bulk of the setup was complete, I fell into an exhausted lump on the couch. The last step was here, and without hesitation I slid the toggle in the app from deactivated to activated.
 
-Sebastian gripped the steering wheel tighter, his knuckles white. "How long until—"
+“All eyes are on you now,” my phone chimed.
 
-The night lit up behind us.
+I furled my brow as the message sank in. The security app sounded vaguely threatening, but I pushed the thought aside and switched apps to start what I hoped would be some well‑earned relaxation which, of course, would turn into doomscrolling.
 
-Even from this distance, the explosion was massive. A column of fire erupted into the sky, followed by a shockwave that rocked the jeep. I felt the heat on the back of my neck, smelled the acrid smoke even through the closed windows. The facility was gone.
+My wife came into the room looking as concerned as ever.
 
-Along with everyone still inside it.
+“Did you hear the news?” she asked directly.
 
-"N-6-P," the administrator said quietly, almost to himself. He wasn't looking at the flames anymore. His gaze had returned to the corn fields rushing past. "Do you know what that code means, Sofia?"
+“I’m almost certain I didn’t, but I know you did.”
 
-I shook my head, still staring at the orange glow in the rearview mirror.
+“Two other neighbors have been getting robbed. Not just once, but three nights in a row things have gone missing.”
 
-"It's a 'Non-viable Patient Protocol.' We developed it during the rat trials, before we ever got to O'Bryon." He pulled out a pack of cigarettes from his jacket pocket, lighting one with shaking hands. "Some of the rats would receive the treatment and seem fine at first. Then they'd start producing that black substance, vomiting it up in their cages. We'd isolate them, thinking it was just a side effect, something they needed to expel."
+“Well, I have some news you haven’t heard.” I held up my phone. “We have AllEyesOn… well, on. Hopefully it’ll do the job.” I genuinely wanted her to feel safer in her own home. Inside, though, I was still skeptical the app could do more than a phone call. 
 
-He took a long drag, the ember glowing orange in the darkness of the jeep.
+The next few weeks went as monotonously as one could hope. Mowing the yard, painting the fence, and a charcuterie board of other chores. Gossip is the blood that flows through the veins of the suburban ecosystem. Mary-Jane had discovered one remote that did not have its batteries stolen, Rodney lost farm equipment out of barn over the course of four days, and Ellie had two of her cats disappear. All was at it had always been. At least until, at 1:13am, my phone chimed.
 
-"But when that black goo touched the other rats, nothing happened. Rats will eat just about anything, so even when the clean rats licked up that black substance from the floor, they seemed fine. That's why I cleared Jessica, figured humans wouldn't be any different. Within hours, the rat that produced it would be dead. Massive organ failure. The body couldn't sustain whatever process was creating that stuff." He flicked ash out the window.
-
-"But O'Bryon exploded," Aguero said from the back seat, speaking for the first time since we'd escaped. "That's not the same as the rats."
-
-"No, it's not." The administrator's voice was grim. "It's worse. The converted have figured out how to weaponize it. Maybe it's some instinct. Or worse." He let the words hang in the air.
-
-"Or intelligence," I mumbled. The administrator gave a solemn nod.
-
-"That's why we need to get to Ricketts first," the administrator continued. "If the converted are smart enough to coordinate, to plan, to use themselves as weapons, well then we are in deep shit."
-
-"They'll go after him," I finished. "They'll want to know how the treatment works. How to improve it. How to spread it faster."
-
-"Or they'll want him to join them," Sebastian muttered.
-
-The administrator nodded slowly. "Either way, Ricketts has information we can't let them access. The complete formula, the research notes, and the variations he tested. We can't let them get to him first."
-
-We drove in silence for another five minutes.
-
-"Why keep him separated anyway?" I asked, desperate to fill the silence with something other than my own spiraling thoughts. "If he created ANGEL, wouldn't you want him right there?"
-
-The administrator took another drag of his cigarette. "Ricketts is brilliant. Maybe too brilliant for his own good. During the early trials, when he was on-site, we started noticing... irregularities."
-
-"What kind of irregularities?" I asked.
-
-"The kind where test results would be slightly better when he was the one administering treatment." The administrator's jaw tightened. "The board couldn't prove anything definitive, and his work was too valuable to scrap entirely, so they compromised. Keep him involved but at arm's length. Close enough to consult if needed, far enough that he can't tamper."
-
-"So they didn't trust him," Aguero said.
-
-"They trusted his genius," the administrator corrected. "They just didn't trust his objectivity."
-
-The corn fields gave way to a small cluster of trees, and then we turned onto a narrow gravel drive. At the end sat a modest single-story house. It was nothing fancy, but not the shack I'd been imagining either. It looked almost normal, like something a schoolteacher might live in. A porch light illuminated the front door, and I could see a warm glow through the windows.
-
-Sebastian killed the engine.
-
-"Aguero," the administrator said. "You stay with the jeep. Anything goes wrong, you drive and you don't wait." The administrator dug into his jacket pocket and pulled out a white card, pressing it into Aguero's palm. "You drive to the coordinates and you tell them we have a possible Sector Leviathan scenario."
-
-Aguero's trembling fingers clutched the card as he resigned himself to the driver's seat.
-
-We stepped out into the night. The air here smelled cleaner, away from the facility's burning remains, but I couldn't shake the feeling that we were being watched. The trees around the property stood like silent sentinels, their branches swaying gently in the breeze.
-
-The administrator approached the front door and knocked firmly. "Dr. Ricketts? It's Administrator Alan from Facility 50B-1. We have an emergency."
-
-Footsteps from inside. A lock clicking. The door opened.
-
-Dr. Ricketts stood in the doorway, and for a moment, I didn't recognize him. Gone was the theatrical figure from the demonstration, with his wide gestures and triumphant speeches. This man looked exhausted, his glasses sat crooked on his nose, his hair was disheveled, and he wore a rumpled cardigan over what looked like pajamas. But his eyes were alert, focused, taking in the three of us with growing concern.
-
-"Administrator," he said, his voice hoarse. 
-
-"Dr. Ricketts, we need to leave. [Now](https://www.reddit.com/r/ZJcortez/comments/1odnism/welcome/)."
+"While watching you, I noticed someone else watching"
