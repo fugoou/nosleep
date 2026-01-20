@@ -1,26 +1,93 @@
-# Black box
-Only one suit had been created for this expedition, and I had drawn the shortest straw. Approximately 3 miles beneath the surface of the Atlantic we had come across some kind of seismic anomaly - a solid box through which waves refused to pass through, potentially hundreds of feet in diameter. After consulting countries across the globe, none of them had any clue what organization or entity had placed it there, and ultimately a commission was created to determine what the box was.
+# Where I grew up, the birds told stories and mice painted on the walls of our basement
+Where I grew up, the birds told stories and mice painted on the walls of our basement.
+Dirt tasted like cinnamon and the air smelled sweet.
+I can’t remember before or after this place.
 
-The only percievable entrance was a slim opening discovered by an unmanned drone, and it was clear that given the pressure and potential complexity of navigating the interior of the cube, only a person would be fit for the job. And so it fell on me to descend into the depths.
+I used to play in the yard on sunny days.
+The temperature was always perfect—a warmth that felt frictionless.
+I walked barefoot through the lawn with curled toes, gripping footfuls of grass and ripping them from the earth with each step.
+A path of footprint-sized divots in the untouched green curved and wandered, overlapping and retracing itself like absentminded doodles.
 
-Slipping through the entrance was easy enough - it just took some time to shimmy through and keep my bearings. Wedged between the slabs of reflective, black, speckled walls, any movement from the structure would crack and rupture my suit, flooding it with water with pressure that would obliterate my fragile flesh body almost instantly.
+Bushes grew along the walls of the house in canopies of circular leaves that draped down to form small dens where I hid.
+Inside, I plucked blades of grass and tore them into thin ribbons.
+When snow covered the yard, I would pack it into large mounds and carefully carve out spaces to climb into and sit.
 
-But finally, I could feel myself free of the shaft, and I slowly descended as the roof of the seemingly empty box rose and disappeared above me. All sound had stopped, and all that remained was my own breathing. Finally, an obviously artificial floor began to appear below me, and my lights flooded across a massive expanse of panels making up what I assumed was the bottom of the cube.
+Birds that perched in the trees wove tales through crisp melodies in a language alien to me, though I still listened as I played.
+They were not the only ones to inhabit my world. 
 
-As my boots touched the floor, I noticed that each square panel was etched with a slightly different texture, obviously untouchable by my gloved hand but noticeable nonetheless. Some panels had been removed a few feet away from me, and I shuffled towards them cautiously. My periphery revealed to me a podium holding a glass cylinder, about the size of a pencil. Before exploring this further, I peered down into the area the displaced panel had once hidden: the bottom of the small box held a diagram of a male and female, not unlike the infamous Vitruvian Man sketched by da Vinci. A depression in the center of the bottom of the box and the removed top panel indicated that a cylinder had once resided here, of similar size to the aforementioned one.
+Unseen in the basement, little artists were at work.
+They’d dart around the peripheries of my room at night, small shapes that never lingered long enough for me to know them.
 
-Glancing into another box, a similar diagram displayed a prehistoric mammal, and another box displayed a whale of some kind. My curiosity got the better of me now, and I removed a panel manually from the floor, which proved to be a surprisingly difficult task. Within was the expected vial, filled with a clear liquid housing strands of what must have been some type of genetic material. Below that was a diagram of something clearly organic, but an entity I didn't recognize. A massive beak arose from a wooly, stout abdomen, and two long legs sprouted from either side of this strange creature. Fascinated, I attempted to place the vial into a sample bag but it shattered upon my touch.
+I called them mice.
+And the mice spoke in a language I knew well, one made up entirely of visual compositions.
+Along the bottom half of my basement walls, they created breathtaking murals.
 
-I quickly revoked my hand as to avoid damaging my suit with broken glass shards, and the strands began to ascend towards the ceiling of the chamber, undoubtedly towards the slim entrance.
+On nights when the air turned bitter and the house draped over me in yellow light, I crept down the basement stairs to have a peek.
+All would be quiet until I flicked the light switch. 
+Steps groaned under each tiptoe down, and I tasted cinnamon as dirt lifted into the air on my approach to the wall.
+Then, lowering myself onto my stomach, 
+the painting came into full view.
 
-Disappointed, I approached the podium and examined the vial here, which contained some sort of dark red liquid. After a moment I realized that the cylinder was being held in place by metal clamps, and opposite the podium on the ceiling, an obelisk held the stone-carved skulls of some race of presumably alien origin. Their empty eye sockets looked down in every direction away from the red vial before me, and gazing up into their soulless eyes I gathered an unshakable assumption about the liquid before me.
+Those nights spent viewing the paintings are most vivid in my memory.
+It was finished every time I trekked down to look, and no matter how complete it appeared to be, I would always return to a wholly new piece.
+I never thought to try and unveil this mystery.
+So I treated their presence like a glass vase and moved carefully.
 
-If the strands contained within each box around me were the seeds of life of ancestral species who swam and walked and dug through the earth (or hadn't gotten the chance to) long ago, then this was the antiseed. For each "on switch" contained within this room, this was the off switch to rule them all. For one reason or another, whoever left the cube here had left this here for one of us to stumble upon. If not me, maybe a descendant years in the future or perhaps a lone, wandering sea creature. There might have been a purpose in leaving it here, or there may not have been, but either way, I was the one who happened to come across it.
+There were times I looked at a single inch of the mural for hours trying to figure out how it fit into the rest.
+I never was able to grasp what they were getting at.
+I learned to live with that and let the colors and forms wash through me, to feel whatever I felt and be content with that.
 
-Two thoughts immediately raced through my mind, the first being a fascination that this small vial would be all it would take to eliminate or subsumed all life on Earth. Of course, the killing of countless beings was only an assumption - the liquid could really do anything for all I knew, but realistically it most likely spelled at least a major shift in the life of some organisms. In what way, I couldn't possibly know, but I became anxious to find out.
+The mice constantly experimented with style, moving through different modalities of painting.
+I used to take art history books down with me to try and place their influences.
 
-The second thought was a gambit: all of those who wronged me came up first. Then my ex-lovers who went on to find joy and happiness without me, leaving me to my joyless solitude each time without fail. I no longer really felt as part of humanity. Really, none of the boxes in the room contained anything related to me. All life was alien to me, and from this chamber miles beneath the sea and Earth, I finally had the ability to see clearly what I hadn't been able to see before: a fragmented life, not just mine, but all of humanity's fragmented life, really wasn't worth living. Immediately the question arises - who am I to say what life is and isn't worth living? How can I choose for anyone else? And to that I only recalled how destroyed I had been by others. The repeated blows I've taken at the hands of others I'd placed my trust in and loved. Who were they to choose this life for me? They fucked me, and I found it only fair to fuck them.
+Some years, they stuck entirely to impressionism.
+Each scene drifted in and out of representation, the mural flowing over and around itself in waves of pulsating blues and purples, cut through by faint reds and vivid yellows.
 
-Without hesitating, I reached towards the vial. The skulls above peered down to look and the clamp released the vial into my hand. I was shocked to find the vial had not shattered as the last one had. I clenched my fist, and the glass broke as expected. Shards entered each of my fingers, and the liquid burned my flesh and immediately began to course through my veins. I screamed in agony but I only deafened myself. Water began to rapidly fill my suit, puncturing each and every pore as the liquid simultaneously dissolved my skin, muscle, and bones. The liquid began to swirl around me, carried by the water and air bubbles, which turned red as the liquid seemingly immediately evaporated when it touched air, and it all rose upwards, to subject all to my own fate.
+Other years they delved entirely into cubism with hard lines that intersected three-dimensional objects, cracking them into fragmented shapes.
+Everything came together only to contradict itself.
+A maze of primary colors, black lines and spanning blocks of pure white dissected form while still telling a story.
 
-After my arm, within seconds my chest and groin began to suffer the same fate. As I faded away, my only catharsis was imagining others I had once known wasting away and withering as I had both in death and in life.
+I was surprised when they started to paint realistically.
+Human figures danced in forests of heightless trees, their faces rendered so delicately accurate that their irises seemed to reflect everything held in their gaze.
+The trees created a labyrinth that spanned the wall with scenes interweaved between.
+That piece made me forget I was lying on my basement floor.
+When it appeared, I spent days down there.
+
+After a while, they painted in a wholly original aesthetic that didn’t resemble anything I had seen, yet it felt deliberate.
+New, but successful in a way that felt historic.
+
+Then one day, I went down the basement steps and what was left on my wall surpassed anything they made prior.
+I couldn’t tear myself away from it.
+I spent weeks down there just looking at it.
+Refraining from eating, and forcing myself through sleep’s seduction.
+
+I just lay there, staring, exploring it over and over again.
+However many times I followed the painting around the periphery of my basement, I was never satiated. 
+There was nothing else worth looking at.
+
+Exhaustion overtook me and, to my horror, I felt my eyelids become heavier.
+It started slowly; every couple of minutes my eyes would close and I’d slip into sleep before jolting back awake.
+Minutes became seconds, then in a great betrayal, my body took away my entire world.
+
+I slept.
+
+When I woke, the mural was gone.
+Painted over.
+I checked every inch of wall to see if there were any remnants of the painting.
+But not even a centimeter of color was left.
+I tore at the wall, trying to scratch off the layer of paint hiding what they created.
+But my nails were imperfect tools and dug too deep.
+I felt wretched as the fleck of paint drifted to the floor.
+My stomach twisted and I started to sob.
+Something across the room cast a line and caught my eye.
+
+In the corner of my basement, still as stone, lay a mouse.
+I inspected it closely.
+Its body was frail, but there was something about its hands.
+I can’t tell if it was my mind seeing what it wanted to see, but its hands looked almost human.
+Most mice have hands like that.
+
+It was dead.
+And after that, no paint was ever added to the basement wall again.
+
+
