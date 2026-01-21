@@ -1,93 +1,105 @@
-# Where I grew up, the birds told stories and mice painted on the walls of our basement
-Where I grew up, the birds told stories and mice painted on the walls of our basement.
-Dirt tasted like cinnamon and the air smelled sweet.
-I can’t remember before or after this place.
+# They wear crowns of flesh
+I’ve been clean for a year now. Things are better, but probably not for the reason you think. I didn’t get clean because I wanted to. I love drugs. Always have. They scratched an itch I didn’t know I had, and then I kept on scratching until everything in my life was a raw, open wound. I would have kept going, too.
 
-I used to play in the yard on sunny days.
-The temperature was always perfect—a warmth that felt frictionless.
-I walked barefoot through the lawn with curled toes, gripping footfuls of grass and ripping them from the earth with each step.
-A path of footprint-sized divots in the untouched green curved and wandered, overlapping and retracing itself like absentminded doodles.
+I didn’t stop because I was living on a sidewalk. I didn’t stop because I was penniless, begging for change to feed the needle every day. I stopped because, well… now I don’t see *them* anymore.
 
-Bushes grew along the walls of the house in canopies of circular leaves that draped down to form small dens where I hid.
-Inside, I plucked blades of grass and tore them into thin ribbons.
-When snow covered the yard, I would pack it into large mounds and carefully carve out spaces to climb into and sit.
+I don’t know what they are. Angels? Maybe demons. I’ve watched them do what you might say both would do. I once saw one push a woman into traffic. She was walking down the street with her stroller; as she went past an alley, this *thing* lunged at her. It shoved her directly in front of a semi‑truck.
 
-Birds that perched in the trees wove tales through crisp melodies in a language alien to me, though I still listened as I played.
-They were not the only ones to inhabit my world. 
+The tires screeched. The driver tried to stop. It was too late.
 
-Unseen in the basement, little artists were at work.
-They’d dart around the peripheries of my room at night, small shapes that never lingered long enough for me to know them.
+But the thing stopped the stroller.
 
-I called them mice.
-And the mice spoke in a language I knew well, one made up entirely of visual compositions.
-Along the bottom half of my basement walls, they created breathtaking murals.
+It didn’t let the kid roll into the street. Why, I don’t know. Did she deserve it? Was it because the baby was innocent? I can’t say. Maybe they’re some kind of cosmic justice delivery system. All I know is that they scared me in a way that made me want *more*.
 
-On nights when the air turned bitter and the house draped over me in yellow light, I crept down the basement stairs to have a peek.
-All would be quiet until I flicked the light switch. 
-Steps groaned under each tiptoe down, and I tasted cinnamon as dirt lifted into the air on my approach to the wall.
-Then, lowering myself onto my stomach, 
-the painting came into full view.
+I’d describe what they look like, but it’s always different. They might even be the same being in different skin. Humanoid, usually. Mostly opaque, sometimes short, sometimes tall, but they always have some kind of crown. It looks like a fleshy ring floating a few inches above their head. A halo.
 
-Those nights spent viewing the paintings are most vivid in my memory.
-It was finished every time I trekked down to look, and no matter how complete it appeared to be, I would always return to a wholly new piece.
-I never thought to try and unveil this mystery.
-So I treated their presence like a glass vase and moved carefully.
+When they’re about to act, it flashes. A sharp white pulse on the inner edge of the ring. And then they do something. To someone.
 
-There were times I looked at a single inch of the mural for hours trying to figure out how it fit into the rest.
-I never was able to grasp what they were getting at.
-I learned to live with that and let the colors and forms wash through me, to feel whatever I felt and be content with that.
+Sometimes they look like a man, or a woman or a kid. Sometimes looking at them makes you feel insane just for seeing them: an undulating mass of geometric shapes, writhing and churning, pieces creaking against each other. I started noticing them about two years into doing heroin, and then speed.
 
-The mice constantly experimented with style, moving through different modalities of painting.
-I used to take art history books down with me to try and place their influences.
+I know. I know what you’re thinking. Psychosis.
 
-Some years, they stuck entirely to impressionism.
-Each scene drifted in and out of representation, the mural flowing over and around itself in waves of pulsating blues and purples, cut through by faint reds and vivid yellows.
+I get it. But I *know* what that feels like. Psychosis is messy. It’s loud. It’s a riot in your own head where the logic dissolves into noise and the shadows start whispering your name. This wasn’t that. This was clinical. It was silent.
 
-Other years they delved entirely into cubism with hard lines that intersected three-dimensional objects, cracking them into fragmented shapes.
-Everything came together only to contradict itself.
-A maze of primary colors, black lines and spanning blocks of pure white dissected form while still telling a story.
+The arrival of those things, those floating crowns, brought a sudden, absolute stillness to the air that cut right through the heroin fog. The world would go mute for a split second, like someone hit a kill switch on the worlds audio, and then the flash would come.
 
-I was surprised when they started to paint realistically.
-Human figures danced in forests of heightless trees, their faces rendered so delicately accurate that their irises seemed to reflect everything held in their gaze.
-The trees created a labyrinth that spanned the wall with scenes interweaved between.
-That piece made me forget I was lying on my basement floor.
-When it appeared, I spent days down there.
+That silence is actually what I miss the most.
 
-After a while, they painted in a wholly original aesthetic that didn’t resemble anything I had seen, yet it felt deliberate.
-New, but successful in a way that felt historic.
+See, at first drugs gave me that quiet. Like driving under a bridge in a rainstorm. I chased it for a long time. But then I would only feel it when I saw those things. The chemical peace that opiates brought on initially kept the demons at bay. Then it started to bring them, and with them came quiet.
 
-Then one day, I went down the basement steps and what was left on my wall surpassed anything they made prior.
-I couldn’t tear myself away from it.
-I spent weeks down there just looking at it.
-Refraining from eating, and forcing myself through sleep’s seduction.
+I chased them for a while after that. I started hunting for crowds, high‑risk places where accidents could happen. Intersections. Fairs. Anywhere something terrible *could* go wrong. I wanted to know what they were, what they wanted.
 
-I just lay there, staring, exploring it over and over again.
-However many times I followed the painting around the periphery of my basement, I was never satiated. 
-There was nothing else worth looking at.
+One day, I saw one show up closer than ever before.
 
-Exhaustion overtook me and, to my horror, I felt my eyelids become heavier.
-It started slowly; every couple of minutes my eyes would close and I’d slip into sleep before jolting back awake.
-Minutes became seconds, then in a great betrayal, my body took away my entire world.
+It appeared next to a friend of mine. He had gotten into a bad habit of injecting meth into his muscles. He couldn’t hit a vein to save his life, but that meant he always did more than he should have. I was watching him trying to hit, and then it appeared.
 
-I slept.
+He couldn’t see it. I could.
 
-When I woke, the mural was gone.
-Painted over.
-I checked every inch of wall to see if there were any remnants of the painting.
-But not even a centimeter of color was left.
-I tore at the wall, trying to scratch off the layer of paint hiding what they created.
-But my nails were imperfect tools and dug too deep.
-I felt wretched as the fleck of paint drifted to the floor.
-My stomach twisted and I started to sob.
-Something across the room cast a line and caught my eye.
+It had the body of a teenage boy, halfway transparent, but its hands--its hands looked like an old man’s. Wrinkled and gnarled. It took hold of his wrists and guided that needle right into a vein.
 
-In the corner of my basement, still as stone, lay a mouse.
-I inspected it closely.
-Its body was frail, but there was something about its hands.
-I can’t tell if it was my mind seeing what it wanted to see, but its hands looked almost human.
-Most mice have hands like that.
+I saw the flash of blood in the barrel. I also saw how much he’d put in the syringe. I knew it was too much. He grinned--a wide, wet rictus of anticipation stretched over the gums where his teeth used to be. "No fucking way," he said to himself and pushed the plunger home.
 
-It was dead.
-And after that, no paint was ever added to the basement wall again.
+I saw it hit him. He sighed with relief, and then his eyes rolled back in his head. He started seizing, and a few minutes later it was over. There was nothing anyone could do. A heart attack. It was simply too much.
 
+Right as that fleshy ring flashed white, right before he went out, I heard it whisper, “Be not afraid.”
+
+The voice sounded like tires squealing on asphalt.
+
+That was when the fear really set in. Not the usual junkie paranoia. Something deeper. I didn’t want that to be me. I stopped hanging around my usual haunt. I only went through to cop what I needed, and I always wore headphones to make sure I didn’t hear that silence if one of them showed up.
+
+The peace they once brought me was gone after that. Whatever they were, I’d had enough. I checked myself into rehab. Called my parents. Asked if I could come home. Somehow, they said yes.
+
+Now that I’ve been sober for a while and my head is back on straight, I can’t stop thinking about them. Wondering if I was just high, or if there was actually something else going on. I keep telling myself it was just the drugs.
+
+The problem is: I don’t believe me.
+
+Even so, I’m happier now. I have things again. My girlfriend talks to me. We do family dinners. I show up to my job at a furniture warehouse from 9 to 5. On paper, it looks like a normal life.
+
+But there’s something missing.
+
+That glimpse into the unknown I chased for so long is gone, and so is the silence.
+
+Being clean means the noise is back. The city is deafening now. Car horns. Shouting. The hum of streetlights. It’s all so constant. But worse than the noise is the blindness.
+
+That’s the trade‑off I made. I gave up the high to get my life back. That’s what I told my caseworker, anyway. The almost‑true version. The real version is that I gave up my sight to get back my sanity.
+
+Getting clean was like gouging my own eyes out.
+
+Some days, I walk past that same intersection where the woman was pushed and the baby was saved. I stand there with my too‑sweet coffee, just watching. I watch the traffic. I watch the people. I wait for that pressure, that static charge that used to prickle the back of my neck right before one of them stepped out of the ether.
+
+Last Tuesday, I felt it.
+
+I was at the corner, waiting for the light. A bike messenger was weaving through the gridlock, going way too fast. Some businessman was stepping off the curb, eyes locked on his phone. The hair on my arms stood up. Static buzzed in my ears. I knew that feeling. It was the precursor.
+
+Then I heard it.
+
+Silence.
+
+My pulse jumped. Cold sweat soaked my shirt. I scanned the crowd, desperate to see the fleshy ring, the undulating geometry, the tall shadow.
+
+Nothing. Just gray pavement and exhaust fumes.
+
+Then the bike messenger swerved.
+
+No, that’s not right. It was like he hit a brick wall in mid‑air. His front tire jerked violently to the left in a way that ignored the physics of his path. He went down, hard, metal screaming on concrete as he slid across the sidewalk.
+
+A split second later, a bus roared through the space where he would’ve been.
+
+If he hadn’t crashed, he’d be a smear on the asphalt right now.
+
+The businessman dropped his phone. People screamed. The messenger stood up, dazed and bleeding, looking around like the world had just glitched.
+
+I just stood there, freezing cold in the July heat.
+
+I knew what had happened. Something had reached out--maybe a hand, maybe a tentacle made of smoke--and stopped that bike dead.
+
+I stared at the air above the empty space he should have died in. I squinted until my eyes watered, begging to see the white flash of the crown. I wanted to see the monster that saved him. The monster only I knew was there.
+
+Nothing. Just the empty, uncaring air.
+
+That’s the horror of being clean. It’s not that the demons are gone. They’re still here, moving the pieces, taking us or pulling us back from the edge. I’m just like everyone else now. I’m walking through a slaughterhouse in the dark, pretending I don’t know the butcher is working.
+
+I just hope whatever system they follow, I didn’t break too many rules. I hope they leave me alone.
+
+And if they don’t, if they decide it’s my turn, at least now, I won’t see it coming...
 
