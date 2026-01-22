@@ -1,105 +1,143 @@
-# They wear crowns of flesh
-I’ve been clean for a year now. Things are better, but probably not for the reason you think. I didn’t get clean because I wanted to. I love drugs. Always have. They scratched an itch I didn’t know I had, and then I kept on scratching until everything in my life was a raw, open wound. I would have kept going, too.
+# The Woman in the Trees
+It was either joining a gym or taking up hiking. I wish I had joined a gym. 
 
-I didn’t stop because I was living on a sidewalk. I didn’t stop because I was penniless, begging for change to feed the needle every day. I stopped because, well… now I don’t see *them* anymore.
+After my break up with Carl, and after a much-needed period of shameless self-pity and wallowing, I knew that I needed to do something positive, get active again, and feel good about myself. I decided on hiking for a couple of reasons. I had never been an outdoorsy type and I wanted to prove to myself that I could challenge myself. I had gotten so comfortable, *too* comfortable, I suppose in my relationship, it was time to get out of my comfort zone. Plus, I liked the idea of the solitude hiking would bring me. I needed time to think and reflect.
 
-I don’t know what they are. Angels? Maybe demons. I’ve watched them do what you might say both would do. I once saw one push a woman into traffic. She was walking down the street with her stroller; as she went past an alley, this *thing* lunged at her. It shoved her directly in front of a semi‑truck.
+Well, let’s just say I didn’t get that part right, but I definitely found myself out of my comfort zone. Way out of my comfort zone.
 
-The tires screeched. The driver tried to stop. It was too late.
+After spending far too much on a pair of hiking boots, a daypack and some other hiking gear (none of which would come in useful, as you’ll see), I chose a trail about a forty-five minute drive away from where I lived. 
 
-But the thing stopped the stroller.
+I arrived early at the trailhead. The air was crisp and fresh. Renewing even.
 
-It didn’t let the kid roll into the street. Why, I don’t know. Did she deserve it? Was it because the baby was innocent? I can’t say. Maybe they’re some kind of cosmic justice delivery system. All I know is that they scared me in a way that made me want *more*.
+I went inside the small ranger’s station to sign in. Greeting me were two men; an older one with bushy grey eyebrows, and grey hair in a ponytail and a younger one, probably closer to my own early-thirties age with dark, slicked back hair.
 
-I’d describe what they look like, but it’s always different. They might even be the same being in different skin. Humanoid, usually. Mostly opaque, sometimes short, sometimes tall, but they always have some kind of crown. It looks like a fleshy ring floating a few inches above their head. A halo.
+‘Good morning’, said Ponytail cheerily, ‘lovely morning for a hike’.
 
-When they’re about to act, it flashes. A sharp white pulse on the inner edge of the ring. And then they do something. To someone.
+I’d have to take his word for it, since this was my very first time hiking, but I smiled back cheerfully as he handed me a pen to sign the visitors register.
 
-Sometimes they look like a man, or a woman or a kid. Sometimes looking at them makes you feel insane just for seeing them: an undulating mass of geometric shapes, writhing and churning, pieces creaking against each other. I started noticing them about two years into doing heroin, and then speed.
+Ponytail explained a couple of rules to me; stay on the designated path, leave and take nothing and then he said something that made me pause.
 
-I know. I know what you’re thinking. Psychosis.
+‘Now we’ve been having a bit of a problem with a, uh, vagrant in the park. A woman. She’s been hassling a few of the hikers. We don’t know -’ he was cut off from the sound of a phone ringing in a room to the back of the reception area. He held up a finger to signal he’d be right back.
 
-I get it. But I *know* what that feels like. Psychosis is messy. It’s loud. It’s a riot in your own head where the logic dissolves into noise and the shadows start whispering your name. This wasn’t that. This was clinical. It was silent.
+This entire time, Slick had been sitting behind the counter on stool, watching me with an expression I couldn’t quite read. He hadn’t said a word until Ponytail left.
 
-The arrival of those things, those floating crowns, brought a sudden, absolute stillness to the air that cut right through the heroin fog. The world would go mute for a split second, like someone hit a kill switch on the worlds audio, and then the flash would come.
+‘Listen here’, he said quietly, ‘that’s no woman in the park. He knows it,’ he said, pointing at Ponytail on the call in the other room, ‘and I know it. What I am about to say might make you turn around and head straight for your car, but if it doesn’t, and you still want to do the trail, then you’ve got to be careful’.
 
-That silence is actually what I miss the most.
+He kept his voice low, seemingly to keep Ponytail from overhearing him.
 
-See, at first drugs gave me that quiet. Like driving under a bridge in a rainstorm. I chased it for a long time. But then I would only feel it when I saw those things. The chemical peace that opiates brought on initially kept the demons at bay. Then it started to bring them, and with them came quiet.
+‘If you see her, or it, or whatever, it’ll be in a tree. She’s always in the trees. She’ll try talking to you. *Don’t* engage. Try not to even look up if you hear a voice coming from the trees, but if you can’t help it, whatever you do, don’t talk back to it. Just pretend it's not there and walk back to the trailhead and get in your car and drive away. If you see her a second time, then run. If she starts climbing down from the tree then pray’. 
 
-I chased them for a while after that. I started hunting for crowds, high‑risk places where accidents could happen. Intersections. Fairs. Anywhere something terrible *could* go wrong. I wanted to know what they were, what they wanted.
+I stared at Slick in shock, my mouth slightly open, not sure if I should start laughing or screaming.
 
-One day, I saw one show up closer than ever before.
+‘I’m only telling you this’, he continued, ‘because, no offense, I can see you’re probably not the most experienced hiker’, he looked me up and down, clocking my obvious never-used boots and pack’s waist belt harnessed too tightly around my middle, ‘and she seems to target people like you. The thing is, it looks like she’s not just *observing* anymore, but -’ he stopped abruptly as Ponytail came back into the room. 
 
-It appeared next to a friend of mine. He had gotten into a bad habit of injecting meth into his muscles. He couldn’t hit a vein to save his life, but that meant he always did more than he should have. I was watching him trying to hit, and then it appeared.
+Slick stared at me, his expression serious.
 
-He couldn’t see it. I could.
+‘Right,’ said Ponytail, ‘sorry about that. Now you have enough water? The roundtrip takes about four hours to complete, maybe five if you’re, uh, not walking too fast, or, uh, not used to the trail’.
 
-It had the body of a teenage boy, halfway transparent, but its hands--its hands looked like an old man’s. Wrinkled and gnarled. It took hold of his wrists and guided that needle right into a vein.
+I nodded, my head still spinning.
 
-I saw the flash of blood in the barrel. I also saw how much he’d put in the syringe. I knew it was too much. He grinned--a wide, wet rictus of anticipation stretched over the gums where his teeth used to be. "No fucking way," he said to himself and pushed the plunger home.
+Now, of course, this is the part I should have turned around and headed straight for my car. But the problem is, I’m terribly stubborn. With Ponytail’s implied and Slick’s outright judgement of my experience as a hiker, I was very determined to prove them wrong. 
 
-I saw it hit him. He sighed with relief, and then his eyes rolled back in his head. He started seizing, and a few minutes later it was over. There was nothing anyone could do. A heart attack. It was simply too much.
+In fact, ten minutes into the hike, I had convinced myself that Slick was just trying to scare me off because he probably thought my inexperience would become a problem for him, like I’d be dumb enough to go off trail or try pet a mountain lion…
 
-Right as that fleshy ring flashed white, right before he went out, I heard it whisper, “Be not afraid.”
+Thirty minutes in, I noticed my boots began to hurt my feet a little.
 
-The voice sounded like tires squealing on asphalt.
+An hour in, the air had turned from crisp and refreshing to thick and oppressive and the big toe on my left foot was absolutely throbbing. I didn’t know how much determination I had left to keep me going forward.
 
-That was when the fear really set in. Not the usual junkie paranoia. Something deeper. I didn’t want that to be me. I stopped hanging around my usual haunt. I only went through to cop what I needed, and I always wore headphones to make sure I didn’t hear that silence if one of them showed up.
+I found a bench a couple of minutes later and sat down. I immediately took off my boot and sock and examined the large, raw blister forming on my toe. 
 
-The peace they once brought me was gone after that. Whatever they were, I’d had enough. I checked myself into rehab. Called my parents. Asked if I could come home. Somehow, they said yes.
+I hadn’t brought a first aid kit, and was cursing myself as I took a large gulp of water from my bottle.
 
-Now that I’ve been sober for a while and my head is back on straight, I can’t stop thinking about them. Wondering if I was just high, or if there was actually something else going on. I keep telling myself it was just the drugs.
+All of a sudden, I can’t describe this any other way, I felt the presence of another person and instinctively looked at the trail, sure I’d see another hiker making their way around the bend. But there was no one. 
 
-The problem is: I don’t believe me.
+I held my breath, waiting. The forest was unnaturally still and quiet as if it were holding its breath and waiting with me.
 
-Even so, I’m happier now. I have things again. My girlfriend talks to me. We do family dinners. I show up to my job at a furniture warehouse from 9 to 5. On paper, it looks like a normal life.
+And then I jumped violently as a group of blackbirds exploded out of a tree a way’s down from where I had just come from, cawing angrily as they flew away.
 
-But there’s something missing.
+Maybe it was the pain, or the discomfort from the heat, or maybe I had started feeling spooked by what Slick had said, but I decided to get out of there, pulling my sock and boot on and packing away my water bottle in record speed.
 
-That glimpse into the unknown I chased for so long is gone, and so is the silence.
+It would take me another hour to get back to my car, maybe a little longer as I had started limping a bit to keep the weight off my left foot. 
 
-Being clean means the noise is back. The city is deafening now. Car horns. Shouting. The hum of streetlights. It’s all so constant. But worse than the noise is the blindness.
+I still had the gnawing feeling that I wasn’t alone, that any minute another hiker would appear on the path.
 
-That’s the trade‑off I made. I gave up the high to get my life back. That’s what I told my caseworker, anyway. The almost‑true version. The real version is that I gave up my sight to get back my sanity.
+Instead, I heard a soft ‘Hello’ from above. 
 
-Getting clean was like gouging my own eyes out.
+I did look. Of course I did. Anyone would. 
 
-Some days, I walk past that same intersection where the woman was pushed and the baby was saved. I stand there with my too‑sweet coffee, just watching. I watch the traffic. I watch the people. I wait for that pressure, that static charge that used to prickle the back of my neck right before one of them stepped out of the ether.
+What I saw was an extremely thin, pale woman, sitting on a low branch in the tree above me. 
 
-Last Tuesday, I felt it.
+Her arms were hugging the trunk and it took me a moment to realise they must have been impossibly long, because they wrapped around the thick trunk almost entirely. My hands wouldn’t have even met each other if I were to do it. Her fingers were long and splayed against the bark, ending in long, dirty nails. 
 
-I was at the corner, waiting for the light. A bike messenger was weaving through the gridlock, going way too fast. Some businessman was stepping off the curb, eyes locked on his phone. The hair on my arms stood up. Static buzzed in my ears. I knew that feeling. It was the precursor.
+Her face will be burned into my memory forever. Her skin was so pale, almost completely white, and her eyes were a light, milky blue, too big and too wide apart. She had long, stringy blond, almost white hair.
 
-Then I heard it.
+She was completely naked.
 
-Silence.
+‘Are you in pain?’ she asked in a cracked, wispy voice and then she started smiling.
 
-My pulse jumped. Cold sweat soaked my shirt. I scanned the crowd, desperate to see the fleshy ring, the undulating geometry, the tall shadow.
+I expected to see fangs in her mouth, instead, she had the tiniest teeth, spaced apart in swollen pink gums. But they were sharp and pointy, like a crocodile.
 
-Nothing. Just gray pavement and exhaust fumes.
+As her smile got wider and wider at my shock, I felt adrenaline fill my body.
 
-Then the bike messenger swerved.
+Slick’s words echoed through my mind - head back to the trailhead and get to my car. 
 
-No, that’s not right. It was like he hit a brick wall in mid‑air. His front tire jerked violently to the left in a way that ignored the physics of his path. He went down, hard, metal screaming on concrete as he slid across the sidewalk.
+My heart pounding, my neck slick with sweat, I started walking, briskly, unsure if turning my back towards her was a terrible idea. I felt her eyes on me. 
 
-A split second later, a bus roared through the space where he would’ve been.
+I walk-jogged, gritting my teeth through the pain for what could have been five minutes or fifty.
 
-If he hadn’t crashed, he’d be a smear on the asphalt right now.
+Please god, I thought, don’t let me see her again. 
 
-The businessman dropped his phone. People screamed. The messenger stood up, dazed and bleeding, looking around like the world had just glitched.
+My mind tried to reconcile with what it had just witnessed, but I pushed the thoughts out of my head. Worrying about that would dull my senses, and I sure needed all my wits about me to make it back to my car.
 
-I just stood there, freezing cold in the July heat.
+It was impossible, but somehow she made it to a tree ahead of me. I stopped and felt my heart drop as a pale leg appeared from the thick canopy of a tree just twenty feet ahead. And then another leg appeared. She was climbing down. 
 
-I knew what had happened. Something had reached out--maybe a hand, maybe a tentacle made of smoke--and stopped that bike dead.
+I started running, ducking as I flew past the tree she was coming down from. A long arm swooped down as I passed but I managed to dodge her grabbing claws. 
 
-I stared at the air above the empty space he should have died in. I squinted until my eyes watered, begging to see the white flash of the crown. I wanted to see the monster that saved him. The monster only I knew was there.
+I looked back and saw that she was at the bottom of the tree on all fours. Her propositions were human, but so, so wrong. She began to scuttle towards me, like a crab, with short, fast steps. She was covering ground at an alarming rate and I knew there was no way I could outrun her.
 
-Nothing. Just the empty, uncaring air.
+I made it to a clearing that I remembered was close to the parking lot. If I could just last five more minutes, I could maybe, *maybe* get to safety.
 
-That’s the horror of being clean. It’s not that the demons are gone. They’re still here, moving the pieces, taking us or pulling us back from the edge. I’m just like everyone else now. I’m walking through a slaughterhouse in the dark, pretending I don’t know the butcher is working.
+And then I tripped. Pain searing through my already bloody and blistered toes as they collided with a rock. I landed on my hands with a thud and waited for the inevitable - I was so sure it was about to happen that I could almost feel her collide with me. But nothing. Still on my hands and knees, I shakily turned my head. 
 
-I just hope whatever system they follow, I didn’t break too many rules. I hope they leave me alone.
+She was still there, on all fours, but stopped. She let out an animal-like shriek but didn’t come any closer. 
 
-And if they don’t, if they decide it’s my turn, at least now, I won’t see it coming...
+It took me a while to register. She wouldn’t come into the clearing, she was staying in the shade of the trees, prowling, looking for a way to get to me. 
 
+The sunlight seemed to be what had saved me.
+
+A million thoughts played out in my mind. I could stay in the clearing until someone else came along. But what if they couldn’t help me? What if no one came at all? It would eventually get dark. 
+
+I knew that after the clearing, for about three-hundred yards, the path was shaded by trees again before the trailhead. Could I make it if I sprinted?
+
+With stomach-churning dread, I knew I would have to try. I kept my eyes on her and started backing up, slowing. She stayed at the shade’s edge, watching me, evaluating what I was doing. 
+
+Two-hundred feet until the path became shaded again. One-hundred. Fifty. Ten. And then I turned around and started sprinting. The trail crested and I could see the parking lot. I didn’t feel relieved, I wasn’t safe yet. But I could see safety and so I allowed myself to hope.
+
+Out of the corner of my eye, I saw a flash of white. I turned and saw her bounding towards me through the trees. She had come around and was looping towards me. At the speed she was going, I was sure she’d get to me before I made it off the path.
+
+Somehow, I managed to push myself, and I heard her shriek again, a sound of pure, animalistic frustration and hunger, as I made it back into the sunlight of the parking lot.
+
+I flew past the ranger’s station and fumbled with my keys. My hands were shaking so badly, I nearly dropped them. I managed to unlock my car and get in, locking it again. I started the engine and put it into reverse, swinging out of my parking bay without even looking.
+
+Slick came running out of the station, a look of shock and suspicion on his face.
+
+I rolled down my window a fraction and yelled at him to go back inside and lock the doors. 
+
+He hesitated for only a second and then hurried back inside, closing the door behind him. 
+
+
+
+I didn’t stop trembling for the entire forty-five minutes it took me to get home.
+
+
+
+I don’t know what she was. I don’t know what she wanted, or what she was going to do to me if she had caught me. What I do know though, is that after that one and only hike, I’ve never felt safe again, and I have never shaken off the feeling of being watched. I keep my lights on at home, all the time. 
+
+I avoid the shade, my shadow now a thing of safety and comfort. 
+
+  
+  
+  
+  
+  
+  
