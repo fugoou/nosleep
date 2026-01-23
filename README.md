@@ -1,143 +1,48 @@
-# The Woman in the Trees
-It was either joining a gym or taking up hiking. I wish I had joined a gym. 
+# I was an English Teacher in South-east Asia... Now I Have Survivor’s Guilt
+Before I start things off here, let me just get something out in the open... This is not a story I can tell with absolute clarity – if anything, the following will read more like a blog post than a well-told story. Even if I was a natural storyteller - which I’m not, because of what unfolds in the following experience, my ability to tell it well is even more limited... But I will try my best.  
 
-After my break up with Carl, and after a much-needed period of shameless self-pity and wallowing, I knew that I needed to do something positive, get active again, and feel good about myself. I decided on hiking for a couple of reasons. I had never been an outdoorsy type and I wanted to prove to myself that I could challenge myself. I had gotten so comfortable, *too* comfortable, I suppose in my relationship, it was time to get out of my comfort zone. Plus, I liked the idea of the solitude hiking would bring me. I needed time to think and reflect.
+I used to be an English language teacher, which they call in the States, ESL, and what they call back home in the UK, TEFL. Once Uni was over and done with, to make up for never having a gap year for myself, I decided, rather than teaching horrible little shites in the “mother country”, I would instead travel abroad, exploring one corner of the globe and then the other, all while providing children with the opportunity to speak English in their future prospects. 
 
-Well, let’s just say I didn’t get that part right, but I definitely found myself out of my comfort zone. Way out of my comfort zone.
+It’s not a bad life being a TEFL teacher. You get to see all kinds of amazing places, eat amazing food and, not to mention... the girls love a “rich” white foreigner. By this point in my life, the countries I’d crossed off the bucket list included: a year in Argentina, six months in Madagascar, and two pretty great years in China. 
 
-After spending far too much on a pair of hiking boots, a daypack and some other hiking gear (none of which would come in useful, as you’ll see), I chose a trail about a forty-five minute drive away from where I lived. 
+When deciding on where to teach next, I was rather adamant on staying in south-east Asia – because let’s face it, there’s a reason every backpacker decides to come here. It’s a bloody paradise! I thought of maybe Brunei or even Cambodia, but quite honestly, the list of places I could possibly teach in this part of the world was endless. Well, having slept on it for a while, I eventually chose Vietnam as my next destination - as this country in particular seemed to pretty much have everything: mountains, jungles, tropical beaches, etc. I know Thailand has all that too, but let’s be honest... Everyone goes to Thailand. 
 
-I arrived early at the trailhead. The air was crisp and fresh. Renewing even.
+Well, turning my sights to the land where “Charlie don’t surf”, I was fortunate to find employment almost right away. I was given a teaching position in central Vietnam, right where the demilitarized zone used to be. The school I worked at was located by a beach town, and let me tell you, this beach town was every backpacker’s dream destination! The beach has pearl-white sand, the sea a turquoise blue, plus the local rent and cuisine is ridiculously reasonable. Although Vietnam is full of amazing places to travel, when you live in a beach town like this that pretty much crosses everything off the list, there really wasn’t any need for me to see anywhere else. 
 
-I went inside the small ranger’s station to sign in. Greeting me were two men; an older one with bushy grey eyebrows, and grey hair in a ponytail and a younger one, probably closer to my own early-thirties age with dark, slicked back hair.
+Yes, this beach town definitely has its flaws. There’s rodents almost everywhere. Cockroaches are bad, but mosquitos are worse – and as beautiful as the beach is here, there’s garbage floating in the sea and sharp metal or plastic hiding amongst the sand. But, having taught in other developing countries prior to this, a little garbage wasn’t anything new – or should I say, A LOT of garbage. 
 
-‘Good morning’, said Ponytail cheerily, ‘lovely morning for a hike’.
+Well, since I seem to be rambling on a bit here about the place I used to work and live, let me try and skip ahead to why I’m really sharing this experience... As bad as the vermin and garbage is, what is perhaps the biggest flaw about this almost idyllic beach town, is that, in the inland jungle just outside of it... Tourists are said to supposedly go missing... 
 
-I’d have to take his word for it, since this was my very first time hiking, but I smiled back cheerfully as he handed me a pen to sign the visitors register.
+A bit of local legend here, but apparently in this jungle, there’s supposed to be an unmapped trail – not a hiking trail, just a trail. And among the hundreds of tourists who come here each year, many of them have been known to venture on this trail, only to then vanish without a trace... Yeah... That’s where I lived. In fact, tourists have been disappearing here so much, that this jungle is now completely closed off from the public.  
 
-Ponytail explained a couple of rules to me; stay on the designated path, leave and take nothing and then he said something that made me pause.
+Although no one really knows why these tourists went missing in the first place, there is a really creepy legend connected to this trail. According to superstitious locals, or what I only heard from my colleagues in the school, there is said to be creatures that lurk deep inside the jungle – creatures said to abduct anyone who wanders along the unmapped trail.  
 
-‘Now we’ve been having a bit of a problem with a, uh, vagrant in the park. A woman. She’s been hassling a few of the hikers. We don’t know -’ he was cut off from the sound of a phone ringing in a room to the back of the reception area. He held up a finger to signal he’d be right back.
+As unsettling as this legend is, it’s obviously nothing more than just a legend – like the loch ness monster for example. When I tried prying as to what these creatures were supposed to look like, I only got a variation of answers. Some said the creatures were hairy ape-men, while others said they resembled something like lizards. Then there were those who just believed they’re sinister spirits that haunt the jungle. Not that I ever believed any of this, but the fact that tourists had definitely gone missing inside this jungle... It goes without saying, but I stayed as far away from that place as humanly possible.  
 
-This entire time, Slick had been sitting behind the counter on stool, watching me with an expression I couldn’t quite read. He hadn’t said a word until Ponytail left.
+Now, with the local legends out the way, let me begin with how this all relates to my experience... Six or so months into working and living by this beach town, like every Friday after work, I go down to the beach to drink a few brewskis by the bar. Although I’m always meeting fellow travellers who come and go, on this particular Friday, I meet a small group of travellers who were rather extraordinary. 
 
-‘Listen here’, he said quietly, ‘that’s no woman in the park. He knows it,’ he said, pointing at Ponytail on the call in the other room, ‘and I know it. What I am about to say might make you turn around and head straight for your car, but if it doesn’t, and you still want to do the trail, then you’ve got to be careful’.
+I won’t give away their full names because... I haven’t exactly asked for their permission, so I’ll just call them Tom, Cody, and Enrique. These three travellers were fellow westerners like myself – Americans to be exact. And as extravagant as Americans are – or at least, to a Brit like me, these three really lived up to the many Yankee stereotypes. They were loud, obnoxious and way too familiar with the, uhm... hallucinogens should I call it. Well, despite all this, for some stupid reason, I rather liked them. They were thrill-seekers you see – adrenaline junkies. Pretty much, all these guys did for a living was travel the world, climbing mountains or exploring one dangerous place after another. 
 
-He kept his voice low, seemingly to keep Ponytail from overhearing him.
+As unappealing as this trio might seem on the outside - a little backstory here, but I always imagined becoming a thrill-seeker myself one day – whether that be one who jumps out of airplanes or tries their luck in the Australian outback... Instead, I just became a TEFL teacher. Although my memory of the following conversation is hazy at best, after sharing a beer or two with the trio, aside from being labelled a “passport bro”, I learned they’d just come from exploring a haunted Japanese forest, and were now in Vietnam for their next big adrenaline rush... I think anyone can see where I’m going with this, so I’ll just come out and say it. Tom, Cody and Enrique had come to Vietnam, among other reasons, not only to find the trail of missing tourists, but more importantly, to try and survive it... Apparently, it was for a vlog. 
 
-‘If you see her, or it, or whatever, it’ll be in a tree. She’s always in the trees. She’ll try talking to you. *Don’t* engage. Try not to even look up if you hear a voice coming from the trees, but if you can’t help it, whatever you do, don’t talk back to it. Just pretend it's not there and walk back to the trailhead and get in your car and drive away. If you see her a second time, then run. If she starts climbing down from the tree then pray’. 
+After first declining their offer to accompany them, I then urgently insist they forget about the trail altogether and instead find their thrills elsewhere – after all, having lived in this region for more than half a year, I was far more familiar with the cautionary tales then they were. Despite my insistence, however, the three Americans appear to just laugh and scoff in my face, taking my warnings as nothing more than Limey cowardice. Feeling as though I’ve overstayed my welcome, I leave the trio to enjoy their night, as I felt any further warnings from me would be met on deaf ears. 
 
-I stared at Slick in shock, my mouth slightly open, not sure if I should start laughing or screaming.
+I never saw the Americans again after that. While I went back to teaching at the school, the three new friends I made undoubtedly went exploring through the jungle to find the “legendary” trail, all warnings and dangers considered. Now that I think back on it, I really should’ve reported them to the local authorities. You see, when I first became a TEFL teacher, one of the first words of advice I received was that travellers should always be responsible wherever they go - and if these Americans weren’t willing to be responsible on their travels, then I at least should’ve been responsible on my end. 
 
-‘I’m only telling you this’, he continued, ‘because, no offense, I can see you’re probably not the most experienced hiker’, he looked me up and down, clocking my obvious never-used boots and pack’s waist belt harnessed too tightly around my middle, ‘and she seems to target people like you. The thing is, it looks like she’s not just *observing* anymore, but -’ he stopped abruptly as Ponytail came back into the room. 
+Well, not to be unreliable or anything, but when I said I never saw Tom, Cody or Enrique again... that wasn’t entirely accurate. It wasn’t wrong per-se... but it wasn’t accurate... No more than, say, a week later, and during my lunch break, one of my colleagues informs me that a European or American traveller had been brought to the hospital, having apparently crawled his way out from the jungle... The very same jungle where this alleged trail is supposed to be... 
 
-Slick stared at me, his expression serious.
+Believing instantly this is one of the three Americans, as soon as I finish work that day, I quickly make my way up to the hospital to confirm whether this was true. Well, after reaching the hospital, and somehow talking my way past the police and doctors, I was then brought into a room to see whoever this tourist was... and let me tell you... The sight of them will forever haunt me for the rest of my days... 
 
-‘Right,’ said Ponytail, ‘sorry about that. Now you have enough water? The roundtrip takes about four hours to complete, maybe five if you’re, uh, not walking too fast, or, uh, not used to the trail’.
+What I saw was Enrique, laying down in a hospital bed, covered in blood, mud and God knows what else. But what was so haunting about the sight of Enrique was... he no longer had his legs... Where his lower thighs, knees and the rest should’ve been, all I saw were blood-stained bandages. But as bad as the sight of him was... the smell was even worse. Oh God, the smell... Enrique’s room smelled like charcoaled meat that had gone off, as well as what I always imagined gunpowder would smell like... 
 
-I nodded, my head still spinning.
+You see... Enrique, Cody and Tom... They went and found the trail inside the jungle... But it wasn’t monsters or anything else of the sort that was waiting for them... In all honesty, it wasn’t really a trail they found at all...  
 
-Now, of course, this is the part I should have turned around and headed straight for my car. But the problem is, I’m terribly stubborn. With Ponytail’s implied and Slick’s outright judgement of my experience as a hiker, I was very determined to prove them wrong. 
+...It was a bloody mine field. 
 
-In fact, ten minutes into the hike, I had convinced myself that Slick was just trying to scare me off because he probably thought my inexperience would become a problem for him, like I’d be dumb enough to go off trail or try pet a mountain lion…
+I probably should’ve mentioned this earlier, but when I first moved to Vietnam, I was given a very clear and stern warning about the region’s many dangers... You see, the Vietnam War may have ended some fifty years ago... and yet, regardless, there are still hundreds of thousands of mines and other explosives buried beneath the country. Relics from a past war, silently waiting for a next victim... Tom and Cody were among these victims... It seems even now, like some sort of bad joke... Americans are still dying in Vietnam... It’s a cruel kind of irony, isn’t it? 
 
-Thirty minutes in, I noticed my boots began to hurt my feet a little.
+It goes without saying, but that’s what happened to the missing tourists. They ventured into the jungle to follow the unmapped trail, and the mines got them... But do you know the worst part of it?... The local authorities always knew what was in that jungle – even before the tourists started to go missing... They always knew, but they never did or said anything about it. Do you want to know why?... I’ll give you a clue... Money... Tourist money speaks louder than mines ever could...  
 
-An hour in, the air had turned from crisp and refreshing to thick and oppressive and the big toe on my left foot was absolutely throbbing. I didn’t know how much determination I had left to keep me going forward.
+I may not have died in that jungle. I may not have had my legs blown off like Enrique. But I do have to live on with all this... I have to live with the image of Enrique’s mutilated body... The smell of his burnt, charcoaled flesh... Honestly, the guilt is the worst part of it all...  
 
-I found a bench a couple of minutes later and sat down. I immediately took off my boot and sock and examined the large, raw blister forming on my toe. 
-
-I hadn’t brought a first aid kit, and was cursing myself as I took a large gulp of water from my bottle.
-
-All of a sudden, I can’t describe this any other way, I felt the presence of another person and instinctively looked at the trail, sure I’d see another hiker making their way around the bend. But there was no one. 
-
-I held my breath, waiting. The forest was unnaturally still and quiet as if it were holding its breath and waiting with me.
-
-And then I jumped violently as a group of blackbirds exploded out of a tree a way’s down from where I had just come from, cawing angrily as they flew away.
-
-Maybe it was the pain, or the discomfort from the heat, or maybe I had started feeling spooked by what Slick had said, but I decided to get out of there, pulling my sock and boot on and packing away my water bottle in record speed.
-
-It would take me another hour to get back to my car, maybe a little longer as I had started limping a bit to keep the weight off my left foot. 
-
-I still had the gnawing feeling that I wasn’t alone, that any minute another hiker would appear on the path.
-
-Instead, I heard a soft ‘Hello’ from above. 
-
-I did look. Of course I did. Anyone would. 
-
-What I saw was an extremely thin, pale woman, sitting on a low branch in the tree above me. 
-
-Her arms were hugging the trunk and it took me a moment to realise they must have been impossibly long, because they wrapped around the thick trunk almost entirely. My hands wouldn’t have even met each other if I were to do it. Her fingers were long and splayed against the bark, ending in long, dirty nails. 
-
-Her face will be burned into my memory forever. Her skin was so pale, almost completely white, and her eyes were a light, milky blue, too big and too wide apart. She had long, stringy blond, almost white hair.
-
-She was completely naked.
-
-‘Are you in pain?’ she asked in a cracked, wispy voice and then she started smiling.
-
-I expected to see fangs in her mouth, instead, she had the tiniest teeth, spaced apart in swollen pink gums. But they were sharp and pointy, like a crocodile.
-
-As her smile got wider and wider at my shock, I felt adrenaline fill my body.
-
-Slick’s words echoed through my mind - head back to the trailhead and get to my car. 
-
-My heart pounding, my neck slick with sweat, I started walking, briskly, unsure if turning my back towards her was a terrible idea. I felt her eyes on me. 
-
-I walk-jogged, gritting my teeth through the pain for what could have been five minutes or fifty.
-
-Please god, I thought, don’t let me see her again. 
-
-My mind tried to reconcile with what it had just witnessed, but I pushed the thoughts out of my head. Worrying about that would dull my senses, and I sure needed all my wits about me to make it back to my car.
-
-It was impossible, but somehow she made it to a tree ahead of me. I stopped and felt my heart drop as a pale leg appeared from the thick canopy of a tree just twenty feet ahead. And then another leg appeared. She was climbing down. 
-
-I started running, ducking as I flew past the tree she was coming down from. A long arm swooped down as I passed but I managed to dodge her grabbing claws. 
-
-I looked back and saw that she was at the bottom of the tree on all fours. Her propositions were human, but so, so wrong. She began to scuttle towards me, like a crab, with short, fast steps. She was covering ground at an alarming rate and I knew there was no way I could outrun her.
-
-I made it to a clearing that I remembered was close to the parking lot. If I could just last five more minutes, I could maybe, *maybe* get to safety.
-
-And then I tripped. Pain searing through my already bloody and blistered toes as they collided with a rock. I landed on my hands with a thud and waited for the inevitable - I was so sure it was about to happen that I could almost feel her collide with me. But nothing. Still on my hands and knees, I shakily turned my head. 
-
-She was still there, on all fours, but stopped. She let out an animal-like shriek but didn’t come any closer. 
-
-It took me a while to register. She wouldn’t come into the clearing, she was staying in the shade of the trees, prowling, looking for a way to get to me. 
-
-The sunlight seemed to be what had saved me.
-
-A million thoughts played out in my mind. I could stay in the clearing until someone else came along. But what if they couldn’t help me? What if no one came at all? It would eventually get dark. 
-
-I knew that after the clearing, for about three-hundred yards, the path was shaded by trees again before the trailhead. Could I make it if I sprinted?
-
-With stomach-churning dread, I knew I would have to try. I kept my eyes on her and started backing up, slowing. She stayed at the shade’s edge, watching me, evaluating what I was doing. 
-
-Two-hundred feet until the path became shaded again. One-hundred. Fifty. Ten. And then I turned around and started sprinting. The trail crested and I could see the parking lot. I didn’t feel relieved, I wasn’t safe yet. But I could see safety and so I allowed myself to hope.
-
-Out of the corner of my eye, I saw a flash of white. I turned and saw her bounding towards me through the trees. She had come around and was looping towards me. At the speed she was going, I was sure she’d get to me before I made it off the path.
-
-Somehow, I managed to push myself, and I heard her shriek again, a sound of pure, animalistic frustration and hunger, as I made it back into the sunlight of the parking lot.
-
-I flew past the ranger’s station and fumbled with my keys. My hands were shaking so badly, I nearly dropped them. I managed to unlock my car and get in, locking it again. I started the engine and put it into reverse, swinging out of my parking bay without even looking.
-
-Slick came running out of the station, a look of shock and suspicion on his face.
-
-I rolled down my window a fraction and yelled at him to go back inside and lock the doors. 
-
-He hesitated for only a second and then hurried back inside, closing the door behind him. 
-
-
-
-I didn’t stop trembling for the entire forty-five minutes it took me to get home.
-
-
-
-I don’t know what she was. I don’t know what she wanted, or what she was going to do to me if she had caught me. What I do know though, is that after that one and only hike, I’ve never felt safe again, and I have never shaken off the feeling of being watched. I keep my lights on at home, all the time. 
-
-I avoid the shade, my shadow now a thing of safety and comfort. 
-
-  
-  
-  
-  
-  
-  
+...The guilt that I never did anything sooner. 
