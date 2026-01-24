@@ -1,48 +1,134 @@
-# I was an English Teacher in South-east Asia... Now I Have Survivor’s Guilt
-Before I start things off here, let me just get something out in the open... This is not a story I can tell with absolute clarity – if anything, the following will read more like a blog post than a well-told story. Even if I was a natural storyteller - which I’m not, because of what unfolds in the following experience, my ability to tell it well is even more limited... But I will try my best.  
+# My co-worker doesn't exist. But he saved my life.
+[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-I used to be an English language teacher, which they call in the States, ESL, and what they call back home in the UK, TEFL. Once Uni was over and done with, to make up for never having a gap year for myself, I decided, rather than teaching horrible little shites in the “mother country”, I would instead travel abroad, exploring one corner of the globe and then the other, all while providing children with the opportunity to speak English in their future prospects. 
+In the summer leading up to my senior year of high school, I got my first job working at “Film Fanatics,” Clearview’s movie rental place.
 
-It’s not a bad life being a TEFL teacher. You get to see all kinds of amazing places, eat amazing food and, not to mention... the girls love a “rich” white foreigner. By this point in my life, the countries I’d crossed off the bucket list included: a year in Argentina, six months in Madagascar, and two pretty great years in China. 
+It was a pretty sweet job. The work was simple, and you got a free rental every week. And besides re-shelving returns and checking people out at the front register, most of the “job” was just sitting around.
 
-When deciding on where to teach next, I was rather adamant on staying in south-east Asia – because let’s face it, there’s a reason every backpacker decides to come here. It’s a bloody paradise! I thought of maybe Brunei or even Cambodia, but quite honestly, the list of places I could possibly teach in this part of the world was endless. Well, having slept on it for a while, I eventually chose Vietnam as my next destination - as this country in particular seemed to pretty much have everything: mountains, jungles, tropical beaches, etc. I know Thailand has all that too, but let’s be honest... Everyone goes to Thailand. 
+The only negative was that each shift only had one worker, so the downtime could get sort of boring.
 
-Well, turning my sights to the land where “Charlie don’t surf”, I was fortunate to find employment almost right away. I was given a teaching position in central Vietnam, right where the demilitarized zone used to be. The school I worked at was located by a beach town, and let me tell you, this beach town was every backpacker’s dream destination! The beach has pearl-white sand, the sea a turquoise blue, plus the local rent and cuisine is ridiculously reasonable. Although Vietnam is full of amazing places to travel, when you live in a beach town like this that pretty much crosses everything off the list, there really wasn’t any need for me to see anywhere else. 
+A bonus was that, for the first month or so, things were pretty normal. That wasn’t a given in my town. The only thing that I found a little odd was the end cap that faced the register. It had a single shelf labeled “Ben Recommends,” and on the shelf sat two DVDs. Always two. Though the selection varied week to week.
 
-Yes, this beach town definitely has its flaws. There’s rodents almost everywhere. Cockroaches are bad, but mosquitos are worse – and as beautiful as the beach is here, there’s garbage floating in the sea and sharp metal or plastic hiding amongst the sand. But, having taught in other developing countries prior to this, a little garbage wasn’t anything new – or should I say, A LOT of garbage. 
+Such a setup wouldn’t seem odd at a movie rental store if not for the fact that nobody named Ben worked at my store. I asked the workers who came in for the shift after mine, and they had no idea. I even asked Mr. Carson (whose name also isn’t Ben), the store’s owner. His answer was a little unsettling.
 
-Well, since I seem to be rambling on a bit here about the place I used to work and live, let me try and skip ahead to why I’m really sharing this experience... As bad as the vermin and garbage is, what is perhaps the biggest flaw about this almost idyllic beach town, is that, in the inland jungle just outside of it... Tourists are said to supposedly go missing... 
+He leaned over and with a hushed voice said, “Best not to ask about that, Eliot.”
 
-A bit of local legend here, but apparently in this jungle, there’s supposed to be an unmapped trail – not a hiking trail, just a trail. And among the hundreds of tourists who come here each year, many of them have been known to venture on this trail, only to then vanish without a trace... Yeah... That’s where I lived. In fact, tourists have been disappearing here so much, that this jungle is now completely closed off from the public.  
+I didn’t know what to make of it, but it was such a small thing, I mostly forgot about it.
 
-Although no one really knows why these tourists went missing in the first place, there is a really creepy legend connected to this trail. According to superstitious locals, or what I only heard from my colleagues in the school, there is said to be creatures that lurk deep inside the jungle – creatures said to abduct anyone who wanders along the unmapped trail.  
+Still, since I basically had to stare at the shelf all day while I sat at the front desk, I couldn’t help but notice the titles on display.
 
-As unsettling as this legend is, it’s obviously nothing more than just a legend – like the loch ness monster for example. When I tried prying as to what these creatures were supposed to look like, I only got a variation of answers. Some said the creatures were hairy ape-men, while others said they resembled something like lizards. Then there were those who just believed they’re sinister spirits that haunt the jungle. Not that I ever believed any of this, but the fact that tourists had definitely gone missing inside this jungle... It goes without saying, but I stayed as far away from that place as humanly possible.  
+And it was during our town’s annual 4th of July festival that I first noticed the connection between “Ben’s Recommendations” and the events going on around me.
 
-Now, with the local legends out the way, let me begin with how this all relates to my experience... Six or so months into working and living by this beach town, like every Friday after work, I go down to the beach to drink a few brewskis by the bar. Although I’m always meeting fellow travellers who come and go, on this particular Friday, I meet a small group of travellers who were rather extraordinary. 
+I had volunteered to walk along the fire company’s float and throw candy out to the kids in the crowd. And as we were prepping everything before the parade, I overheard the fire chief talking to someone.
 
-I won’t give away their full names because... I haven’t exactly asked for their permission, so I’ll just call them Tom, Cody, and Enrique. These three travellers were fellow westerners like myself – Americans to be exact. And as extravagant as Americans are – or at least, to a Brit like me, these three really lived up to the many Yankee stereotypes. They were loud, obnoxious and way too familiar with the, uhm... hallucinogens should I call it. Well, despite all this, for some stupid reason, I rather liked them. They were thrill-seekers you see – adrenaline junkies. Pretty much, all these guys did for a living was travel the world, climbing mountains or exploring one dangerous place after another. 
+“It’s a shame we won’t be doing these anymore,” he said.
 
-As unappealing as this trio might seem on the outside - a little backstory here, but I always imagined becoming a thrill-seeker myself one day – whether that be one who jumps out of airplanes or tries their luck in the Australian outback... Instead, I just became a TEFL teacher. Although my memory of the following conversation is hazy at best, after sharing a beer or two with the trio, aside from being labelled a “passport bro”, I learned they’d just come from exploring a haunted Japanese forest, and were now in Vietnam for their next big adrenaline rush... I think anyone can see where I’m going with this, so I’ll just come out and say it. Tom, Cody and Enrique had come to Vietnam, among other reasons, not only to find the trail of missing tourists, but more importantly, to try and survive it... Apparently, it was for a vlog. 
+“What?” I interrupted.
 
-After first declining their offer to accompany them, I then urgently insist they forget about the trail altogether and instead find their thrills elsewhere – after all, having lived in this region for more than half a year, I was far more familiar with the cautionary tales then they were. Despite my insistence, however, the three Americans appear to just laugh and scoff in my face, taking my warnings as nothing more than Limey cowardice. Feeling as though I’ve overstayed my welcome, I leave the trio to enjoy their night, as I felt any further warnings from me would be met on deaf ears. 
+“The mayor announced it earlier. Budget cuts. This will be the last parade.”
 
-I never saw the Americans again after that. While I went back to teaching at the school, the three new friends I made undoubtedly went exploring through the jungle to find the “legendary” trail, all warnings and dangers considered. Now that I think back on it, I really should’ve reported them to the local authorities. You see, when I first became a TEFL teacher, one of the first words of advice I received was that travellers should always be responsible wherever they go - and if these Americans weren’t willing to be responsible on their travels, then I at least should’ve been responsible on my end. 
+The two movies that were sitting on the shelf at Film Fanatics:
 
-Well, not to be unreliable or anything, but when I said I never saw Tom, Cody or Enrique again... that wasn’t entirely accurate. It wasn’t wrong per-se... but it wasn’t accurate... No more than, say, a week later, and during my lunch break, one of my colleagues informs me that a European or American traveller had been brought to the hospital, having apparently crawled his way out from the jungle... The very same jungle where this alleged trail is supposed to be... 
+“Independence Day,” and “The Last Parade.”
 
-Believing instantly this is one of the three Americans, as soon as I finish work that day, I quickly make my way up to the hospital to confirm whether this was true. Well, after reaching the hospital, and somehow talking my way past the police and doctors, I was then brought into a room to see whoever this tourist was... and let me tell you... The sight of them will forever haunt me for the rest of my days... 
+I tried to justify it at first. Perhaps whoever was setting up the display just knew about the cancellation in advance.
 
-What I saw was Enrique, laying down in a hospital bed, covered in blood, mud and God knows what else. But what was so haunting about the sight of Enrique was... he no longer had his legs... Where his lower thighs, knees and the rest should’ve been, all I saw were blood-stained bandages. But as bad as the sight of him was... the smell was even worse. Oh God, the smell... Enrique’s room smelled like charcoaled meat that had gone off, as well as what I always imagined gunpowder would smell like... 
+But now that I was aware, the coincidences just kept happening.
 
-You see... Enrique, Cody and Tom... They went and found the trail inside the jungle... But it wasn’t monsters or anything else of the sort that was waiting for them... In all honesty, it wasn’t really a trail they found at all...  
+A few weeks later, I was ringing up a customer and all of a sudden, the register died. No lights, nothing happened when I turned it off and back on, just *dead.* I finished the transaction in cash, logged the rental to enter it into the computer later and picked up the phone to call Mr. Carson. But as the phone was ringing, my eyes wandered over to the end-cap.
 
-...It was a bloody mine field. 
+One of the movies on the shelf was titled: “Out of Order.”
 
-I probably should’ve mentioned this earlier, but when I first moved to Vietnam, I was given a very clear and stern warning about the region’s many dangers... You see, the Vietnam War may have ended some fifty years ago... and yet, regardless, there are still hundreds of thousands of mines and other explosives buried beneath the country. Relics from a past war, silently waiting for a next victim... Tom and Cody were among these victims... It seems even now, like some sort of bad joke... Americans are still dying in Vietnam... It’s a cruel kind of irony, isn’t it? 
+Had that been there all day? I just didn’t remember.
 
-It goes without saying, but that’s what happened to the missing tourists. They ventured into the jungle to follow the unmapped trail, and the mines got them... But do you know the worst part of it?... The local authorities always knew what was in that jungle – even before the tourists started to go missing... They always knew, but they never did or said anything about it. Do you want to know why?... I’ll give you a clue... Money... Tourist money speaks louder than mines ever could...  
+Another time, I was checking out a particularly large customer. Despite the air conditioning, the man was sweating profusely, nearly soaking the movie jacket and the cash he handed me. It was pretty gross.
 
-I may not have died in that jungle. I may not have had my legs blown off like Enrique. But I do have to live on with all this... I have to live with the image of Enrique’s mutilated body... The smell of his burnt, charcoaled flesh... Honestly, the guilt is the worst part of it all...  
+I was just finishing up with him when I looked over his shoulder and noticed the movie staring back at me:
 
-...The guilt that I never did anything sooner. 
+“The Big One”
+
+I let out a laugh.
+
+“Excuse me?” the man said, looking offended.
+
+I did my best to disguise it as a cough, apologized and prayed that he wouldn’t turn around and notice what I had seen.
+
+Though it was funny, that particular instance was troubling, because I knew that movie had not been on the shelf earlier that day.
+
+Still, what could I do about it? If anything, I thought, it could be helpful.
+
+I didn’t know how right I was.
+
+It was late September; the days were shorter, and because of school, all of my shifts were in the evening. I was taking over for Mr. Carson, who felt it necessary to tell me a little tidbit of news he had heard a few hours before. Someone had escaped from the state hospital. The police were out looking for him. It wasn’t comforting news at the beginning of a long, lonesome shift.
+
+Within the first hour of work, a customer came in and immediately, I knew something was off. He was tall and thin—but not a healthy sort of thin. Veins pulsed in his neck as his eyes darted throughout the store. He was carrying one of those portable DVD players. This was the guy.
+
+“Give me the best movie.” he said, his voice quavering
+
+“What?”
+
+“The best movie…”
+
+I didn’t give much thought to his request. I really just wanted him gone. So I picked out *The Godfather,* and sent him on his way. I didn’t even check him out. I’d happily pay the cost to get him far away.
+
+Happy to be done with that, I went on with my evening, uncomfortable and constantly checking out the front window. But, for the next four hours everything was fine. I finally started to relax a little.
+
+It was just after nine, and I was sitting at the reception desk, leafing through a magazine waiting for the end of my shift. That’s when I heard something fall to the ground. Looking up, I noticed the “Ben Recommends” shelf only had one movie. The other had fallen to the floor, face down. I stood up and walked over to the fallen case, nerves churning in my stomach. Picking the movie off the floor, I finally saw the title:
+
+“Run”
+
+I didn’t think. I didn’t question it. I just bolted to the front door. But I was too late. The man from earlier was storming toward the entrance, his face full of crazed fury.
+
+I scrambled back into the store when suddenly the lights went out.
+
+The front door flew open, and the man unleashed a torrent of threats and swears.
+
+“I’m going to kill you!” he screamed. “This was NOT the best movie!”
+
+I ducked down between rows of movies, the dim glow from the exit sign painting everything a reddish hue. Trying to track the man’s location by his incessant screaming, I did my best to stay hidden, weaving between rows, working my way toward the exit.
+
+But suddenly, the screaming stopped.
+
+My heavy breathing sounded like a foghorn through the silence.
+
+I tried desperately to keep quiet. To listen. But I couldn’t hear anything besides my own heartbeat and my ragged breaths, which just wouldn’t shut up.
+
+I had to do something.
+
+Slowly, I crept toward the end of an aisle and peeked around the corner.
+
+A hand shot out and grabbed me by the throat.
+
+The man hurled me to the ground and pinned me with his legs as both hands wrapped around my throat.
+
+I tried to pull him off. I tried to punch and flail, but the man’s crazed strength was unlike anything I’d ever experienced. I couldn’t stop it.
+
+My vision was fading along the periphery. And the last thing I would see is this man’s bulging eyes and manic grimace staring down at me.
+
+Was this how I was going to die, because of a bad move recommendation?
+
+Suddenly, the lights flashed on, and the burglar alarm sounded. Contrasted with the dark silence, this new state of things was jolting, even to me, who was in the process of having my life strangled away. The man shot his head up and loosened his grip. He looked around nervously, got up and rushed from the store.
+
+I took a long moment to collect myself. I’m not too proud to say that I broke down in tears once I had registered everything. Fortunately, I had collected myself before the police cars appeared out front to investigate the alarm. The alarm that nobody had set off.
+
+I reported what had happened to the police, and they stuck around as I locked up the store. As I was getting things together, I took another look at “Ben Recommends.” This time, there weren’t DVDs on the shelf at all. Instead, a solitary, unlabeled VHS tape.
+
+I picked it up, threw it in my bag and headed home.
+
+During my long discussion with my parents about what had happened, we got a call from a police officer reporting that the man who had attacked me had been apprehended. We all breathed easily.
+
+But I wasn’t done thinking about all this. I dug our old VCR out of the basement and plugged it into the TV in my bedroom.
+
+Nervously, I inserted the tape and watched the screen flicker to life.
+
+It was footage from the security camera at work. It was me.
+
+I saw myself restocking shelves, walking to and from the front desk. But then I saw someone else. Another guy around my age. At first, I thought it was a customer. But he too was organizing shelves. We were chatting. Laughing. At one point, the guy opened up a box of candy from the front register and shared some with me.
+
+The only problem was, none of this ever happened. Or, at least I don’t remember it…
+
+I watched myself working and interacting with this other guy in disbelief. Beyond my confusion, I was a little sad that I didn’t have a friend to spend those long shifts with.
+
+After a while, the guy picked up a DVD from one of the shelves and walked over to the “Ben Recommends” end-cap. He placed the DVD on the shelf, turned to the camera with a big smile on his face and waved.
+
+I could just make out the title of the movie.
