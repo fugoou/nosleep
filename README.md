@@ -1,134 +1,112 @@
-# My co-worker doesn't exist. But he saved my life.
-[All Parts](https://www.reddit.com/r/MattBenjamin/comments/1p1itsv/clearview_master_post/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+# I own a small bed and breakfast in rural Maine. I hope you’re never a guest. [Part 4]
+[Click here to see all chapters.](https://www.reddit.com/u/shriekingsiren/s/ESZuyNROTe)
 
-In the summer leading up to my senior year of high school, I got my first job working at “Film Fanatics,” Clearview’s movie rental place.
+CW: Child death, implied suicidality 
 
-It was a pretty sweet job. The work was simple, and you got a free rental every week. And besides re-shelving returns and checking people out at the front register, most of the “job” was just sitting around.
+I’m so glad you all enjoyed learning about Charlie. He’s with me here and now as I write down what I am about to share, consuming as much of my pain as he can. Because today’s story is not one of my guests, but one of Cassandra’s. I like to imagine it’s one of her most important guests, too, but… well, you will see what I mean, I promise. 
 
-The only negative was that each shift only had one worker, so the downtime could get sort of boring.
+——
 
-A bonus was that, for the first month or so, things were pretty normal. That wasn’t a given in my town. The only thing that I found a little odd was the end cap that faced the register. It had a single shelf labeled “Ben Recommends,” and on the shelf sat two DVDs. Always two. Though the selection varied week to week.
+December 1, 2017 
 
-Such a setup wouldn’t seem odd at a movie rental store if not for the fact that nobody named Ben worked at my store. I asked the workers who came in for the shift after mine, and they had no idea. I even asked Mr. Carson (whose name also isn’t Ben), the store’s owner. His answer was a little unsettling.
+When you experience a profound loss, your world shifts into befores and afters. 
 
-He leaned over and with a hushed voice said, “Best not to ask about that, Eliot.”
+Before December 1st, 2017, I was a mother.
 
-I didn’t know what to make of it, but it was such a small thing, I mostly forgot about it.
+I had a 6 year old daughter named Amber, but I called her Ami. She had hair that was red like her father’s but eyes that were so brown they were almost black, just like my own. 
 
-Still, since I basically had to stare at the shelf all day while I sat at the front desk, I couldn’t help but notice the titles on display.
+I was a younger mother. I had barely gratuated college when I found out that I was knocked up. My sort-of boyfriend at the time - Elijah - he wanted nothing to do with raising a kid or being a family, and I couldn’t blame him. He was about to move out of state for graduate school, and being thrust into parenthood didn’t exactly aid in that goal, so I gave him an out. 
 
-And it was during our town’s annual 4th of July festival that I first noticed the connection between “Ben’s Recommendations” and the events going on around me.
+“You do not have to be a father,” I promised him, “but you have to sign away any rights to her you have. You don’t get to come back when you are lonely in two years and want to pretend to be a dad. I won’t ask for money. I won’t send you updates. If she asks about you, I’ll tell her you loved her but you aren’t around anymore, and that I’ll tell her more when she’s older. You’re free, Elijah.” 
 
-I had volunteered to walk along the fire company’s float and throw candy out to the kids in the crowd. And as we were prepping everything before the parade, I overheard the fire chief talking to someone.
+He took the chance and ran. When she was born, I let his parents be a part of her life, but he didn’t come knocking. 
 
-“It’s a shame we won’t be doing these anymore,” he said.
+I got married to Benjamin when Ami was three. He was a radiologist at the hospital where I was an ER nurse, and casual conversations outside of radiation zones wearing lead aprons turned into coffee in the cafeteria and that turned into walking down the aisle at First Unitarian in Des Moines. Ben loved Ami like she was his own. 
 
-“What?” I interrupted.
+When she started school in 2016, we decided that we were secure enough financially with his job that I could work part time second shifts so I could be there when Ami got on and off the bus. This arrangement worked really well, and I loved watching her cross the street to run into my arms after what felt like an eternity of her being out of the house. 
 
-“The mayor announced it earlier. Budget cuts. This will be the last parade.”
+The first of December was a Friday morning. In the before, I hugged Ami goodbye and told her to have a great day at school. I told her I loved her. She told me she loved me back and turned toward the bus. She looked both ways, like she always did, and then she stepped onto the pavement. 
 
-The two movies that were sitting on the shelf at Film Fanatics:
+The final moments of the before were marked by me watching in impossible slow motion as a Lexus SUV flew around the corner down the street and barreled toward where Bus 18 was idling with no sign of stopping. 
 
-“Independence Day,” and “The Last Parade.”
+I reached out with arms that felt like lead to grab the handle of Ami’s backpack that was just a hair’s breadth away from my fingertips. Someone screamed her name - it may have been me, even - and then it was the after. 
 
-I tried to justify it at first. Perhaps whoever was setting up the display just knew about the cancellation in advance.
+I went numb. I barely remembered the funeral, I barely remembered the hunt for the driver of that Lexus. I think I remember Ben begging me with tear stained cheeks to come back to him, and I think I remember walking out the door without saying another word. 
 
-But now that I was aware, the coincidences just kept happening.
+I drove for weeks. If I slept, which I rarely did, I slept in my car or seedy roadside motels. I made companions with bedbugs and black mold and pillows that smelled of mildew and stale cigarette smoke. I drove from Iowa to Illinois and then down to Mississippi, then Alabama, then Florida and then finally up interstate 95 because I was tired of making decisions at interchanges. 
 
-A few weeks later, I was ringing up a customer and all of a sudden, the register died. No lights, nothing happened when I turned it off and back on, just *dead.* I finished the transaction in cash, logged the rental to enter it into the computer later and picked up the phone to call Mr. Carson. But as the phone was ringing, my eyes wandered over to the end-cap.
+When I was in Maine, the highways turned to glorified roads. I read a pamphlet in Gardiner about an observatory bridge in Bucksport that offered stunning views of the area and decided that’s where I’d go. 
 
-One of the movies on the shelf was titled: “Out of Order.”
+It wasn’t because I wanted to see Verona Island from above. It’s because the Bucksport Observatory Bridge has 135 feet of clearance over the frigid waters of the Penobscot River in January. 
 
-Had that been there all day? I just didn’t remember.
+I was looking for somewhere to stay, so I typed into my maps, searching for a roadside motel that wouldn’t be closed for the season or ridiculous off season pricing. I had no service, so I continued driving, watching for posts of lodging nearby. I took a left turn just outside of Searsport, noting a sign that said there was a motel less than a mile away. 
 
-Another time, I was checking out a particularly large customer. Despite the air conditioning, the man was sweating profusely, nearly soaking the movie jacket and the cash he handed me. It was pretty gross.
+There was no motel. The road switched from the mostly well groomed hot top of a state route to an unplowed mess, even though it hadn’t snowed in days, but I kept going until I could find a safe place to turn around. 
 
-I was just finishing up with him when I looked over his shoulder and noticed the movie staring back at me:
+That’s when I saw the sign - The Cottage, open year round, bed and breakfast. Vacancy. The paint was peeling and the single light that illuminated the sign was actually supposed to be joined by at least three others, but I could see the porch light through the trees. 
 
-“The Big One”
+There was only one other car there, a Subaru outback that was possibly from the late 2000s if I was being generous. I could see a figure shuffling behind the curtains and a flickering “Open 24/7” sign in the window, so I parked my car and walked up to the door. 
 
-I let out a laugh.
+It opened before I had the chance to knock, and Cassandra was there smiling at me. “Welcome to The Cottage,” she purred, and the warmth of her smile made me relax a little. “Fifty dollars a night, no holds for incidentals, and breakfast at 8am.” 
 
-“Excuse me?” the man said, looking offended.
+I followed her to the desk she had set her register up at and handed her my license with a crumpled $50 bill. Her mouth shifted into a slight frown but she took it and marked down my information. 
 
-I did my best to disguise it as a cough, apologized and prayed that he wouldn’t turn around and notice what I had seen.
+From a drawer near her waist she grabbed a comically old looking iron key that had a plastic tag tied to it with twine. “Suite One, upstairs, first door on the right.” She watched me as if she was waiting for me to say or do something, but I just held my hand out for the key. “Come to breakfast in the morning, Marielle. Eight o’clock. It’s important.” 
 
-Though it was funny, that particular instance was troubling, because I knew that movie had not been on the shelf earlier that day.
+I barely heard her, already on my way up the stairs. The carpet runner was worn as if thousands of people had stepped here before, but I was very clearly the only guest. 
 
-Still, what could I do about it? If anything, I thought, it could be helpful.
+The suite was extremely nice, the kind that people pay several hundred a night for. I tossed my bag onto the chair next to the bed and decided to shower. The frigid Maine air was seeping a bit too close to my bones and the way the steam rolled through the large bathroom was heavenly. 
 
-I didn’t know how right I was.
+I couldn’t remember the last time I’d showered. Somewhere in Georgia, maybe? It had been more days than I would have ever allowed before. Back when I was working. 
 
-It was late September; the days were shorter, and because of school, all of my shifts were in the evening. I was taking over for Mr. Carson, who felt it necessary to tell me a little tidbit of news he had heard a few hours before. Someone had escaped from the state hospital. The police were out looking for him. It wasn’t comforting news at the beginning of a long, lonesome shift.
+Back when I was someone else. 
 
-Within the first hour of work, a customer came in and immediately, I knew something was off. He was tall and thin—but not a healthy sort of thin. Veins pulsed in his neck as his eyes darted throughout the store. He was carrying one of those portable DVD players. This was the guy.
+I shampooed my hair three times until I heard my hair literally squeak clean and conditioned like I’d never conditioned before. The water pressure was divine, and the temperature seared my skin at that glorious point just below too hot entirely. 
 
-“Give me the best movie.” he said, his voice quavering
+I felt like a new person by the time I had wrapped my hair in a towel and settled onto the king sized bed. The sheets and pillowcases were silk and I found myself wishing I’d shaved to get the full heavenly clean experience of bare legs between cool silk sheets, but I was still beyond content. 
 
-“What?”
+I relaxed for the first time in over a month and watched Law and Order: SVU until the episode changed to one about a child murder. The wooden analog clock on the wall read past midnight, so I decided that was some sort of divine intervention telling me that it was time for me to rest. 
 
-“The best movie…”
+I dreamed. Since Ami died, I had been plagued with nightmares reliving that horrible moment - my leaden arms, the screaming, the blood. Instead, I dreamed of her when we first went home together and I could barely breathe if I couldn’t see her. I just watched her sleep back when she was a newborn, awestruck at the new life I had brought into the world and was solely responsible for, memorizing the lines of her plump face and perfect pink lips. 
 
-I didn’t give much thought to his request. I really just wanted him gone. So I picked out *The Godfather,* and sent him on his way. I didn’t even check him out. I’d happily pay the cost to get him far away.
+Instead of nightmares, I dreamed of her first day of kindergarten, when she came home so excited to tell me about her day and wanting me to join her the next. I dreamed of Mother’s Day crafts she made in preschool, of pictures with Santa, of giggles and smiles and tiny I love you’s. 
 
-Happy to be done with that, I went on with my evening, uncomfortable and constantly checking out the front window. But, for the next four hours everything was fine. I finally started to relax a little.
+I woke up at 7:30 with tears on my cheeks but no racing heart. It felt like if I turned over, she’d be beside me; it felt like all of this was a bad dream and I’d just woken up on vacation. 
 
-It was just after nine, and I was sitting at the reception desk, leafing through a magazine waiting for the end of my shift. That’s when I heard something fall to the ground. Looking up, I noticed the “Ben Recommends” shelf only had one movie. The other had fallen to the floor, face down. I stood up and walked over to the fallen case, nerves churning in my stomach. Picking the movie off the floor, I finally saw the title:
+I repacked my bag and crept downstairs, intending to sneak out before breakfast, but the owner was waiting for me by the door. “Good morning,” she chirped, that same warm smile painted on her face. “You’re early, but don’t worry, breakfast is still ready.” 
 
-“Run”
+Always the pushover, I let her lead me to the dining room and sit me in a chair in front of all of my favorite foods. Belgian waffles with strawberries and a mountain of whipped cream; bacon that was probably too crispy for any sane person; scrambled eggs with medium heat salsa; juicy purple grapes. Even the coffee - it smelled exactly the same as it did when my grandpa used to make it. 
 
-I didn’t think. I didn’t question it. I just bolted to the front door. But I was too late. The man from earlier was storming toward the entrance, his face full of crazed fury.
+I couldn’t help myself. I practically dove into the meal, tasting every blissful bite and experiencing each like a memory. Breakfast, every Saturday, at my grandpa’s. Waffles on Easter with my grandma. Intentionally desiccating my bacon because the way it crumbled in my mouth was my favorite thing. 
 
-I scrambled back into the store when suddenly the lights went out.
+When my eating was slowing down from ravenous to merely starving, Cassandra spoke. “Tell me about your daughter, Marielle.” 
 
-The front door flew open, and the man unleashed a torrent of threats and swears.
+A week prior, those words would have made me dissociate if she was lucky; they may have made me throw a fist if she wasn’t. That day, though - maybe it was the food, or the blissful dreams the night before, or maybe I just didn’t care anymore - I settled into my chair, took a deep breath, and opened up. 
 
-“I’m going to kill you!” he screamed. “This was NOT the best movie!”
+I told her everything I told you before. I told her about the accidental pregnancy, the new marriage, the joy of being a mom. I told her in every detail I could emotionally manage about the accident. I told her about leaving Ben, about the driving, about the bridge just a few miles away from here I was dying to see. I danced around the implication. 
 
-I ducked down between rows of movies, the dim glow from the exit sign painting everything a reddish hue. Trying to track the man’s location by his incessant screaming, I did my best to stay hidden, weaving between rows, working my way toward the exit.
+The same frown from the night before marred her face, and when she spoke, the warmth in her voice was edged with sternness. “There is a future for you, one where you know love and joy again. There is a future for you where Amber’s memory is a blessing and not a weight to carry. It is closer than you might realize.” 
 
-But suddenly, the screaming stopped.
+She sat beside me then and grabbed my hand in hers. They were small and frail with age, but warm and soft and somehow still strong. “That future will never exist if you leave here today the way you have planned. Do you understand me? The Cottage is a crossroads. Once you leave that door, you’ve decided which way you are going to turn. I would like to see you turn toward hope.” 
 
-My heavy breathing sounded like a foghorn through the silence.
+I measured her words. I didn’t know how, but she was speaking as if she knew the true reason I wanted to see the bridge. 
 
-I tried desperately to keep quiet. To listen. But I couldn’t hear anything besides my own heartbeat and my ragged breaths, which just wouldn’t shut up.
+“I dreamed about her last night,” I blurted suddenly, wanting to take the focus off of her ability to read my mind. “About when she was a baby. I woke up in tears, like I’d relived all the love all at once.” 
 
-I had to do something.
+Cassandra’s frown disappeared. “You dreamed? You dreamed like you experienced it in that moment?” I nodded, confused by her sudden excitement. Her hands, still clasping mine, tightened. “You can’t check out today. One more night. Please.” 
 
-Slowly, I crept toward the end of an aisle and peeked around the corner.
+I opened my mouth, about to argue, to make up some excuse why I couldn’t stay, but no sound came out. I instead shrugged. “You know what, why the hell not?” 
 
-A hand shot out and grabbed me by the throat.
+Cassandra beamed. “You can join me for some puzzles if you like.” She looked down at our hands between us and then back up at me, then smacked her head. “I never introduced myself. I’m Cassandra, and it is a joy to have you here at The Cottage.” 
 
-The man hurled me to the ground and pinned me with his legs as both hands wrapped around my throat.
+—— 
 
-I tried to pull him off. I tried to punch and flail, but the man’s crazed strength was unlike anything I’d ever experienced. I couldn’t stop it.
+The night after that, Cassandra dreamt of The Cottage’s new owner. I did not pick this job, this work, this life. The Cottage - however it works - chose me. I would not have dared try to argue.
 
-My vision was fading along the periphery. And the last thing I would see is this man’s bulging eyes and manic grimace staring down at me.
+The Cottage and Cassandra saved my life that morning. 
 
-Was this how I was going to die, because of a bad move recommendation?
+Eventually, I did go to the bridge, but it really was to go up the observatory tower and see as far as my eyes would reach, as far as I could before the terrain blurred and the earth curved. 
 
-Suddenly, the lights flashed on, and the burglar alarm sounded. Contrasted with the dark silence, this new state of things was jolting, even to me, who was in the process of having my life strangled away. The man shot his head up and loosened his grip. He looked around nervously, got up and rushed from the store.
+If you get a chance, you should visit the Penobscot Narrows Bridge and Observatory in Bucksport, Maine. 
 
-I took a long moment to collect myself. I’m not too proud to say that I broke down in tears once I had registered everything. Fortunately, I had collected myself before the police cars appeared out front to investigate the alarm. The alarm that nobody had set off.
-
-I reported what had happened to the police, and they stuck around as I locked up the store. As I was getting things together, I took another look at “Ben Recommends.” This time, there weren’t DVDs on the shelf at all. Instead, a solitary, unlabeled VHS tape.
-
-I picked it up, threw it in my bag and headed home.
-
-During my long discussion with my parents about what had happened, we got a call from a police officer reporting that the man who had attacked me had been apprehended. We all breathed easily.
-
-But I wasn’t done thinking about all this. I dug our old VCR out of the basement and plugged it into the TV in my bedroom.
-
-Nervously, I inserted the tape and watched the screen flicker to life.
-
-It was footage from the security camera at work. It was me.
-
-I saw myself restocking shelves, walking to and from the front desk. But then I saw someone else. Another guy around my age. At first, I thought it was a customer. But he too was organizing shelves. We were chatting. Laughing. At one point, the guy opened up a box of candy from the front register and shared some with me.
-
-The only problem was, none of this ever happened. Or, at least I don’t remember it…
-
-I watched myself working and interacting with this other guy in disbelief. Beyond my confusion, I was a little sad that I didn’t have a friend to spend those long shifts with.
-
-After a while, the guy picked up a DVD from one of the shelves and walked over to the “Ben Recommends” end-cap. He placed the DVD on the shelf, turned to the camera with a big smile on his face and waved.
-
-I could just make out the title of the movie.
+The view is incredible. 
