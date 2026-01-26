@@ -1,112 +1,236 @@
-# I own a small bed and breakfast in rural Maine. I hope you’re never a guest. [Part 4]
-[Click here to see all chapters.](https://www.reddit.com/u/shriekingsiren/s/ESZuyNROTe)
+# If You Wake Up and Hear Dripping, Don’t Look Up....
+Part 2: [If You Wake Up in a Shed and Hear Something Dragging… Don’t Move. It’s Already Too Late...](https://www.reddit.com/r/nosleep/comments/1q6oete/if_you_wake_up_in_a_shed_and_hear_something/)
 
-CW: Child death, implied suicidality 
+“Cold,” I murmur, wincing as the icy metal presses against my back.
 
-I’m so glad you all enjoyed learning about Charlie. He’s with me here and now as I write down what I am about to share, consuming as much of my pain as he can. Because today’s story is not one of my guests, but one of Cassandra’s. I like to imagine it’s one of her most important guests, too, but… well, you will see what I mean, I promise. 
+The chill seeps into me like an unwelcome intruder, settling deep in my bones and making itself comfortable. The air smells like old piss, rot, and something faintly metallic. Real ambiance. Five stars. Would not recommend.
 
-——
+I try to remember how I got here.
 
-December 1, 2017 
+Nothing.
 
-When you experience a profound loss, your world shifts into befores and afters. 
+No flashes. No half-formed memories. Just a big, empty void where my past should be. Honestly, it’s kind of impressive. My brain is really committed to the bit.
 
-Before December 1st, 2017, I was a mother.
+Okay. Fine. Start small.
 
-I had a 6 year old daughter named Amber, but I called her Ami. She had hair that was red like her father’s but eyes that were so brown they were almost black, just like my own. 
+Name?
 
-I was a younger mother. I had barely gratuated college when I found out that I was knocked up. My sort-of boyfriend at the time - Elijah - he wanted nothing to do with raising a kid or being a family, and I couldn’t blame him. He was about to move out of state for graduate school, and being thrust into parenthood didn’t exactly aid in that goal, so I gave him an out. 
+…Nope.
 
-“You do not have to be a father,” I promised him, “but you have to sign away any rights to her you have. You don’t get to come back when you are lonely in two years and want to pretend to be a dad. I won’t ask for money. I won’t send you updates. If she asks about you, I’ll tell her you loved her but you aren’t around anymore, and that I’ll tell her more when she’s older. You’re free, Elijah.” 
+Age?
 
-He took the chance and ran. When she was born, I let his parents be a part of her life, but he didn’t come knocking. 
+Also no.
 
-I got married to Benjamin when Ami was three. He was a radiologist at the hospital where I was an ER nurse, and casual conversations outside of radiation zones wearing lead aprons turned into coffee in the cafeteria and that turned into walking down the aisle at First Unitarian in Des Moines. Ben loved Ami like she was his own. 
+Well. That’s unfortunate.
 
-When she started school in 2016, we decided that we were secure enough financially with his job that I could work part time second shifts so I could be there when Ami got on and off the bus. This arrangement worked really well, and I loved watching her cross the street to run into my arms after what felt like an eternity of her being out of the house. 
+Panic curls low in my chest. I can feel it warming up, getting ready to stretch its legs. Any second now, I’m going to spiral—
 
-The first of December was a Friday morning. In the before, I hugged Ami goodbye and told her to have a great day at school. I told her I loved her. She told me she loved me back and turned toward the bus. She looked both ways, like she always did, and then she stepped onto the pavement. 
+—but then I hear it.
 
-The final moments of the before were marked by me watching in impossible slow motion as a Lexus SUV flew around the corner down the street and barreled toward where Bus 18 was idling with no sign of stopping. 
+A low groan. Human. Definitely human.
 
-I reached out with arms that felt like lead to grab the handle of Ami’s backpack that was just a hair’s breadth away from my fingertips. Someone screamed her name - it may have been me, even - and then it was the after. 
+I turn my head and spot him lying a few feet away, curled slightly like he’s reconsidering every life choice that led him here. His face is pinched, caught somewhere between pain and regret.
 
-I went numb. I barely remembered the funeral, I barely remembered the hunt for the driver of that Lexus. I think I remember Ben begging me with tear stained cheeks to come back to him, and I think I remember walking out the door without saying another word. 
+“Hey,” I say lightly. “You alive, or should I start looting?”
 
-I drove for weeks. If I slept, which I rarely did, I slept in my car or seedy roadside motels. I made companions with bedbugs and black mold and pillows that smelled of mildew and stale cigarette smoke. I drove from Iowa to Illinois and then down to Mississippi, then Alabama, then Florida and then finally up interstate 95 because I was tired of making decisions at interchanges. 
+No response.
 
-When I was in Maine, the highways turned to glorified roads. I read a pamphlet in Gardiner about an observatory bridge in Bucksport that offered stunning views of the area and decided that’s where I’d go. 
+I sigh and nudge him with my foot. “C’mon. I don’t have all day.”
 
-It wasn’t because I wanted to see Verona Island from above. It’s because the Bucksport Observatory Bridge has 135 feet of clearance over the frigid waters of the Penobscot River in January. 
+He stirs, groans again, and finally cracks his eyes open. We lock eyes.
 
-I was looking for somewhere to stay, so I typed into my maps, searching for a roadside motel that wouldn’t be closed for the season or ridiculous off season pricing. I had no service, so I continued driving, watching for posts of lodging nearby. I took a left turn just outside of Searsport, noting a sign that said there was a motel less than a mile away. 
+The smell hits him a second later.
 
-There was no motel. The road switched from the mostly well groomed hot top of a state route to an unplowed mess, even though it hadn’t snowed in days, but I kept going until I could find a safe place to turn around. 
+He gags violently, clapping a hand over his mouth. I wave my hand in front of my face out of habit, like that’ll magically fix it.
 
-That’s when I saw the sign - The Cottage, open year round, bed and breakfast. Vacancy. The paint was peeling and the single light that illuminated the sign was actually supposed to be joined by at least three others, but I could see the porch light through the trees. 
+Then he looks around finally noticing me, like he’s just now realizing I exist. I brace myself for the obvious questions—where are we, who are you—but instead he blurts, “Did you kidnap me?”
 
-There was only one other car there, a Subaru outback that was possibly from the late 2000s if I was being generous. I could see a figure shuffling behind the curtains and a flickering “Open 24/7” sign in the window, so I parked my car and walked up to the door. 
+I blink.
 
-It opened before I had the chance to knock, and Cassandra was there smiling at me. “Welcome to The Cottage,” she purred, and the warmth of her smile made me relax a little. “Fifty dollars a night, no holds for incidentals, and breakfast at 8am.” 
+Then I laugh. Just a short, surprised burst. “Wow. No. If I had, you’d be tied up. And I’d have already left.”
 
-I followed her to the desk she had set her register up at and handed her my license with a crumpled $50 bill. Her mouth shifted into a slight frown but she took it and marked down my information. 
+That earns me a scowl.
 
-From a drawer near her waist she grabbed a comically old looking iron key that had a plastic tag tied to it with twine. “Suite One, upstairs, first door on the right.” She watched me as if she was waiting for me to say or do something, but I just held my hand out for the key. “Come to breakfast in the morning, Marielle. Eight o’clock. It’s important.” 
+“Then who are you?” he snaps. “And where are we?”
 
-I barely heard her, already on my way up the stairs. The carpet runner was worn as if thousands of people had stepped here before, but I was very clearly the only guest. 
+“I don’t know, buddy,” I say easily. “Your guess is as good as mine.”
 
-The suite was extremely nice, the kind that people pay several hundred a night for. I tossed my bag onto the chair next to the bed and decided to shower. The frigid Maine air was seeping a bit too close to my bones and the way the steam rolled through the large bathroom was heavenly. 
+He studies me for a beat. “What’s your name?”
 
-I couldn’t remember the last time I’d showered. Somewhere in Georgia, maybe? It had been more days than I would have ever allowed before. Back when I was working. 
+I hesitate—just a fraction too long.
 
-Back when I was someone else. 
+“You first,” I say.
 
-I shampooed my hair three times until I heard my hair literally squeak clean and conditioned like I’d never conditioned before. The water pressure was divine, and the temperature seared my skin at that glorious point just below too hot entirely. 
+“Mason,” he replies flatly.
 
-I felt like a new person by the time I had wrapped my hair in a towel and settled onto the king sized bed. The sheets and pillowcases were silk and I found myself wishing I’d shaved to get the full heavenly clean experience of bare legs between cool silk sheets, but I was still beyond content. 
+“Jessy,” I say quickly, the name slipping out before I can overthink it. I immediately regret it. Not because it’s a lie—because it feels… thin. Like a placeholder slapped over something missing.
 
-I relaxed for the first time in over a month and watched Law and Order: SVU until the episode changed to one about a child murder. The wooden analog clock on the wall read past midnight, so I decided that was some sort of divine intervention telling me that it was time for me to rest. 
+I glance away before he can ask anything else.
 
-I dreamed. Since Ami died, I had been plagued with nightmares reliving that horrible moment - my leaden arms, the screaming, the blood. Instead, I dreamed of her when we first went home together and I could barely breathe if I couldn’t see her. I just watched her sleep back when she was a newborn, awestruck at the new life I had brought into the world and was solely responsible for, memorizing the lines of her plump face and perfect pink lips. 
+That’s when I notice it.
 
-Instead of nightmares, I dreamed of her first day of kindergarten, when she came home so excited to tell me about her day and wanting me to join her the next. I dreamed of Mother’s Day crafts she made in preschool, of pictures with Santa, of giggles and smiles and tiny I love you’s. 
+A warped slab of wood barely clinging to the far wall. A door, in the loosest sense of the word.
 
-I woke up at 7:30 with tears on my cheeks but no racing heart. It felt like if I turned over, she’d be beside me; it felt like all of this was a bad dream and I’d just woken up on vacation. 
+“Is that supposed to be a—”
 
-I repacked my bag and crept downstairs, intending to sneak out before breakfast, but the owner was waiting for me by the door. “Good morning,” she chirped, that same warm smile painted on her face. “You’re early, but don’t worry, breakfast is still ready.” 
+He’s already moving.
 
-Always the pushover, I let her lead me to the dining room and sit me in a chair in front of all of my favorite foods. Belgian waffles with strawberries and a mountain of whipped cream; bacon that was probably too crispy for any sane person; scrambled eggs with medium heat salsa; juicy purple grapes. Even the coffee - it smelled exactly the same as it did when my grandpa used to make it. 
+He strides toward it so fast he nearly bowls me over, and I have to stumble out of his way.
 
-I couldn’t help myself. I practically dove into the meal, tasting every blissful bite and experiencing each like a memory. Breakfast, every Saturday, at my grandpa’s. Waffles on Easter with my grandma. Intentionally desiccating my bacon because the way it crumbled in my mouth was my favorite thing. 
+“What the hell?” I hissed. “I thought we were having a conversation.”
 
-When my eating was slowing down from ravenous to merely starving, Cassandra spoke. “Tell me about your daughter, Marielle.” 
+“Waiting around isn’t helping,” he says, grabbing the handle.
 
-A week prior, those words would have made me dissociate if she was lucky; they may have made me throw a fist if she wasn’t. That day, though - maybe it was the food, or the blissful dreams the night before, or maybe I just didn’t care anymore - I settled into my chair, took a deep breath, and opened up. 
+“Wait!” I snap, my horror-movie instincts kicking in hard. “What if there’s something out there?”
 
-I told her everything I told you before. I told her about the accidental pregnancy, the new marriage, the joy of being a mom. I told her in every detail I could emotionally manage about the accident. I told her about leaving Ben, about the driving, about the bridge just a few miles away from here I was dying to see. I danced around the implication. 
+He throws me a sideways glance. “Look around. Whatever’s out there can’t be worse than being stuck here.”
 
-The same frown from the night before marred her face, and when she spoke, the warmth in her voice was edged with sternness. “There is a future for you, one where you know love and joy again. There is a future for you where Amber’s memory is a blessing and not a weight to carry. It is closer than you might realize.” 
+“That is exactly the kind of logic that gets people killed in horror movies,” I mutter.
 
-She sat beside me then and grabbed my hand in hers. They were small and frail with age, but warm and soft and somehow still strong. “That future will never exist if you leave here today the way you have planned. Do you understand me? The Cottage is a crossroads. Once you leave that door, you’ve decided which way you are going to turn. I would like to see you turn toward hope.” 
+But he’s already pulled the door open.
 
-I measured her words. I didn’t know how, but she was speaking as if she knew the true reason I wanted to see the bridge. 
+Darkness spills in, swallowing the weak light behind us.
 
-“I dreamed about her last night,” I blurted suddenly, wanting to take the focus off of her ability to read my mind. “About when she was a baby. I woke up in tears, like I’d relived all the love all at once.” 
+Perfect.
 
-Cassandra’s frown disappeared. “You dreamed? You dreamed like you experienced it in that moment?” I nodded, confused by her sudden excitement. Her hands, still clasping mine, tightened. “You can’t check out today. One more night. Please.” 
+I can’t see my own hand in front of my face—let alone the idiot leading the way.
 
-I opened my mouth, about to argue, to make up some excuse why I couldn’t stay, but no sound came out. I instead shrugged. “You know what, why the hell not?” 
+“Awesome,” I mutter. “This is definitely how I die. Lost in the dark with Trust Issues.” “You got a better plan?” his voice drifts back to me, clipped and annoyed. “Because standing around isn’t it.” We push farther in—and then the space opens up. Moonlight spills in through long, narrow windows lining the walls, pale silver bars cutting through the darkness.
 
-Cassandra beamed. “You can join me for some puzzles if you like.” She looked down at our hands between us and then back up at me, then smacked her head. “I never introduced myself. I’m Cassandra, and it is a joy to have you here at The Cottage.” 
+It’s just enough light to see by—and just enough to make things worse. The room stretches upward, the ceiling impossibly high, wooden beams vanishing into darkness. This isn’t just a kidnapping room. It’s a shed. A big one. And the air doesn’t just feel wrong—it feels like it’s waiting, like it knows we shouldn’t be here.
 
-—— 
+“Do you have a plan,” I ask, eyeing the barely visible outline of Trust Issues in the pale moonlight, “or are we just… rawdogging this?”
 
-The night after that, Cassandra dreamt of The Cottage’s new owner. I did not pick this job, this work, this life. The Cottage - however it works - chose me. I would not have dared try to argue.
+“Shut up,” he mutters, already moving, touching everything around him as if the walls themselves will answer questions.
 
-The Cottage and Cassandra saved my life that morning. 
+That’s when I notice it.
 
-Eventually, I did go to the bridge, but it really was to go up the observatory tower and see as far as my eyes would reach, as far as I could before the terrain blurred and the earth curved. 
+A lever.
 
-If you get a chance, you should visit the Penobscot Narrows Bridge and Observatory in Bucksport, Maine. 
+The kind of lever that screams don’t touch me. But sadly common sense is not that common. Especially not for him.
 
-The view is incredible. 
+He pulls it anyway.
+
+“Don’t—” I start, but nothing happens.
+
+We stand there, still as tombstones, waiting for the trap that should have sprung.
+
+He turns to me, chest puffed, that smug “I told you so” expression in place. “See? Nothing happened.”
+
+And then I feel it.
+
+A faint squelch.
+
+My stomach twists. The air thickens, heavy and sharp with metallic tang. Something wet and cold splatters against my cheek.
+
+I freeze.
+
+“What the—?” Another drop hits him. He swipes at his face, cursing under his breath. “What is this?”
+
+I glance down at my shaking hands. Dark. Sticky. Gleaming faintly in the moonlight.
+
+“Yep,” I mutter weakly. “Just red juice.”
+
+I refused to believe it.
+
+The smell hits next—iron, sharp, unmistakable. Blood. My stomach tightens as panic claws up my spine.
+
+I look at Trust Issues. He’s frozen, eyes wide, locked on something above me. I follow his gaze.
+
+Hanging from the ceiling is a hogtied sheep. Its belly slit open, entrails spilling down like a grotesque, slow-motion piñata. It sways slightly in the draft, a quiet pendulum counting down some unseen clock.
+
+Blood streaks the beams above, carved into jagged symbols, sharp and deliberate. They shine wetly in the moonlight, like they’re daring me to understand them. To make sense.
+
+Flies swarm the carcass, buzzing, vibrating against the silence. And somewhere above, a faint creak like the ceiling itself is alive, straining under the weight of the gutted sheep.
+
+Trust Issues’ breath hitches. “This is…” His voice cracks. “What the hell is this?”
+
+I whisper, voice tighter than I mean it to be. “I don’t know. But I’m pretty sure we’re not alone.”
+
+I don’t say anything after that.
+
+Talking feels unsafe. Like the room is watching us. Like if I speak too loud something will answer.
+
+Instead, I grab Trust Issues by the sleeve and yank him sideways, dragging him behind one of the massive support pillars. He’s shaking hard now, retching into the dirt, folded in on himself like a newborn deer that already knows it won’t survive the winter. I put a hand on his back, instinctively trying to calm him.
+
+The wood presses rough and damp into my shoulder, stained black where old blood has soaked so deep it feels permanent. Not spilled. *Absorbed.*
+
+We crouch there, breathing too loud.
+
+I wait.
+
+Nothing happens.
+
+No footsteps. No reveal. No villain stepping into the moonlight. Just the sheep above us, swaying gently, dripping like a broken sink no one ever bothered to fix.
+
+My heart slows, reluctantly.
+
+Then I hear it.
+
+A buzz.
+
+Not loud. Not mechanical. Subtle. Almost polite.
+
+I scan the floor, the beams, the shadows—until something drops from the sheep’s carcass and lands with a wet thud near my knee.
+
+A phone.
+
+It’s sealed inside a ziplock bag, smeared red but intact, like someone went out of their way to protect it.
+
+My fingers hesitate before I pick it up.
+
+The screen lights instantly.
+
+No password.
+
+No bars. Obviously. Still, I try.
+
+I dial 911.
+
+No ringing. No error message. No “call failed.”
+
+Just silence.
+
+Like the number doesn’t exist here.
+
+“Shit,” I whisper.
+
+Trust Issues peeks out from behind the pillar, eyes wild. “No signal?”
+
+“Yeah...,” I say, staring at the screen.
+
+Battery: **100%**.
+
+That felt wrong like the phone was waiting to be found.
+
+There’s only one app installed.
+
+Google.
+
+It’s already open.
+
+Except it isn’t a search page.
+
+It’s Reddit.
+
+Specifically: r/nosleep
+
+No posts. No comments. No usernames. Just a blank screen and a single button at the center.
+
+**POST**
+
+My throat tightens.
+
+I can’t see anything else. No history. No sidebar. No way to scroll.
+
+Just the button.
+
+Like the room doesn’t want me to read.
+
+It wants me to write.
+
+I look up at the sheep. At the symbols carved into the beams. At the dark that feels… aware.
+
+Then I look back at the phone and start typing.
+
+It's been 2 hours and I just finished writing. The battery… still reads 100%.
