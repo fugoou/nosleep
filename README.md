@@ -1,236 +1,173 @@
-# If You Wake Up and Hear Dripping, Don’t Look Up....
-Part 2: [If You Wake Up in a Shed and Hear Something Dragging… Don’t Move. It’s Already Too Late...](https://www.reddit.com/r/nosleep/comments/1q6oete/if_you_wake_up_in_a_shed_and_hear_something/)
+# If You Know What Being Stalked Feels Like, Me Too
+It started a week ago when I got a notification on Instagram about a new follower. I get random requests all the time, so it didn’t stand out at first. The username was **Optimus.Prime33**.
 
-“Cold,” I murmur, wincing as the icy metal presses against my back.
+Not exactly subtle, not exactly human. No profile picture, no posts, no bio, following exactly one person — me. I didn’t follow back, obviously. I don’t follow empty accounts unless I know the person, and I didn’t know this one.
 
-The chill seeps into me like an unwelcome intruder, settling deep in my bones and making itself comfortable. The air smells like old piss, rot, and something faintly metallic. Real ambiance. Five stars. Would not recommend.
+Actually, I didn’t know anything about this one. Zero mutuals. Zero footprint. Zero reason to exist.
 
-I try to remember how I got here.
+I remember looking at the profile for a total of three seconds and thinking, “Bot.” Closed the app and moved on. End of story.
 
-Nothing.
+Or so I thought.
 
-No flashes. No half-formed memories. Just a big, empty void where my past should be. Honestly, it’s kind of impressive. My brain is really committed to the bit.
+The next morning I woke up, brushed my teeth, made the same coffee I drink every day, and sat on my sofa replying to boring work messages. My phone buzzed with a notification from Instagram: **“*****Optimus.Prime33 mentioned you in a post.*****”**
 
-Okay. Fine. Start small.
+I rolled my eyes, thinking it was probably some spam reel tagging random people. Opened it anyway.
 
-Name?
+It wasn’t a reel.  
+It was a photo.  
+A picture of my building.
 
-…Nope.
+My building — not a stock photo, not something anyone could Google. My actual building, taken from the street. The angle was unmistakable. My floor. My balcony railing. The light from my bedroom window. Everything.
 
-Age?
+Caption: **“You’re still here.”**
 
-Also no.
+I remember sitting there staring at my phone thinking, Who the fuck is this? I clicked the profile again. Still private. Still no posts except this one. Still following just me. Still no followers. It felt like a blank mask staring back.
 
-Well. That’s unfortunate.
+I tried blocking him. Instagram behaved like it worked — “User blocked” — but when I refreshed the page, the account was still there. Nothing changed. I tried again. Same thing. The account clung to me like glue.
 
-Panic curls low in my chest. I can feel it warming up, getting ready to stretch its legs. Any second now, I’m going to spiral—
+I shrugged it off and went to work because honestly, I wasn’t about to lose my day over some idiot with a Transformers username.
 
-—but then I hear it.
+Later that afternoon, another notification: **another tag.**
 
-A low groan. Human. Definitely human.
+This time, it was a picture of me.
 
-I turn my head and spot him lying a few feet away, curled slightly like he’s reconsidering every life choice that led him here. His face is pinched, caught somewhere between pain and regret.
+Walking to the lift.
 
-“Hey,” I say lightly. “You alive, or should I start looting?”
+Taken from the lobby.
 
-No response.
+The lobby was empty when I left my apartment. I’m not imagining that. I didn’t see anyone standing near the stairs or pretending to scroll by the wall. It was dead quiet. But the photo was taken from the corner — the exact opposite corner from where I was walking.
 
-I sigh and nudge him with my foot. “C’mon. I don’t have all day.”
+The caption said: **“You don’t notice anything.”**
 
-He stirs, groans again, and finally cracks his eyes open. We lock eyes.
+That pissed me off more than it scared me.
 
-The smell hits him a second later.
+I commented under the post: **“Who are you?”**
 
-He gags violently, clapping a hand over his mouth. I wave my hand in front of my face out of habit, like that’ll magically fix it.
+He replied instantly.  
+Not a second of delay.  
+Just: **“:)”**
 
-Then he looks around finally noticing me, like he’s just now realizing I exist. I brace myself for the obvious questions—where are we, who are you—but instead he blurts, “Did you kidnap me?”
+I felt the hair on my arms rise. I don’t know why that stupid smiley hit so hard, but it did. Something about the way he responded so fast, like he was waiting for me to ask.
 
-I blink.
+I clicked unfollow out of pure irritation. All his posts vanished instantly. Like his profile wiped itself clean the moment I cut the link. When I followed again to check, he accepted immediately. No delay. Almost like he’d been staring at his screen waiting for me to click the button.
 
-Then I laugh. Just a short, surprised burst. “Wow. No. If I had, you’d be tied up. And I’d have already left.”
+Two days later, I woke up early for work — earlier than usual because I had a meeting I didn’t want to be late for — and I found another tag.
 
-That earns me a scowl.
+A screenshot.  
+My old Facebook profile.  
+Like ancient-old.
 
-“Then who are you?” he snaps. “And where are we?”
+Photos from college. Cringe memes I’d forgotten I posted. People I don’t even speak to anymore. He scraped something from an era of my life I barely remember, and posted it like some kind of digital trophy.
 
-“I don’t know, buddy,” I say easily. “Your guess is as good as mine.”
+Caption: **“Always liked this one.”**
 
-He studies me for a beat. “What’s your name?”
+Liked WHAT?  
+The picture?  
+Me?  
+The life I had back then?
 
-I hesitate—just a fraction too long.
+I didn’t know, and honestly, I didn’t want to think about it.
 
-“You first,” I say.
+I started to get uneasy. Not terrified yet — just annoyed and unsettled. Like when you know a mosquito is in your room but you can’t find it.
 
-“Mason,” he replies flatly.
+Yesterday, it escalated.
 
-“Jessy,” I say quickly, the name slipping out before I can overthink it. I immediately regret it. Not because it’s a lie—because it feels… thin. Like a placeholder slapped over something missing.
+I left work, walked toward my bike parked near the gate like always, and my phone buzzed. Another tag.
 
-I glance away before he can ask anything else.
+A picture of my bike.  
+Same angle I see it from when I walk up to it.  
+Taken moments before I got there.
 
-That’s when I notice it.
+I scanned the area thinking maybe some idiot from the office was messing with me. But nobody was standing around. Nobody was hiding behind cars or pillars. It was just… empty.
 
-A warped slab of wood barely clinging to the far wall. A door, in the loosest sense of the word.
+Caption: **“You really don’t know me.”**
 
-“Is that supposed to be a—”
+Yeah, I fucking don’t.  
+And that was the problem.
 
-He’s already moving.
+Last night I sat on my couch for two straight hours scrolling through my memories trying to place him. School? No. College? No. Office? Definitely not. A friend of a friend? Nothing. A random neighbor? No. Someone I pissed off years ago? No idea.
 
-He strides toward it so fast he nearly bowls me over, and I have to stumble out of his way.
+There was nothing. No connection. No shared history. No reason this guy should know anything about me.
 
-“What the hell?” I hissed. “I thought we were having a conversation.”
+This morning, things got real.
 
-“Waiting around isn’t helping,” he says, grabbing the handle.
+About forty minutes ago, he posted a picture of my doorbell.
 
-“Wait!” I snap, my horror-movie instincts kicking in hard. “What if there’s something out there?”
+My NAMEPLATE.
 
-He throws me a sideways glance. “Look around. Whatever’s out there can’t be worse than being stuck here.”
+Up close.
 
-“That is exactly the kind of logic that gets people killed in horror movies,” I mutter.
+Clear as daylight.  
+He had stood right there.
 
-But he’s already pulled the door open.
+Caption: **“Back home soon?”**
 
-Darkness spills in, swallowing the weak light behind us.
+That was it for me. I grabbed my keys, grabbed my phone, didn’t even check if the door was locked, just walked straight out. Didn’t call anyone, didn’t tell anyone, just walked fast and didn’t look back.
 
-Perfect.
+I must’ve reached the police station in five minutes flat. Probably broke a walking speed record.
 
-I can’t see my own hand in front of my face—let alone the idiot leading the way.
+And now I’m sitting in this shitty plastic chair with people screaming down the hall and constables walking past without making eye contact. The fan above me is rattling like it’s about to fall, my palms are sweating, and I’m typing all of this out because I haven’t figured out how to explain this without sounding insane.
 
-“Awesome,” I mutter. “This is definitely how I die. Lost in the dark with Trust Issues.” “You got a better plan?” his voice drifts back to me, clipped and annoyed. “Because standing around isn’t it.” We push farther in—and then the space opens up. Moonlight spills in through long, narrow windows lining the walls, pale silver bars cutting through the darkness.
+“Hi sir, some guy with a Transformers username is tagging me in pictures of my balcony.”  
+Yeah, great. Sounds normal.
 
-It’s just enough light to see by—and just enough to make things worse. The room stretches upward, the ceiling impossibly high, wooden beams vanishing into darkness. This isn’t just a kidnapping room. It’s a shed. A big one. And the air doesn’t just feel wrong—it feels like it’s waiting, like it knows we shouldn’t be here.
+I opened Instagram to check if he posted anything new. Nothing. The same set of posts, arranged neatly like a timeline of creeping dread.
 
-“Do you have a plan,” I ask, eyeing the barely visible outline of Trust Issues in the pale moonlight, “or are we just… rawdogging this?”
+I tapped each one again:
 
-“Shut up,” he mutters, already moving, touching everything around him as if the walls themselves will answer questions.
+My balcony.  
+Me near the lift.  
+My old Facebook profile.  
+My bike.  
+My doorbell.
 
-That’s when I notice it.
+I zoomed into each picture trying to find clues. Reflections. Shadows. Footprints. Corners. Anything. There was nothing. Whoever took these photos was careful. Too careful.
 
-A lever.
+I checked the timestamps. They lined up with my routine, almost perfectly. Morning, afternoon, post-work, late evening.
 
-The kind of lever that screams don’t touch me. But sadly common sense is not that common. Especially not for him.
+The fucker knew my schedule.
 
-He pulls it anyway.
+I even checked the metadata on the photos — Instagram strips most of it, but I checked anyway. Nothing. 
 
-“Don’t—” I start, but nothing happens.
+I tried Googling his username. Nothing. No Reddit. No Twitter. No stray gaming IDs. Nothing in any breach database. No traces. Like the account exists only on Instagram, only connected to me.
 
-We stand there, still as tombstones, waiting for the trap that should have sprung.
+I even tried messaging him. “Tell me who you are.”  
+No reply.
 
-He turns to me, chest puffed, that smug “I told you so” expression in place. “See? Nothing happened.”
+I was halfway through typing a second message when I realized I was being stupid and stopped before giving him more attention.
 
-And then I feel it.
+And now I’m here, stuck in a police station, typing this all down while constables keep walking past me like I’m a stain on the floor.
 
-A faint squelch.
+I wish I could say I’m calm. I’m not. I’m trying so hard to pretend I’m not affected, but my chest feels tight, and I keep checking the station doorway expecting him to walk in.
 
-My stomach twists. The air thickens, heavy and sharp with metallic tang. Something wet and cold splatters against my cheek.
+I keep refreshing Instagram every few seconds and each time I brace myself for another notification.
 
-I freeze.
+I swear I’m shaking writing this. All of this feels unreal and too real at the same time. A stranger following me everywhere, taking photos, posting them seconds later, reacting instantly when I unfollow or comment… It's too much.
 
-“What the—?” Another drop hits him. He swipes at his face, cursing under his breath. “What is this?”
+I’m trying to appear normal in the police station, but I keep glancing at the entrance. Every time the door moves, my heartbeat jumps. Every time someone coughs behind me, I flinch.
 
-I glance down at my shaking hands. Dark. Sticky. Gleaming faintly in the moonlight.
+Someone has been watching me for a week, closely enough to know when I leave my room, when I enter my lift, when I park my bike, when I unlock my door, when I panic.
 
-“Yep,” I mutter weakly. “Just red juice.”
+I’m trying to steady myself, but my fingers won’t stop tapping the screen.
 
-I refused to believe it.
+My phone buzzed as I was typing this out.
 
-The smell hits next—iron, sharp, unmistakable. Blood. My stomach tightens as panic claws up my spine.
+Another tag.  
+Another post.
 
-I look at Trust Issues. He’s frozen, eyes wide, locked on something above me. I follow his gaze.
+My hands are cold. I opened Instagram without thinking.
 
-Hanging from the ceiling is a hogtied sheep. Its belly slit open, entrails spilling down like a grotesque, slow-motion piñata. It sways slightly in the draft, a quiet pendulum counting down some unseen clock.
+This time it was a picture of me.
 
-Blood streaks the beams above, carved into jagged symbols, sharp and deliberate. They shine wetly in the moonlight, like they’re daring me to understand them. To make sense.
+Sitting on this same plastic chair.  
+Typing on my phone.
 
-Flies swarm the carcass, buzzing, vibrating against the silence. And somewhere above, a faint creak like the ceiling itself is alive, straining under the weight of the gutted sheep.
+My shoulders hunched the exact way they are right now. My thumb mid-swipe. My leg bent at the same angle. Everything identical.
 
-Trust Issues’ breath hitches. “This is…” His voice cracks. “What the hell is this?”
+It was taken from beside me.  
+Right next to my shoulder.  
+Like someone stood inches away while I typed.
 
-I whisper, voice tighter than I mean it to be. “I don’t know. But I’m pretty sure we’re not alone.”
+And I didn’t notice anybody standing there.
 
-I don’t say anything after that.
-
-Talking feels unsafe. Like the room is watching us. Like if I speak too loud something will answer.
-
-Instead, I grab Trust Issues by the sleeve and yank him sideways, dragging him behind one of the massive support pillars. He’s shaking hard now, retching into the dirt, folded in on himself like a newborn deer that already knows it won’t survive the winter. I put a hand on his back, instinctively trying to calm him.
-
-The wood presses rough and damp into my shoulder, stained black where old blood has soaked so deep it feels permanent. Not spilled. *Absorbed.*
-
-We crouch there, breathing too loud.
-
-I wait.
-
-Nothing happens.
-
-No footsteps. No reveal. No villain stepping into the moonlight. Just the sheep above us, swaying gently, dripping like a broken sink no one ever bothered to fix.
-
-My heart slows, reluctantly.
-
-Then I hear it.
-
-A buzz.
-
-Not loud. Not mechanical. Subtle. Almost polite.
-
-I scan the floor, the beams, the shadows—until something drops from the sheep’s carcass and lands with a wet thud near my knee.
-
-A phone.
-
-It’s sealed inside a ziplock bag, smeared red but intact, like someone went out of their way to protect it.
-
-My fingers hesitate before I pick it up.
-
-The screen lights instantly.
-
-No password.
-
-No bars. Obviously. Still, I try.
-
-I dial 911.
-
-No ringing. No error message. No “call failed.”
-
-Just silence.
-
-Like the number doesn’t exist here.
-
-“Shit,” I whisper.
-
-Trust Issues peeks out from behind the pillar, eyes wild. “No signal?”
-
-“Yeah...,” I say, staring at the screen.
-
-Battery: **100%**.
-
-That felt wrong like the phone was waiting to be found.
-
-There’s only one app installed.
-
-Google.
-
-It’s already open.
-
-Except it isn’t a search page.
-
-It’s Reddit.
-
-Specifically: r/nosleep
-
-No posts. No comments. No usernames. Just a blank screen and a single button at the center.
-
-**POST**
-
-My throat tightens.
-
-I can’t see anything else. No history. No sidebar. No way to scroll.
-
-Just the button.
-
-Like the room doesn’t want me to read.
-
-It wants me to write.
-
-I look up at the sheep. At the symbols carved into the beams. At the dark that feels… aware.
-
-Then I look back at the phone and start typing.
-
-It's been 2 hours and I just finished writing. The battery… still reads 100%.
+The caption read: **“This won’t help.”**
