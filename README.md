@@ -1,173 +1,68 @@
-# If You Know What Being Stalked Feels Like, Me Too
-It started a week ago when I got a notification on Instagram about a new follower. I get random requests all the time, so it didn’t stand out at first. The username was **Optimus.Prime33**.
+# There are monsters in the Midwest I can't explain; today I need to talk about the trains
+The train tracks run along the towns and farms, through up and down plains and dry wheat fields set up for sale years ago. The tracks run right up to houses and one mile later right past the absolute nothing of old farmlands, so flat nothing but the dilapidated barns can cast shadows onto the fields of grass. They seem to come out of nowhere and run into the same nothingness.
 
-Not exactly subtle, not exactly human. No profile picture, no posts, no bio, following exactly one person — me. I didn’t follow back, obviously. I don’t follow empty accounts unless I know the person, and I didn’t know this one.
+This loses its luster when you're driving though, the lights come down and a train you don't remember seeing in your peripheral vision starts moving in its agonizing pace over your field of vision. Once it's gone, and you drive over the tracks, you don't seem to see it any ways along the path it should be on. Sometimes you wonder if theres some bend in the road you never knew about, or if you imagined the train itself.
 
-Actually, I didn’t know anything about this one. Zero mutuals. Zero footprint. Zero reason to exist.
+I always got this weird idea about the trains, they came and went but never seemed bound to any direction. Either way, no one really pays these things any mind when they're always around. It's like any other weird thing in your childhood town that you never realize until someone else questions it for you. 
 
-I remember looking at the profile for a total of three seconds and thinking, “Bot.” Closed the app and moved on. End of story.
+Anyways, the reason i'm writing this is to preamble the story that took me out of the preconceived normalcy I lost after the incident. I don't know why i'm writing this, but I want to finish it before I question it too much. :
 
-Or so I thought.
+About 5 years ago, on Halloween night, me and my friends decided in a tribute to the last year of our childhood, we would go out in costumes in one last bid of free candy. Im getting carried away, the point is, on that night we went around the old houses, knocking and ringing for candy. We smiled at the small hints of disappointment on peoples faces when they saw our grown figures in the doorway, disappointment that still wished us a happy Halloween and gave us treats to save everyone the awkwardness. After we ran our costumed social pressure stick-up, we decided to take advantage of our grown 17-ness to meander into some deserted part of town, leaving the general paths of children and parents. We walked off the neighborhood streets, on the old grassless stretches of land and into the untrimmed areas past unfenced backyards where parties stayed warm by fire pits. Through a little bushel of trees preserved for the dwindling property value of the area, to the green grass field with obtrusive metal bars on rough gravel and stones not 20 feet from the tree line. Like a river of metal and rock forcing the nature around to shift and sweep away. That scenery was perhaps not as melancholy that day as it is now. 
 
-The next morning I woke up, brushed my teeth, made the same coffee I drink every day, and sat on my sofa replying to boring work messages. My phone buzzed with a notification from Instagram: **“*****Optimus.Prime33 mentioned you in a post.*****”**
+"So what do we do now?" asked Maxine, who was the one leading us the whole way. Her half-face white mask is slipping, she was the phantom from POTO.
 
-I rolled my eyes, thinking it was probably some spam reel tagging random people. Opened it anyway.
+"Photos?" offered Lucas, he was a white beard wizard in a pink bath robe, which was probably his and not his moms.
 
-It wasn’t a reel.  
-It was a photo.  
-A picture of my building.
+"I dunno" replied Andrea, in a red dress with fake, waxy sharp teeth, Carmilla, she had explained.
 
-My building — not a stock photo, not something anyone could Google. My actual building, taken from the street. The angle was unmistakable. My floor. My balcony railing. The light from my bedroom window. Everything.
+"what else do you guys wanna do?" I asked
 
-Caption: **“You’re still here.”**
+"Im good for anything" assured Maxi
 
-I remember sitting there staring at my phone thinking, Who the fuck is this? I clicked the profile again. Still private. Still no posts except this one. Still following just me. Still no followers. It felt like a blank mask staring back.
+"Yeah, same" came from Andrea
 
-I tried blocking him. Instagram behaved like it worked — “User blocked” — but when I refreshed the page, the account was still there. Nothing changed. I tried again. Same thing. The account clung to me like glue.
+"So like what?" I asked again
 
-I shrugged it off and went to work because honestly, I wasn’t about to lose my day over some idiot with a Transformers username.
+...
 
-Later that afternoon, another notification: **another tag.**
+"ehhh" we all said in one way or another
 
-This time, it was a picture of me.
+That stupid conversation was probably the preamble to most of our little adventures around town, usually ending with one of us getting a "where are you" text from a mom or dad and all of us deciding to head home. On the way back we acted like our parents worrying was the most annoying behavior possible, hiding the hint of nervousness that we had truly upset them. We were idiots, plainly, loud and obnoxious, thinking the whole world was watching the enthralling suburban lives of 4 teenagers. Maybe we knew we were just like any other group of kids growing up in a mid-way town, thinking we would rule the world once we managed a way out of it. Maybe that's just a part of growing up, I wish I was certain. I wish I could know what would have become of us if we had all survived.
 
-Walking to the lift.
+In our drawling, we decided to sit and break open our candy stashes. Lucas tried trading salted almond packets for skittles, thinking he could con that from anyone. Out of pity, Andrea threw a taffy at his head.
 
-Taken from the lobby.
+"Ow" He deadpanned, "why didn't I get anything good?"
 
-The lobby was empty when I left my apartment. I’m not imagining that. I didn’t see anyone standing near the stairs or pretending to scroll by the wall. It was dead quiet. But the photo was taken from the corner — the exact opposite corner from where I was walking.
+"because you look like a flamingo"
 
-The caption said: **“You don’t notice anything.”**
+"and It's illegal to feed flamingos"
 
-That pissed me off more than it scared me.
+"endangered species"
 
-I commented under the post: **“Who are you?”**
+We threw a few more strawberry flavors into his bag, it was his favorite
 
-He replied instantly.  
-Not a second of delay.  
-Just: **“:)”**
+We sat for a time until we heard a faint wail from the left of the tracks, past a small bend, where we couldn't see what was coming. The scream sounded a mix of air passing through small metal passages and the real, vile noise of a living thing. Just as needle points of light came through the leaves, in the creeping darkness a deer came into our vision. It sprinted along the tracts, head whipping around at all angles while its legs continued to move it straight ahead. Its body seemed forced between the 2 lines of metal, its neck at one point cranked back enough to reach the curve of his back, a horrible gutting hook. Then its head pulled far to the side, its mouth hanging open, slanted and slack. It kept running.
 
-I felt the hair on my arms rise. I don’t know why that stupid smiley hit so hard, but it did. Something about the way he responded so fast, like he was waiting for me to ask.
+I looked to Maxi as Andrea backed behind us. Lucas reached down for something heavy, a rock or a stick, but never took his eyes off the poor creature. As the erratic beast followed the tracks, we stood stunned as the deer rushed forwards. It passed the center of our vision, its neck craned a 90 degrees to look at us head on. It stood frozen, and I heard the whistle again. The lights of an approaching machine mangled our shadows. A train rushed down the metal path, its pace middling but unrelenting. It reaching the deer. Catching it's back legs, the force turning it onto its back as its front feet swung for half a second before they folded down to its body, breaking into more pieces of flesh that sprayed through the air as warm spittles of the immolated creature. The train seemed to stop. 
 
-I clicked unfollow out of pure irritation. All his posts vanished instantly. Like his profile wiped itself clean the moment I cut the link. When I followed again to check, he accepted immediately. No delay. Almost like he’d been staring at his screen waiting for me to click the button.
+I heard Maxi wail as the gore reached us, feeling the stickiness cool, tacking us to the ground in the shock of what had happened. After wiping my face I looked ahead, but the train had disappeared, passing the next bunch of trees, faster than it should have, without a trace of light or sound. It hadn't made sense, it'd seemed like it was near dead stopped a moment ago.
 
-Two days later, I woke up early for work — earlier than usual because I had a meeting I didn’t want to be late for — and I found another tag.
+In the absence of the train, we managed our senses and looked from one and another, silently turning back, we took off into a run. Out of bewilderment of what had happened, sure any time animals get hit by trains, but why was it acting like that? Maybe it was just the rabid behavior of a scared deer either way, it was dark and terrifying, so we kept running. Past a short stint of grass, into the thicket of trees, I heard our heavy breathing and stomping feet. I heard a candy bad sloshing in Maxi's hand, she wasn't in a head space to notice she was carrying it. Near the end of the border of trees, the trunks closed in on us forcing us closer, I felt Lucas's hand reach forward to me, out of fear or need, trying to hold onto mine. I felt the tackiness of what I could imagine was the franticly wiped of blood from the animal, but a second later in my weak grip, I felt his hand let go. I didn't hear him fall, but I remember now the absent fourth pair of footsteps for a final minutes of our run. At that time I probably didn't even notice him missing, and even now I can't be sure what triggered his action in the minutes after. Yet I still wonder if in those seconds of silence where i'm sure he lay on the ground seeing our flagrant retreat, if I had turned back to hold the hand of my friend, he may not have suffered such underserved cruelty as what taken him as the effect of my abandonment.
 
-A screenshot.  
-My old Facebook profile.  
-Like ancient-old.
+When we breached the other side of the tree's, ran through the unkempt grass, and smelt the first smoke of put out fires, we looked at each other frantically. 
 
-Photos from college. Cringe memes I’d forgotten I posted. People I don’t even speak to anymore. He scraped something from an era of my life I barely remember, and posted it like some kind of digital trophy.
+"wheres Lucas?" Andrea voice strung out, hoarse and heavy
 
-Caption: **“Always liked this one.”**
+"He- I think he fell" I answered looking back to the trees peeking out from a distance.
 
-Liked WHAT?  
-The picture?  
-Me?  
-The life I had back then?
+"Did he get up, we should be able to see him even if he's far behind" Maxi panicked at her own reasoning. 
 
-I didn’t know, and honestly, I didn’t want to think about it.
+Looking at the two of them and weighing our options, the memory of his hand kept playing in my head, in some way I knew something had happened, and against my own judgment I told the two of them to wait while I would go back just a few paces to look out for him. I knew he wouldn't be there, and I knew I wasn't going to turn back once it was certain he hadn't made it out of the trees. It was some odd, set notion that something had happened, a shift in the miasma of the Earth that I could not erase, but had to stand witness of. So I caught my breath and ran back for him. I ran into the trees, through the dark trunks of basswood and elm, I saw again, the bright strands of light making its way from the right. I heard the faint whistling again, but it was purely mechanical, the wailing of an old, worn machine that would not break down just yet, that would finish its work today. 
 
-I started to get uneasy. Not terrified yet — just annoyed and unsettled. Like when you know a mosquito is in your room but you can’t find it.
+When I was closer to the other side of the trees, I saw Lucas standing at the edge of the woods, two steps past where the visible roots ended. In the shadow of the light beams, coming from a train I knew was approaching but for some reason could not yet see, I saw his head turn towards me. Upon seeing me, he turned away, and I felt a great call to come up and join him, not to stop whatever was about to happen but to go with him. Just as I went to move, I felt the great shadow of the tree line weight down on me bidding I stay put. Some overarching force that was not stopping me, but filled me with dread at the possibility of passing its confines. I saw Lucas try to run, but it was slow and dreadful. One of his legs kept twisting and turning, his shoulders were jerking this and that way, his other foot was bend so low it made him appear inches shorter than he was, it stooped in this unnatural way as it to stamp itself into the ground, as if to stop its movements. It was then I realized, in the background of what was afflicting my friend, that there was a train coming through the tracks. 
 
-Yesterday, it escalated.
+I yelled for him, as his foot dragged on the gravel. I stepped into the plain grass, away from the safety of the trees. I called for his name again, a piercing call through the atmosphere of inevitable tragedy, a reaction of complete abandonment I hoped would do anything at all. Then, he looked back, some form of conciseness in his posture, his figure curling into itself in pain. 
 
-I left work, walked toward my bike parked near the gate like always, and my phone buzzed. Another tag.
+I saw him take one foot of the tract to escape, but the train caught his other leg, mutilating his foot and shin, his whole body twisted as he came under the machine. Forcing him onto his stomach with his one leg jerking in inane reaction from the trauma being done to his body. He was splayed out in this flailing, raggish way, a horrible, vile final resting as the train passed over his body, unequivocally erasing the traces of my friend from this world. Left behind was the mangled innards and bone and gore indicative of any human or animal, and the bag of candy filled with salty almonds and strawberry taffy to remember him by.
 
-A picture of my bike.  
-Same angle I see it from when I walk up to it.  
-Taken moments before I got there.
-
-I scanned the area thinking maybe some idiot from the office was messing with me. But nobody was standing around. Nobody was hiding behind cars or pillars. It was just… empty.
-
-Caption: **“You really don’t know me.”**
-
-Yeah, I fucking don’t.  
-And that was the problem.
-
-Last night I sat on my couch for two straight hours scrolling through my memories trying to place him. School? No. College? No. Office? Definitely not. A friend of a friend? Nothing. A random neighbor? No. Someone I pissed off years ago? No idea.
-
-There was nothing. No connection. No shared history. No reason this guy should know anything about me.
-
-This morning, things got real.
-
-About forty minutes ago, he posted a picture of my doorbell.
-
-My NAMEPLATE.
-
-Up close.
-
-Clear as daylight.  
-He had stood right there.
-
-Caption: **“Back home soon?”**
-
-That was it for me. I grabbed my keys, grabbed my phone, didn’t even check if the door was locked, just walked straight out. Didn’t call anyone, didn’t tell anyone, just walked fast and didn’t look back.
-
-I must’ve reached the police station in five minutes flat. Probably broke a walking speed record.
-
-And now I’m sitting in this shitty plastic chair with people screaming down the hall and constables walking past without making eye contact. The fan above me is rattling like it’s about to fall, my palms are sweating, and I’m typing all of this out because I haven’t figured out how to explain this without sounding insane.
-
-“Hi sir, some guy with a Transformers username is tagging me in pictures of my balcony.”  
-Yeah, great. Sounds normal.
-
-I opened Instagram to check if he posted anything new. Nothing. The same set of posts, arranged neatly like a timeline of creeping dread.
-
-I tapped each one again:
-
-My balcony.  
-Me near the lift.  
-My old Facebook profile.  
-My bike.  
-My doorbell.
-
-I zoomed into each picture trying to find clues. Reflections. Shadows. Footprints. Corners. Anything. There was nothing. Whoever took these photos was careful. Too careful.
-
-I checked the timestamps. They lined up with my routine, almost perfectly. Morning, afternoon, post-work, late evening.
-
-The fucker knew my schedule.
-
-I even checked the metadata on the photos — Instagram strips most of it, but I checked anyway. Nothing. 
-
-I tried Googling his username. Nothing. No Reddit. No Twitter. No stray gaming IDs. Nothing in any breach database. No traces. Like the account exists only on Instagram, only connected to me.
-
-I even tried messaging him. “Tell me who you are.”  
-No reply.
-
-I was halfway through typing a second message when I realized I was being stupid and stopped before giving him more attention.
-
-And now I’m here, stuck in a police station, typing this all down while constables keep walking past me like I’m a stain on the floor.
-
-I wish I could say I’m calm. I’m not. I’m trying so hard to pretend I’m not affected, but my chest feels tight, and I keep checking the station doorway expecting him to walk in.
-
-I keep refreshing Instagram every few seconds and each time I brace myself for another notification.
-
-I swear I’m shaking writing this. All of this feels unreal and too real at the same time. A stranger following me everywhere, taking photos, posting them seconds later, reacting instantly when I unfollow or comment… It's too much.
-
-I’m trying to appear normal in the police station, but I keep glancing at the entrance. Every time the door moves, my heartbeat jumps. Every time someone coughs behind me, I flinch.
-
-Someone has been watching me for a week, closely enough to know when I leave my room, when I enter my lift, when I park my bike, when I unlock my door, when I panic.
-
-I’m trying to steady myself, but my fingers won’t stop tapping the screen.
-
-My phone buzzed as I was typing this out.
-
-Another tag.  
-Another post.
-
-My hands are cold. I opened Instagram without thinking.
-
-This time it was a picture of me.
-
-Sitting on this same plastic chair.  
-Typing on my phone.
-
-My shoulders hunched the exact way they are right now. My thumb mid-swipe. My leg bent at the same angle. Everything identical.
-
-It was taken from beside me.  
-Right next to my shoulder.  
-Like someone stood inches away while I typed.
-
-And I didn’t notice anybody standing there.
-
-The caption read: **“This won’t help.”**
+It's been a few years since that incident and It would be a great ending to say that we all continued our lives in stoic infallibility, showing the springing resilience of childhood, but we never did. Our lives stopped when he died, Andrea never spoke to us again, it had been her idea to out for Halloween, Maxi told us, after the funeral, that she couldn't stand the questioning looks from different people around the town, whispering that we had done it, or prodding the reason for his "suicide". They never believed what we said. For my part, I pretended to stay the same, hoping I would forget or misremember what I saw. I hoped I could purposefully delude myself, if I never changed, never got older, I would never notice that Lucas wasn't there growing older with me.
