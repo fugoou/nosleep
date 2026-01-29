@@ -1,68 +1,106 @@
-# There are monsters in the Midwest I can't explain; today I need to talk about the trains
-The train tracks run along the towns and farms, through up and down plains and dry wheat fields set up for sale years ago. The tracks run right up to houses and one mile later right past the absolute nothing of old farmlands, so flat nothing but the dilapidated barns can cast shadows onto the fields of grass. They seem to come out of nowhere and run into the same nothingness.
+# There's a little boy named Iggy who is.... well... let's just say ... off.
+"Why is there a little boy sitting on the floor in his underwear?" I looked at the kid. 
 
-This loses its luster when you're driving though, the lights come down and a train you don't remember seeing in your peripheral vision starts moving in its agonizing pace over your field of vision. Once it's gone, and you drive over the tracks, you don't seem to see it any ways along the path it should be on. Sometimes you wonder if theres some bend in the road you never knew about, or if you imagined the train itself.
+I looked at Athena. I assumed this was a rhetorical question. 
 
-I always got this weird idea about the trains, they came and went but never seemed bound to any direction. Either way, no one really pays these things any mind when they're always around. It's like any other weird thing in your childhood town that you never realize until someone else questions it for you. 
+The kid couldn't have been more than ten years old and yeah, he was just wearing a pair of what looked like blood stained Hulk underoos; bottoms only, no top. 
 
-Anyways, the reason i'm writing this is to preamble the story that took me out of the preconceived normalcy I lost after the incident. I don't know why i'm writing this, but I want to finish it before I question it too much. :
+He also looked like he'd been crying recently and further appeared not to wish to acknowledge my presence. Athena and I had just moved into a new apartment and I was going to go out on a limb here and assume the kid was my next door neighbor. 
 
-About 5 years ago, on Halloween night, me and my friends decided in a tribute to the last year of our childhood, we would go out in costumes in one last bid of free candy. Im getting carried away, the point is, on that night we went around the old houses, knocking and ringing for candy. We smiled at the small hints of disappointment on peoples faces when they saw our grown figures in the doorway, disappointment that still wished us a happy Halloween and gave us treats to save everyone the awkwardness. After we ran our costumed social pressure stick-up, we decided to take advantage of our grown 17-ness to meander into some deserted part of town, leaving the general paths of children and parents. We walked off the neighborhood streets, on the old grassless stretches of land and into the untrimmed areas past unfenced backyards where parties stayed warm by fire pits. Through a little bushel of trees preserved for the dwindling property value of the area, to the green grass field with obtrusive metal bars on rough gravel and stones not 20 feet from the tree line. Like a river of metal and rock forcing the nature around to shift and sweep away. That scenery was perhaps not as melancholy that day as it is now. 
+I passed the sack of groceries to Athena and approached the kid. When I got close I squatted down to get a better look at him but what I got instead was a better smell. 
 
-"So what do we do now?" asked Maxine, who was the one leading us the whole way. Her half-face white mask is slipping, she was the phantom from POTO.
+What the fuck was that? It fucking smelled like.... radish juice. "Hey little man. 
 
-"Photos?" offered Lucas, he was a white beard wizard in a pink bath robe, which was probably his and not his moms.
+What are you doing out here all by yourself?" Silence. I scratched my head. "Don't wanna say? That's okay. Is this your apartment here?" Without looking at me the kid nodded once. 
 
-"I dunno" replied Andrea, in a red dress with fake, waxy sharp teeth, Carmilla, she had explained.
+I could see his hair was matted with what looked like more of the radish juice. "Athena. Go inside. I got this." Athena wrinkled her nose at me. She nodded once and disappeared into the apartment. 
 
-"what else do you guys wanna do?" I asked
+"My name's Ernie kid. What's yours?" 
 
-"Im good for anything" assured Maxi
+I asked offering my hand. The kid finally decided to eyeball me. 
 
-"Yeah, same" came from Andrea
+His sad blue eyes met mine then traveled down my face to my outstretched hand. 
 
-"So like what?" I asked again
+"Iggy." Iggy shook my hand. He had noticeably big hands and a pretty good grip for a little kid. His hands were sticky with what I detected to be more radish juice. 
 
-...
+"Is anybody home?" Iggy nodded his head a bit. "So why don't you go inside?" Iggy looked at his feet. They too were covered in radish juice. I fucking hate radishes and just who the fuck would turn them into juice anyway I wondered. 
 
-"ehhh" we all said in one way or another
+I needed a fucking cigarette. "You mind if I keep you company for a bit?" Iggy shrugged his shoulders. I fished a cigarette out of a pack and got it lit. 
 
-That stupid conversation was probably the preamble to most of our little adventures around town, usually ending with one of us getting a "where are you" text from a mom or dad and all of us deciding to head home. On the way back we acted like our parents worrying was the most annoying behavior possible, hiding the hint of nervousness that we had truly upset them. We were idiots, plainly, loud and obnoxious, thinking the whole world was watching the enthralling suburban lives of 4 teenagers. Maybe we knew we were just like any other group of kids growing up in a mid-way town, thinking we would rule the world once we managed a way out of it. Maybe that's just a part of growing up, I wish I was certain. I wish I could know what would have become of us if we had all survived.
+The smoke tamped down the radish juice smell a bit and I blew out a big plume of smoke trying to figure out what my next move would be. 
 
-In our drawling, we decided to sit and break open our candy stashes. Lucas tried trading salted almond packets for skittles, thinking he could con that from anyone. Out of pity, Andrea threw a taffy at his head.
+It was kinda chilly in the hallway and I couldn't just leave the kid out here in his underoos. Plus I confess to being more than a little curious as to what this kid's deal was anyway. "Okay Iggy. I'm gonna ring your bell and see what's going on here, okay?" 
 
-"Ow" He deadpanned, "why didn't I get anything good?"
+Iggy flinched. "Don't worry Iggy. It'll be okay." I rang the bell. Nothing. I counted to ten and then rang it again. Nothing. I sighed. I thought I could hear a television playing inside. 
 
-"because you look like a flamingo"
+This time I held the bell for a while. Nothing. Then I held it and I didn't let up. About two minutes passed with the bell buzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzing. 
 
-"and It's illegal to feed flamingos"
+"YOU JUST FUCKING STAY OUT THERE YOU LITTLE FUCK FACE IF YOU KNOW WHAT'S GOOD FOR YOU!!!!!" 
 
-"endangered species"
+Oh ho. It speaks. And oh so eloquently I might add. This time I started knocking with the side of my fist. Another minute went by and suddenly the door flung open revealing a rather crazed looking woman in her early 30s with a face covered in what I assumed was avocado. 
 
-We threw a few more strawberry flavors into his bag, it was his favorite
+She had a hammer in her hand. I stepped back. I felt Iggy's hand on my back. The crazy lady's hands were red with the same radish juice that covered Iggy. 
 
-We sat for a time until we heard a faint wail from the left of the tracks, past a small bend, where we couldn't see what was coming. The scream sounded a mix of air passing through small metal passages and the real, vile noise of a living thing. Just as needle points of light came through the leaves, in the creeping darkness a deer came into our vision. It sprinted along the tracts, head whipping around at all angles while its legs continued to move it straight ahead. Its body seemed forced between the 2 lines of metal, its neck at one point cranked back enough to reach the curve of his back, a horrible gutting hook. Then its head pulled far to the side, its mouth hanging open, slanted and slack. It kept running.
+"Excuse me. My name is Ernest. I just moved in next door and I noticed Iggy here having what appears to be a less than stellar afternoon." 
 
-I looked to Maxi as Andrea backed behind us. Lucas reached down for something heavy, a rock or a stick, but never took his eyes off the poor creature. As the erratic beast followed the tracks, we stood stunned as the deer rushed forwards. It passed the center of our vision, its neck craned a 90 degrees to look at us head on. It stood frozen, and I heard the whistle again. The lights of an approaching machine mangled our shadows. A train rushed down the metal path, its pace middling but unrelenting. It reaching the deer. Catching it's back legs, the force turning it onto its back as its front feet swung for half a second before they folded down to its body, breaking into more pieces of flesh that sprayed through the air as warm spittles of the immolated creature. The train seemed to stop. 
+The crazy lady's face pinched and puckered. She tried to glare at Iggy behind me. I could hear Iggy's breathing quicken. 
 
-I heard Maxi wail as the gore reached us, feeling the stickiness cool, tacking us to the ground in the shock of what had happened. After wiping my face I looked ahead, but the train had disappeared, passing the next bunch of trees, faster than it should have, without a trace of light or sound. It hadn't made sense, it'd seemed like it was near dead stopped a moment ago.
+"He's been a very bad boy and he's punished!" "Uh, is Iggy's dad around by any chance?" The crazy lady's crazy dial suddenly redlined. "Who?!?!? The sperm donor?!?!? He's even worse!" "Yeah but-" "Look mister whatever your name is, Iggy's punished and he is a very bad boy and that - is - that!" The door slammed in my face. 
 
-In the absence of the train, we managed our senses and looked from one and another, silently turning back, we took off into a run. Out of bewilderment of what had happened, sure any time animals get hit by trains, but why was it acting like that? Maybe it was just the rabid behavior of a scared deer either way, it was dark and terrifying, so we kept running. Past a short stint of grass, into the thicket of trees, I heard our heavy breathing and stomping feet. I heard a candy bad sloshing in Maxi's hand, she wasn't in a head space to notice she was carrying it. Near the end of the border of trees, the trunks closed in on us forcing us closer, I felt Lucas's hand reach forward to me, out of fear or need, trying to hold onto mine. I felt the tackiness of what I could imagine was the franticly wiped of blood from the animal, but a second later in my weak grip, I felt his hand let go. I didn't hear him fall, but I remember now the absent fourth pair of footsteps for a final minutes of our run. At that time I probably didn't even notice him missing, and even now I can't be sure what triggered his action in the minutes after. Yet I still wonder if in those seconds of silence where i'm sure he lay on the ground seeing our flagrant retreat, if I had turned back to hold the hand of my friend, he may not have suffered such underserved cruelty as what taken him as the effect of my abandonment.
+I looked at Iggy. He studied his feet. From inside the crazy lady's apartment I heard her scream, "very bad bad boy!!!!!!!" "Iggy. Wait here a just a sec." I poked my head in my apartment and almost head butted Athena. 
 
-When we breached the other side of the tree's, ran through the unkempt grass, and smelt the first smoke of put out fires, we looked at each other frantically. 
+Eavesdrop much? Athena gave me a look that said, "Well?????" "Guess who's coming to dinner?" 
 
-"wheres Lucas?" Andrea voice strung out, hoarse and heavy
+I said flashing my pearly whites. Suddenly Roy, my golden retriever blew past me from nowhere, hauling ass out of the apartment and almost knocked Iggy over. 
 
-"He- I think he fell" I answered looking back to the trees peeking out from a distance.
+He started whining and whimpering and then collapsed at Iggy's feet, rolling over on his back and pissing all over his furry chest. 
 
-"Did he get up, we should be able to see him even if he's far behind" Maxi panicked at her own reasoning. 
+Iggy looked down at Roy and I could swear he almost smiled. Well that cinches it. It was about an hour later and Iggy was sitting on my couch in a pair of Athena's shorts and a Public Enemy vintage tee; all traces of radish juice and tears gone with the wind. 
 
-Looking at the two of them and weighing our options, the memory of his hand kept playing in my head, in some way I knew something had happened, and against my own judgment I told the two of them to wait while I would go back just a few paces to look out for him. I knew he wouldn't be there, and I knew I wasn't going to turn back once it was certain he hadn't made it out of the trees. It was some odd, set notion that something had happened, a shift in the miasma of the Earth that I could not erase, but had to stand witness of. So I caught my breath and ran back for him. I ran into the trees, through the dark trunks of basswood and elm, I saw again, the bright strands of light making its way from the right. I heard the faint whistling again, but it was purely mechanical, the wailing of an old, worn machine that would not break down just yet, that would finish its work today. 
+The kid cleaned up good. Roy was laying down with his head in Iggy's lap and Iggy was petting Roy's head. Suddenly I heard a shrill voice screech, "a VERRRRY VERRRRRY BAAAAD BOY!!!!" 
 
-When I was closer to the other side of the trees, I saw Lucas standing at the edge of the woods, two steps past where the visible roots ended. In the shadow of the light beams, coming from a train I knew was approaching but for some reason could not yet see, I saw his head turn towards me. Upon seeing me, he turned away, and I felt a great call to come up and join him, not to stop whatever was about to happen but to go with him. Just as I went to move, I felt the great shadow of the tree line weight down on me bidding I stay put. Some overarching force that was not stopping me, but filled me with dread at the possibility of passing its confines. I saw Lucas try to run, but it was slow and dreadful. One of his legs kept twisting and turning, his shoulders were jerking this and that way, his other foot was bend so low it made him appear inches shorter than he was, it stooped in this unnatural way as it to stamp itself into the ground, as if to stop its movements. It was then I realized, in the background of what was afflicting my friend, that there was a train coming through the tracks. 
+Roy let out a low growl. Iggy stiffened. Athena wrinkled her nose at me. 
 
-I yelled for him, as his foot dragged on the gravel. I stepped into the plain grass, away from the safety of the trees. I called for his name again, a piercing call through the atmosphere of inevitable tragedy, a reaction of complete abandonment I hoped would do anything at all. Then, he looked back, some form of conciseness in his posture, his figure curling into itself in pain. 
+I looked out the window and I could see the avocado bitch standing topless in her kitchen. She had a butcher knife in her hand and she was screaming at somebody who wasn't there that somebody was a, "very very verrrreee baaad boy". 
 
-I saw him take one foot of the tract to escape, but the train caught his other leg, mutilating his foot and shin, his whole body twisted as he came under the machine. Forcing him onto his stomach with his one leg jerking in inane reaction from the trauma being done to his body. He was splayed out in this flailing, raggish way, a horrible, vile final resting as the train passed over his body, unequivocally erasing the traces of my friend from this world. Left behind was the mangled innards and bone and gore indicative of any human or animal, and the bag of candy filled with salty almonds and strawberry taffy to remember him by.
+Suddenly she turned to look out the kitchen window. Our eyes met. Foam leaked out her pursed lips onto her green chin. 
 
-It's been a few years since that incident and It would be a great ending to say that we all continued our lives in stoic infallibility, showing the springing resilience of childhood, but we never did. Our lives stopped when he died, Andrea never spoke to us again, it had been her idea to out for Halloween, Maxi told us, after the funeral, that she couldn't stand the questioning looks from different people around the town, whispering that we had done it, or prodding the reason for his "suicide". They never believed what we said. For my part, I pretended to stay the same, hoping I would forget or misremember what I saw. I hoped I could purposefully delude myself, if I never changed, never got older, I would never notice that Lucas wasn't there growing older with me.
+She looked not unlike an epileptic she-hulk. Then she pulled her curtains closed and was gone from sight. Roy looked up at me. Athena wrinkled her nose some more. Iggy stared at Roy's head and kept petting him. 
+
+I smoked another cigarette and decided I needed to take action. So I picked up the phone and ordered a large pie with pepperoni and mushrooms. About forty minutes later Roy, Ernie, Athena and I were eating pepperoni pizza when there was a banging on the door. OPEN UP!! THIS IS THE PO-LEEEECE!!!! This was followed up by, "A VERRRRY VERRRRRY VERRRRRRRRRRY BAD BOY!!!!!!" 
+
+Roy growled. I stood up. Athena wrinkled her nose. Iggy studied a piece of pepperoni on his plate. The banging on my front door intensified. 
+
+I opened the door. Before I could say anything a cop punched me in the face and then tackled me to the floor. I heard Athena scream, "Ernie!" 
+
+And then things got kind of blurry. First I felt the cold metal of a gun jam into my neck. Then a knee dig into my back. "Stay down you fucking pedophile scumbag!" Suddenly the cop was off my back. 
+
+His scream filled the apartment, echoing throughout its length. This was punctuated by a gunshot. Plaster from my ceiling rained down on me. 
+
+A geyser of hot blood sprayed my face. I rolled over to see Roy's teeth shredding the cop's throat to uneven ribbons. 
+
+Roy's red eyes were rolled up in his head and his teeth were making a gnashing sound. Out of my peripheral vision I saw the dead cop's partner draw on Roy. I rolled over kicking him in the shin hard as I could. Iggy!!!! YOu've BeeEEEEN a VERRRRRRRRREEEEEEEEEEEE BAAAAAAAD BOY!!! 
+
+Suddenly the full weight of avocado lady was on my chest. She held a butcher knife and didn't look like she had pepperoni pizza on her mind. I tried to grab her wrist. My bloody hand slipped and I felt the knife slice my forearm. 
+
+Then I got kicked in the head by the other cop, the one who wasn't dead. Athena screamed again. Roy sunk his teeth in the cop's pants before he could kick me again. The cop dropped his gun howling with agony. Blood spurted from his leg. 
+
+I looked up in time to see crazy avocado lady raising the butcher knife high over her head. She held it with both hands. 
+
+Verrry bad. Verrry verrrrry verrrry bad boyyyyy I tried to scramble away; my hands slipping, failing to gain any purchase on the bloody parquet. 
+
+BAM BAM BAM BAM BAM BAM Avocado lady collapsed on me in a heap mumbling, "verrrry baaad..." a few times and then, just for variety, she followed it up with a hissing sound. 
+
+The knife fell from her hands with a splash into one of the blood puddles. It seemed avocado lady was deader than disco. Like a tree in the forest the other cop fell face first on his dead partner. I couldn't help noticing that half of said face was missing. 
+
+Roy ran over and licked my bloody face whimpering. Roy boy's breath smelled like pepperoni, mushroom and death. 
+
+I looked up. Iggy came into focus standing over me in my Public Enemy tee shirt; the dead cop's gun still smoking in his hand. The apartment still reverberated with the sound of the gunshots. 
+
+Athena rushed to help me to my feet. I thought I could make out sirens approaching in the distance. I took the gun from Iggy's hands. They were steady as Chachi and Joanie. 
+
+Athena looked at me and wrinkled her nose. "How do you figure we're gonna explain this one Ernie?" I looked at Iggy and wiped some bloody avocado and plaster from my mouth with the back of my hand. 
+
+Roy had taken a seat at Iggy's feet. Iggy scratched Roy behind the ear absentmindedly. Then Iggy's blue eyes flashed bright. He gave a single shrug. 
+
+"Just tell them I've been a very very bad boy?"
