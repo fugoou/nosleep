@@ -1,220 +1,846 @@
-# My Vision Is Blurry, And I Am Scared Of What Lies In The Periphery.
-To whoever finds this, please don't look for me. My name is Jessenia and I no longer live here.
+# I Took a Late-Night Cleaning Gig. Someone Turned the Building Into a Trap.
+I took the job because it was cash, same week, no questions.
 
-I saw a little boy across the road next to where I live. He was standing at the tree line near the forest with his back turned to me. It was a little eerie for how long he stood there, but as a mother myself, I couldn't help but grow concern for his well being. Was he lost? And if he was, how could his mother be so careless to just let him wonder off like that? Then, after taking only a brief step in his general direction, he began to walk down a slope towards the forest.
+That’s the kind of job you say yes to when rent is due and your main client just “paused services” like that’s not the same thing as firing you.
 
-"Hey little boy!" I called out to him, awkwardly trying to keep the giant bag of food I had just gotten from the food bank from falling out of my arms as I crossed the street. "Hey, where's your mommy?" He didn't respond, but just kept walking further and further down the slope. He was getting to the point where I could barely see the top of his head. I quickened my pace to catch up to him, but he disappeared out of my line of sight for a couple of seconds.
+The listing was through a temp staffing app, the kind with a vague thumbnail of a mop bucket and the promise of after-hours commercial cleaning. The address was a glass office building on the edge of an industrial park, one of those places that looks busy during the day and looks like a dead aquarium at night.
 
-"Hey wait-" suddenly, as I had stepped onto the sidewalk, I had regained my vision on him. However, I noticed he was very deep into the woods. I'm not a scientist or whatever, but even if he had slid down this slope, for one, there's no way he would look as clean as he did with all the rain, mud and dirt he'd have splashed around in. And two, I was basically running across the street. It only took me like 5 seconds to get there and he was only out of my sight for maybe 2 or 3 seconds. The distance he had travelled looked like it would have taken at least 20 seconds. And that's if you were running.
+The message said: Arrive 8:30 PM. Ask for Trent. Bring supplies if possible.
 
-I watched a lot of horror movies growing up. I always hated the idea of being in any horror situation. And at that moment, I knew I was in a spot where if I go down that slope, I may not be coming back up. Mi abuela and I are very religious and we had a fascination with the supernatural when I was a little girl, but I never did anything weird. I didn't draw demonic symbols, I always kept a bible near me and I always prayed to god every night before going to sleep. I'll admit, I should have probably kept doing that last part.
+I showed up at 8:24, because being late is the fastest way to lose a job like this, and the building parking lot was empty in a way that made my headlights feel rude. The only cars were a row of dusty fleet vehicles along the far fence. No security guard booth. No gate arm. Just a tall lobby with an auto-locking glass door and a directory board that had too many company names crammed into it.
 
-I can't go down there. Everything is telling me not to go down there. It just doesn't feel right. But I also can't just leave him there. It's still raining really hard and if I abandon him, he could catch a cold or worse. After thinking for a good minute, I had a much better idea. I set my groceries down and adjusted my glasses, pulling out my cellphone to call 911.
+Inside, the air smelled like cold tile and that lemon disinfectant every office uses to pretend it’s clean.
 
-"911, what's your emergency?"
+I stopped by the directory board to confirm I was in the right place and my phone lit up in my hand, not a call, just one of those “memory” notifications your phone throws at you like it’s doing you a favor.
 
-"Yes hi, my name's Jessenia" I answered, pacing back and forth worriedly. "I'm by my apartment complex and there's a little boy who looks like he's lost in the forest. Can someone come down and help him?"
+A thread preview.
 
-"Absolutely. Can we please get the address to where you're calling from?"
+A name.
 
-"Yes, thank you so much. I'm at East Holmes Apartments and my address is-"
+Kayla.
 
-The call ended. I looked at my phone. It was fully charged. Maybe I'm just getting bad service because of the rain? I don't know how cellphones work, but I tried calling them again. After it rang once or twice, it just hung up again.
+My thumb hovered over it like I was going to open it, like I was going to do something brave and stupid and emotional right there in a lobby that wasn’t even mine.
 
-*There's no way they're actually hanging up on me. I literally just told them about a little boy lost in the woods... This is an emergency for goodness sake!* I thought to myself. I shoved my phone back into my pocket and looked down to where the boy was at. He was still standing there.
+I didn’t. I swiped it away. The screen went dark. I put the phone back in my pocket and told myself I would deal with it later.
 
-I brought my finger to my lips and started chewing on it anxiously, looking around for someone, anyone to help. I DON'T want to go down there, but I can't live with myself if this is actually just a little boy who needs help. I kicked my foot down onto the pavement like a frustrated horse.
+A man met me at the inner door with a lanyard and a key ring that looked too heavy for his belt. Late thirties maybe. Clean haircut. Polished shoes. Smile that didn’t touch his eyes.
 
-"Alright, DON'T MOVE! I'm coming down!"
+“You here for cleaning?” he asked.
 
-I really, REALLY regret doing this.
+“Yeah. Matt,” I said, because it’s automatic. You introduce yourself. That’s normal.
 
-I tried to balance myself as I took careful steps down the slope, occasionally sliding on the grass, fallen leaves and sticks a little, semi-surfing my way down before getting my footing back. I really didn't want my dress to get dirty, let alone fall all the way down and break something.
+He didn’t offer a name back. Just looked at the rolling tote behind me.
 
-As I finally reached the solid, flat ground near the edge of the forest, I noticed he still hadn't moved at all. And now that I got a closer look at him, I could make out his details a little better. He had black hair and a bowl haircut, wearing blue suspenders over a brown long sleeve shirt. From what I could judge, he didn't seem to be more than maybe 8 or 9 years old and he looked fairly pale from what I could see.
+“You bring your own stuff. Good.” He pulled a clipboard from under his arm and handed it over. “Fourth floor. West wing. Two suites. Bathrooms. Break area. Trash and vacuum. Standard. They’re picky, so don’t miss corners.”
 
-I walked cautiously into the forest, with slow steady steps, barely even a few inches inside as I called out to him. "Hey... Let's go find your mommy... ok?" He gave no response. "I'm sure she's..." And as I got closer to him, "... worried..."
+The paper was a generic checklist with boxes and little empty lines for notes. No company header. No signature line. At the bottom it said: Once finished, return supplies to lobby and exit. Do not prop doors open.
 
-He walked further into the forest.
+“Trent?” I asked, because the message told me to ask for Trent.
 
-Nope.
+He blinked once, slow. “That’s me.”
 
-I turned myself around, ready to run full sprint, but the forests edge was no longer there. Instead, a giant dark tree had appeared in my way, with more trees that stretched for what looked like miles. They were all dark and mangled. Some had leaves that looked like they were rotting for years, some had no leaves at all but the tips of the branches looked shriveled with decay. I took a few steps back, stopping myself with a small jump when I remembered the boy was still behind me.
+It didn’t fit him, but whatever. People lie about their names in apps all the time.
 
-I only turned my head just enough to see him in my periphery. I couldn't tell what he was doing, only that I knew he was getting closer. And while that was a terrifying thing to notice, there was something even worse.
+He pointed me toward the elevators. “You can use service. Far left. Just don’t wander. Building’s under renovation. Some floors are… unsafe.”
 
-I couldn't hear him. I couldn't hear the twigs on the ground snapping from his footsteps. I couldn't hear his clothes rubbing together. I couldn't even hear him breathing. But I KNEW he was getting closer.
+That word landed heavy.
 
-Tears were welling up in my eyes. I shut them tight, squeezing my arms straight down into my sides, trying to keep them as stiff as possible. I couldn't help but feel them trembling as my hands clenched to the point where I think I almost made my palms bleed. I muttered a prayer and shook my head, hoping this was just some sort of bad dream. Suddenly, I finally heard something. It was a light breeze that tickled my nose.
+Unsafe.
 
-I opened my eyes and he was in front of me. His body was facing me but his head looked like it didn't change direction at all. Like the back of his head I saw earlier was now facing me, despite his body facing forward. His head started shaking, almost twitching as it leaned down towards me.
+Not closed or under construction. Unsafe like it was alive.
 
-Then out of nowhere, a black spray of mist shot out of his head. It was so strong that it had knocked my glasses off and shot straight into my eyes. I fell backwards and cried out, desperately wiping my face of the black liquid as I kicked myself away from him.
+I pushed my cart toward the service elevator, wheels squeaking on the tile. As I passed the lobby desk, I noticed the security monitors were on, but the screens were showing a loop of the lobby at different angles. There was nobody behind the desk. A plastic plant in a corner that had dust on it thick enough to write your name.
 
-Everything was black for so long. It stung to the point where it felt like my pupils were somehow separating from my eyes entirely, like they were about to slide off. I screamed louder as I realized there was no way to get it out. It just stung deeper and deeper into me. It felt like a knife was cutting right down the middle, trying to split my eye in two.
+I also noticed something else I didn’t pay enough attention to then: a gray metal box mounted near the main doors with a bundle of conduit running up into the ceiling. A little red LED on the box blinked slow and steady like a heartbeat.
 
-I was struggling for minutes before I could finally open my eyes. I reached out around me and felt my glasses. They were covered in the black liquid and dirt, but I frantically tried to put them on regardless, wiping what I could get off as I slid them onto my face. This was a mistake.
+Mag-lock relay, I thought absently. The kind offices use so doors can lock down when they want them to.
 
-I should have just got up and ran. I shouldn't have put them on. When I did, I saw the little boy in front of me, shaking and contorting into something else. Long, black, sludge-like limbs were bursting out of his ribs, legs and other parts of his body. What made this horrifying was the fact that I couldn't see him clearly.
+I took the service elevator up, alone, listening to the hum of fluorescent lights. Fourth floor. Doors opened to a hallway that looked like any corporate hallway except it was too quiet. No AC rumble. No distant conversation. Just the soft, constant sound of my own cart rolling.
 
-Now when I say I couldn't see him clearly, you'd think 'well of course you can't, there's probably way too much dirt and gunk on your glasses!' But despite the dirt and grime that coated them, I could make out the trees perfectly. I could see the details within the branches and the leaves, the rocks and twigs on the ground, everything around was in perfectly visible and in focus.
+The west wing suite doors were already unlocked.
 
-Except for that thing. No matter how hard I tried to focus on it, it remained blurry.
+Suite 4W1 first. Big open office. Rows of desks. A few framed posters about teamwork. A sad little kitchen nook with a Keurig and a stack of paper cups. The carpet had those dark traffic paths where chairs roll and people pace on phone calls.
 
-And it was getting closer.
+I started working.
 
-I crawled and stumbled to my feet, tripping over myself, crying out into the forest for anyone to help.
+There’s a rhythm to cleaning that can turn your brain off if you let it. Trash first. Big stuff. Then wipe-down. Then vacuum. Bathrooms last because they’re always the worst.
 
-I brushed past the branches, bleeding from each limb as they scratched into me. I leaped over the fallen dead trees, only getting partially stuck in some mud as I tried to get away. I thought I was seeing faces in the trees, twisted and misshaped. I could have sworn on the lord almighty himself that some of them even had eyes. This place was the devils work.
+I kept expecting to hear a door open somewhere. A security guard doing rounds. Another cleaner. Someone. Anything.
 
-Looking back, I may have only been running half a mile or so, but time made it feel like I was crossing a whole continent. I know I shouldn't have been able to get out, but god must have been watching me from above. I was begging in his name to save me. To guide me towards a light. And he did.
+Nothing.
 
-My feet slipped on the wet grass as I fell face first into the slope I had climbed down on. I didn't look back. I gripped the grass and dirt to the point where some felt like they were shoved deep into my nails, clawing with all my might to pull myself all the way up to the top of the slope. I grabbed my bag of groceries and ran across the street to my apartment and locked everything.
+I cleaned two bathrooms that looked like nobody had used them in a week. The mirrors were spotless, which should have been a relief, but it made me feel like I was in a staged room. Like the building was dressed up for me.
 
-I didn't sleep at all that night.
+I moved into the second suite and found the break area had a fridge with a sticky note that said DO NOT UNPLUG in thick marker. Someone had underlined it twice.
 
-"NO! YOU HUNG UP ON ME!" I screamed at the officer in front of me.
+I didn’t touch the fridge. I wiped the counters. I emptied trash. I tried to stay inside the little world of the checklist.
 
-After spending almost the entire next day rocking myself back and forth, occasionally pacing to try and put together in my mind what the heck that thing was, I had finally pulled myself together just enough to turn my fear into a different emotion. Pure anger.
+Around 10:15, I ran out of trash liners and disinfectant wipes.
 
-What were they even doing!? I had thought to myself. They're the police for heavens sake! Why did I have to risk MY LIFE just because THEY didn't feel like calling me back!?
+I’d brought a small stash in the van. I told myself I’d grab them quick, then come right back. Ten minutes. No big deal.
 
-These thoughts kept brewing in my head and I must admit, the things I had wished for them were pretty unchristian-like. But I mean, it WAS their fault. They should be held accountable and at the very least, send someone down there to figure out what's even going on. I mean, what if another person goes into the forest? What if they get lost and don't make it out like I barely did? I furiously marched down to the police department and when I reached the front desk, I let them have it.
+I rode the elevator down to the lobby and pushed through the glass doors into the parking lot.
 
-"WHY WOULD YOU GUYS THINK I'D EVEN HANG UP ON YOU IN AN EMERGENCY LIKE THAT!?" The officer didn't look up at me, no matter how much I screamed at him.
+The night air hit me like a slap, colder than it had any right to be. The industrial park beyond the lot was silent. Not even distant traffic.
 
-"Ma'am, our department takes each call very seriously with care and concern," the officer said in a monotone voice as he wrote on a piece of paper. He wouldn't even look me in the eye. "If the line was disconnected in anyway, you need to take this up with your current provider-"
+My van was parked where I left it, under a light pole that flickered faintly like it couldn’t decide if it wanted to work. I jogged over and yanked the side door handle.
 
-"You know what," I interrupted, "I don't EVEN CARE about the line disconnecting. I'm more upset that you guys didn't even send anyone! Can't you guys like trace calls to their locations and stuff!?"
+Locked.
 
-He leaned back in his chair and sighed, bringing his hands to the back of his head. He was looking up at the ceiling for a moment before slowly meeting my gaze. I pivoted my stance, placing a hand on my hip as I stared him down. Why did it seem like he was being so hostile?
+I stared at it for a second, confused, then checked my pockets. Keys. Right pocket. I pulled them out and clicked unlock.
 
-His cheek twitched as he cleared is throat awkwardly. "Ma'am, I'm trying my best to be reason-"
+Nothing.
 
-"Look," I interrupted. I was getting so worked up that my eyes were starting to water. "There's something bad out there... and if anyone happens to walk by that forest..." I brushed my hair out of my face, trying very hard to keep my composure. "Just..."
+No beep. No flash.
 
-He looked down for a moment. Then right back up and me and let out a long, defeated sighed. "Alright ma'am. I'll send someone to check the tree line later today." He reached for his pen and pulled out his notepad. "Can you tell me where this took place?"
+I tried again. Again.
 
-I sniffled as I wiped my eyes. "Are you actually going to send someone this time?"
+Still nothing.
 
-He nodded.
+My key fob battery was fine. I’d replaced it recently. I pressed lock, then unlock, then held it down. Nothing.
 
-"Alright," I continued, "I live at East Holmes Apartments. The fores-"
+I stepped closer and looked through the driver’s window.
 
-He let out a small cough. Then he coughed again as if he was choking on something. However, the look on his face made it seem like he was about to shout something and held it back, forcing out a wheezing, dry cough instead. I leaned forward a bit. Just as I was about to ask him if he was ok, he raised his hand up.
+The interior light was off. The steering wheel cover was still there. My water bottle was in the cup holder. Everything looked normal except the dashboard had a faint green glow.
 
-"Hold on," he wheezed, then took a deep inhale and exhale. "I-I just remembered... I need to make a quick call to someone... Just one second."
+My phone, sitting in the little dash mount, was lit.
 
-I raised my eyebrow, then backed up to give him space since he was still coughing a little. He got up and made his way to the back room where he closed the door behind him. I stood there for a little, looking back and forth to see if anyone was around. Then, mischievously, I walked around the desk and just barely close to the window. Fortunately, despite a drawn down curtain covering most of the window to the room, there was just a small enough crack that I could kind of make out what was going on.
+Not lit like a notification. Lit like the screen was on and showing something.
 
-He made his way over to a desk and reached underneath it. What he pulled out was a phone. Not a cellphone, not even a modern day landline phone, but a vintage phone you'd see from... I don't know, maybe like the 30's or something?
+I leaned in, cupped my hands against the glass, and squinted.
 
-He put his finger in each one of those weird hole things and pulled them across, dialing a long set of numbers. He held it to his ear for a while before he started speaking. It was hard to hear anything, but from what I could make out when I tried to read his muffled lips, I think this is what he said.
+It was a photo.
 
-"Yes, this is officer Rick..." It was so hard to hear. I think he gave out his whole name and badge number before continuing. "East Holmes sir... A woman... Close to her mid 30's..."
+A photo of me.
 
-*I'm only 28, pendejo*, I thought to myself.
+Not a selfie. Not a random picture from my camera roll. A clean, centered shot of me walking across the parking lot toward the building earlier, my tote rolling behind me. Taken from an elevated angle, like from a camera on the light pole.
 
-"... -e step in?... -ear (something?) forest... No, where (division?) 7 was-... "
+My throat went tight.
 
-I was getting really uncomfortable with this. I wrapped my arms around myself nervously as I tried to keep listening in. It was so hard to make out, but it sounded like just a bunch of confirmations and permission requests at this point.
+I tried the door again, harder, like forcing it would make reality behave.
 
-"... Alright... Will do, sir..." He hung up the phone, put it back under the desk and made his way out of the room. I had darted back in front of the desk by the time he had put the phone away and stood there as nonchalant as I could be. When he got out, I noticed he was much taller then I expected him to be and his whole persona had changed. He didn't look like the same disinterested man that had to deal with customer service anymore. Instead, he looked like he was ready to give me a warning. Like a parent catching a child doing something wrong.
+Locked.
 
-"Everything is under control, ma'am." He now spoke in a more direct, stern tone. "We will be looking into the matter shortly."
+I stepped back, eyes darting, looking for the obvious explanation. A prank. Some security system glitch. Trent messing with me for laughs.
 
-I dropped my arms down. "That's it then? Are you gonna send anyon-"
+“Hello?” I called, loud enough to sound stupid in the empty lot.
 
-"We will be looking into the matter shortly." He spoke almost with a growl this time.
+No answer.
 
-He picked up his notepad and tucked it into his top pocket. "We recommend you go home. You have a good day, ma'am."
+Then I noticed the building doors.
 
-I wanted to say something to him, but as I was trying to figure out the words to say, he straight up just walked away, back into room.
+The main glass doors.
 
-I can't believe what just happened. I made my way back to my apartment frustrated, confused and even more worried then I was before. Are they really sending someone or did they just write me off? And what's with that phone? Why do they need an old landline to talk to their superiors?
+They were shut like before, but the small green access light by the handle was off now. No glow. No swipe indicator.
 
-When I got back home, I dropped my keys onto the table in front of the couch and went over to feed my fish. They were probably really hungry since I had been out for awhile and completely forgot to feed them this morning. I should probably mention that my son wasn't home at the time when all of this happened (Thank the lord). I had dropped him off at my mom's place for the time being so that I could finish wrapping some early Christmas presents I had gotten him a few weeks before. He had a knack for sneaking into places where he shouldn't and it totally ruined the surprise last year. Not this time, mijo.
+I walked up and tried the handle.
 
-I didn't know what the police were going to do, but I hoped and prayed they would do something soon. There wasn't much else I could do on this matter, so I made myself a nice bowl of soup, sat down on my comfy couch and put on a new movie that had just dropped on one of my favorite streaming services. It was a horror movie.
+It didn’t budge.
 
-I know, I know. I literally just barely survived my own real life horror movie. But I had been waiting for this one for so long that everything in me told me that I NEEDED to watch this NOW. Plus, something about watching people making dumb decisions in horror films made me feel a little better about myself. Don't judge me.
+I pulled. Then pushed. Then pulled again, harder.
 
-An hour had passed and I was on to my second bowl of soup. The movie was getting really good, really tense. But something felt off inside of me. I felt tired, yet strangely awake? I thought maybe the soup from the food bank was just bad this time, but I couldn't shake the feeling that something else was going on.
+Nothing.
 
-I laid back on my couch to get comfortable, still intently watching the movie when I noticed my vision was going in and out a little. I shook my head and managed to regain my focus on the tv. Maybe it's food poisoning? Then something caught my attention out of the corner of my eye.
+The door didn’t flex. It felt like it was welded to the frame.
 
-There's a light in the hallway that partially reflects off of my fish tank. It usually doesn't reveal that much other then the light source, a walk in closet at the end of the hall and some clothes that I lazily kept in a pile on the floor.
+I stepped back and looked at the lobby through the glass. Same empty desk. Same looped security monitors.
 
-But for a brief moment though, I could have sworn I saw a figure standing just outside of my periphery, also reflecting off of the fish tank.
+But now, taped to the inside of the door at eye level, there was a sheet of printer paper that hadn’t been there when I came out.
 
-I wish the movie wasn't as good as it was. It was getting really scary. But now, with my anxiety telling me there was potentially something looming over me, my eyes started to shift just slightly back and forth, unable to make a decision on where I should be looking. Why did my mind have to play tricks on me right at the scariest part of the movie?
+It said, in neat black text:
 
-I laid there as stiff as I could be. I wanted to blink but thought that might be a bad idea. So I finally relented and shifted my eyes just a little bit to the fish tank. Not by much, just enough to see past the rim of my glasses. There wasn't anyone there. Praise. The. lord.
+DO NOT LEAVE.
 
-I closed my eyes and let out a long sigh of relief. I reached for the remote on my table but as I reopened my eyes, I thought I saw the figure again.
+I laughed once, sharp and involuntary, like my body was trying to reject the panic.
 
-But bigger in the reflection.
+“No,” I muttered, and turned toward the side entrance near the loading area.
 
-I froze again. I felt my lungs trying to draw in more air then I should be able to, just to keep up with my rapidly increasing heartbeat. I suppressed it as much as I could, trying to be as quiet as possible with each small breath I could take in. I don't know why, but the presence made it feel like if I started breathing any louder, it would rip into me in the most gruesome way just to silence me. I tried to shift my eyes just a little again, barely able to see once again outside my periphery.
+That door had a crash bar.
 
-It was there. Long, black, sludge-like limbs and what appeared to be crooked antlers sprouting from its head. Worst of all...
+The type that’s supposed to open even if everything else fails.
 
-It was twitching. And I couldn't hear it.
+I grabbed it with both hands and shoved.
 
-How did it know where I lived? How did it get in?
+It didn’t move.
 
-I couldn't hold my tears back. They streamed down my face as I tried to gently gasp in more air. I prayed in my head to make it go away. But then, as I felt like my prayer was long enough to write a novel, a terrible realization had come over me.
+Not “stuck.” Not “needs oil.”
 
-I really, really needed to blink.
+The bar had zero give, like it had been bolted from the inside.
 
-I fought with every ounce of strength not to, but the salty tears felt like they were stinging into me. Please lord, I prayed to myself, don't let me blink. Please...
+I shoved again, shoulder into it, and still nothing. The metal didn’t even clack.
 
-But I blinked.
+I ran my hands through my hair and pulled out my phone.
 
-Only for a moment.
+No service.
 
-And the figure that was reflecting off of the fish tank in my periphery was no longer there.
+Not one bar.
 
-But instead was now a mere few inches away from the side of my head.
+That made my stomach drop harder than the locked doors.
 
-Just barely outside my vision. Blurry and twitching.
+Because service doesn’t disappear in a parking lot like this. Even out here, you get something. A weak signal. Anything.
 
-I grabbed the blanket and immediately threw it on top of me as I curled up into a ball onto my side. There wasn't anything I could do. My breathing was out of control and if I didn't think of something quick, I felt like I was going to suffocate myself underneath this blanket long before it'd even try to harm me. Should I scream for help? Would the neighbors even hear me in time?
+I walked back toward the main entrance and pressed my face closer to the glass.
 
-Just then, I felt something touch my shoulder. I whimpered as it pressed down hard, digging what I felt I could best describe as muddy, cold talons into me. The cushions of my comfortable couch felt like they weren't pushing into me as hard anymore.
+The monitors behind the desk flickered.
 
-was pull me up slowly.
+For a split second, the looped lobby feeds vanished and one screen showed the parking lot.
 
-I was so terrified that when I tried to cry out, all that escaped me was a squeak of air. A mouse caught by a cat.
+It showed me.
 
-It doesn't make sense to me what happened next, but I thank you lord for watching over me. It pulled me up to the point where I was no longer on the couch, just hanging above with my blanket still over me. But then it stopped. Everything was silent. I was just hanging there in air for almost a minute before I heard something that sounded like... a small breeze. Then, out of nowhere, it just dropped me.
+Standing there with my cart and my tote like an idiot.
 
-I stayed perfectly still for a long, long time. I couldn't hear it before so I had no idea if it was still standing there. I shut my eyes tight and shuffled uncomfortably for a moment. I can't just lay here. I need to know if it's still there. But I was just so petrified with dread. It wants to kill me. So why didn't it do it already?
+The view was from inside the building, pointed out through the glass.
 
-I gathered myself as much as I could, breathing in as deep as my lungs would let me. Finally, I pulled the blanket off of me. I rolled off the couch, kicking myself up to run for the door away from the creature. But it was gone. Just gone.
+Then the screens snapped back to their loop.
 
-I stood in the middle of my apartment for a long while, trying to take everything in. I blinked before realizing my glasses had fallen off the moment I had thrown the blanket over myself. I picked them up and put them on as I turned on every light in the apartment.
+A quiet click came from somewhere above the doors.
 
-Even though all the lights were on, everything was blurry.
+A speaker.
 
-I tried readjusting my glasses.
+And the intercom, which I hadn’t noticed before because the lobby ceiling was too high and the lights too bright, crackled to life.
 
-Still blurry.
+“Matt,” a voice said.
 
-I hyperventilated and started to cry.
+My skin went cold.
 
-I still don't know for sure what happened, but I think it had stolen my vision from me.
+Not my full name. Just my first name, said like it belonged to someone else now.
 
-Later on in the week, I went to get new glasses but no matter what they prescribed me, after a few minutes, it would just get blurry again. I tried to be rational. Maybe the food from the food bank did this to me? I had been eating their supplies for a few weeks now. But my thoughts always went back to that creature and the liquid that it sprayed in my eyes. I just don't know.
+I backed up from the door like it had burned me.
 
-I can't tell you to this day why I still can't see, but I had decided to move back in with my family to save up money and find a better eye doctor for me. My brothers came to help me get all my stuff into a moving van and I now live with my mom again. She was kind enough to help me write all this out. To this day, it's still hard for me see anything. It's just so blurry all the time. I miss seeing the stars in the sky, the lake where the ducks would swim, the lights of the city, all the beautiful sights I had taken for granted. My sons face...
+“Who is this?” I called into the empty lot, because my brain was still trying to treat it like a normal situation. Like somebody would respond like a person.
 
-I have so many questions about everything, but the most important thing that matters to me is to get my vision back. I fear that if I don't, I might start seeing it again. If anyone else feels like they've seen something similar, do yourself a favor.
+The intercom didn’t answer my question.
 
-Run.
+“You wanted a job with no questions,” the voice said. “Now you’re going to answer one.”
 
-Get help.
+“I just clean,” I said. “Open the door. I’m leaving.”
 
-And don't look.
+The intercom crackled again.
 
-[Witness Account #1](https://www.reddit.com/r/nosleep/comments/1pn1ugn/never_go_to_east_holmes_apartments/)
+“Return inside.”
+
+The little gray box by the doors — the one with the blinking LED — made a soft, sharp sound, like a relay switching. The green access light blinked on.
+
+Then, slowly, the door unlatched with a mechanical clunk I could feel through the glass.
+
+I stared at it like it was a trap.
+
+Because it was.
+
+But the other part of my brain, the part that hates being stuck outside in the cold with no service and a locked van, pushed me forward.
+
+I grabbed my cart handle and stepped back into the lobby.
+
+The door shut behind me with a solid thunk.
+
+The latch engaged. I heard it. That heavy, final click.
+
+I turned immediately and grabbed the handle.
+
+It wouldn’t move.
+
+The access light was off again.
+
+The gray relay box clicked once more, neat and final.
+
+I spun toward the security desk.
+
+Still empty.
+
+But now there was an envelope on the counter. Plain white. My name printed on it in clean, block letters.
+
+MATT.
+
+I didn’t touch it for a second. My hands hovered over it like it might bite.
+
+Then the intercom clicked again, and the voice lowered, closer, like it knew exactly where I was standing.
+
+“Open it.”
+
+I looked up at the ceiling. “Is Trent doing this?” I asked. “Where is he?”
+
+No answer. Just that quiet, patient silence.
+
+I ripped the envelope open.
+
+Inside was a stack of glossy photos.
+
+Not printed on cheap office paper. Actual photo prints, like you’d pick up from a pharmacy.
+
+First photo: me arriving in the parking lot. My tote. My face turned toward the building.
+
+Second: me in the lobby, talking to Trent. That angle was from behind the directory board, low and close. Too close.
+
+Third: me in the service elevator, alone, looking down at my phone. Taken from above, like from a camera I didn’t notice.
+
+Fourth: me on the fourth floor, bent over a trash can. My shirt riding up slightly at the back. Under it, handwritten in red ink:
+
+WORKER.
+
+My stomach lurched.
+
+I flipped through them faster, trying to find the end, like the end would make it make sense.
+
+There were more.
+
+Me in the bathroom, washing my hands.
+
+Me wiping the counter in the break area.
+
+Me outside, tugging on the van handle.
+
+And the last one.
+
+Me, right now, in the lobby, holding the photos, looking up.
+
+The timestamp printed in the corner read 10:19 PM.
+
+My hands shook so hard I nearly dropped them.
+
+“You’ve been watching me,” I said.
+
+The intercom crackled, soft like a laugh that didn’t quite form.
+
+“We’ve been documenting,” the voice said. “That’s what you do for a living, isn’t it? You make things look like nothing happened.”
+
+The elevator dinged behind me.
+
+I spun.
+
+The service elevator doors were open.
+
+Inside was a plastic storage bin like the kind people use for moving. On top of it was my roll of trash liners and my disinfectant wipes. Stuff I knew was in my van.
+
+A second envelope sat beside them.
+
+The intercom clicked.
+
+“Take your supplies.”
+
+I didn’t want to step into the elevator. I didn’t want to walk into any enclosed space I didn’t control.
+
+But the lobby felt like a fish tank. Bright. Exposed. And the elevator was sitting there like an open mouth.
+
+I walked in, grabbed the supplies, grabbed the envelope, and backed out.
+
+The doors didn’t close. They stayed open like they were waiting.
+
+I tore the second envelope open.
+
+Inside was a single card, heavy stock, printed like a business invitation.
+
+On the front it said:
+
+YOU CLEAN UP AFTER PEOPLE.
+
+On the back:
+
+TONIGHT, CLEAN UP AFTER YOURSELF.
+
+Below that, in smaller text:
+
+Return to 4W2. Close the door. Sit in the chair facing the conference room screen.
+
+My chest tightened. “No,” I said, reflexive. “No. I’m leaving.”
+
+The intercom responded immediately.
+
+“You tried that.”
+
+“I didn’t have a choice.”
+
+The voice paused, like it was considering that.
+
+“People say that a lot,” it said. “They’re usually wrong.”
+
+The lobby lights dimmed slightly.
+
+Not a full blackout. Just a soft lowering, enough to make the corners feel deeper.
+
+The elevator doors stayed open.
+
+The only clear path forward was the one it told me.
+
+So I pushed my cart back into the elevator and rode up.
+
+The ride felt longer than it should have. Every floor number lit up like a countdown.
+
+Fourth floor. Doors opened.
+
+The hallway looked the same, but it didn’t feel the same. The air was colder. The overhead lights buzzed faintly, like they were underpowered.
+
+I pushed the cart to 4W2.
+
+The door was ajar.
+
+I put my hand on it and hesitated. I listened.
+
+Nothing.
+
+I nudged it open.
+
+Inside, the suite was… different.
+
+Not rearranged. Not obviously. But my brain noticed small things like it was searching for danger.
+
+Every desk chair was pushed in perfectly. The monitors were off. The kitchen area was spotless, unnaturally so, like it had been cleaned by someone who didn’t understand what normal clean looks like.
+
+And on the far wall, where a motivational poster had been earlier, there was now a grid of photos taped up with clear packing tape.
+
+At least twenty.
+
+All of me.
+
+Me walking. Me wiping. Me looking over my shoulder. Me checking my phone. Me bending to pick up a trash bag.
+
+Different angles. Different distances. Some taken from ceiling corners. Some taken from inside drawers, low and hidden.
+
+The same red handwritten label appeared under several:
+
+WORKER. WORKER. WORKER.
+
+Then, under one photo of me pausing by the window, staring out at the lot, it said:
+
+RUNNER.
+
+I felt my face heat. Like being accused.
+
+The conference room screen at the center of the suite flickered to life. A projector hummed softly.
+
+A video feed appeared.
+
+It was the parking lot outside.
+
+My van in the center, lonely under the flickering light.
+
+And beside it, barely in frame, was a person.
+
+A figure standing near the passenger side, head turned toward the building.
+
+I couldn’t see their face. They were too far away. But they were there.
+
+The intercom voice came through ceiling speakers in the suite now, cleaner and louder.
+
+“Sit.”
+
+There was a chair placed dead center facing the screen. One of the rolling office chairs.
+
+The wheels had been removed.
+
+That detail hit me harder than it should have.
+
+Someone took the wheels off.
+
+Someone had time.
+
+I stood there for a second, hands clenched on the cart handle, and then I did what it told me because I didn’t know what else to do.
+
+I sat.
+
+The chair didn’t roll. It didn’t shift.
+
+It felt like the room had been built around me.
+
+The video feed zoomed slightly on the parking lot.
+
+The figure by my van moved out of frame.
+
+Then my van’s interior light turned on.
+
+The door wasn’t opening. The light was coming on like someone inside it had flipped it.
+
+My mouth went numb.
+
+The intercom voice softened.
+
+“Matt, you work nights. You work alone. You take jobs that ask for no questions.”
+
+I said nothing.
+
+“Tonight, you will answer questions.”
+
+The conference room screen changed.
+
+A slideshow.
+
+First image: my work profile photo from the app. Old. Slightly blurry. Me smiling because you’re supposed to smile in those.
+
+Second image: a screenshot of a text thread. No phone number. No last names. Just a name at the top.
+
+Kayla.
+
+A message bubble: Are you coming home? I’m scared. I heard something outside.
+
+My chest tightened, sharp. I leaned forward without meaning to.
+
+The next slide.
+
+My reply.
+
+Can’t. Busy. Lock the door.
+
+Then another message from her, later.
+
+It’s in the house.
+
+No response from me after that. Just empty space.
+
+“You did not answer,” the voice said.
+
+I tried to speak and nothing came out right away. When it did, it was rough. “What is this.”
+
+“You clean,” the voice said. “You clean up messes. You wipe away evidence. You close doors behind you and pretend you did not see what was on the floor.”
+
+The screen shifted again. Another image.
+
+An office hallway.
+
+A dark stain on carpet.
+
+Not graphic. Not clear. Still enough to make my stomach roll because I knew what it meant.
+
+I recognized the carpet pattern. I recognized the framed art on the walls.
+
+A job from last winter. An office suite where someone had died over the weekend. I’d been hired to clean after the removal. That’s what they called it.
+
+I had walked into that suite and seen the stain and not asked questions. I had done my job.
+
+I gripped the chair seat so hard my knuckles ached.
+
+“I didn’t do anything,” I said, but it sounded weak even to me.
+
+The intercom crackled softly.
+
+“You did nothing,” it agreed. “That is the point.”
+
+The lights dimmed another notch.
+
+Then, with a mechanical clunk, the conference room door across the suite shut by itself.
+
+Not slammed. Just closed. Like a reminder.
+
+A timer appeared on the screen.
+
+15:00
+
+The intercom voice returned to business.
+
+“Your van contains what you need to leave. The door will not open until you complete one task.”
+
+My throat went tight. “What task.”
+
+The screen switched to a live feed of the suite.
+
+I saw myself sitting there from a ceiling corner angle.
+
+And behind me, taped to the wall of photos, was a new print I hadn’t noticed.
+
+It was Kayla. Standing in a doorway. Phone in her hand. Eyes wide.
+
+The timestamp in the corner was from that night.
+
+I felt something inside me twist.
+
+The intercom said, “You ignored a call for help.”
+
+The timer ticked down.
+
+14:32
+
+“You do not get to ignore this one.”
+
+A vent cover near the baseboards on the far side of the suite rattled softly.
+
+Once.
+
+Then again.
+
+Not like loose metal. Like something pushing from inside.
+
+My skin went cold.
+
+“Complete the task,” the voice said, “or remain here until the building closes you permanently.”
+
+The vent rattled again.
+
+I stood up so fast the chair legs scraped the carpet.
+
+“Stop,” I said into the air. “Stop doing that.”
+
+The voice didn’t change.
+
+“Task one is simple,” it said. “Tell the truth.”
+
+The screen displayed one line:
+
+WHY DO YOU TAKE THE NO QUESTIONS JOBS?
+
+My mouth was dry. My heart pounded so hard it made my vision pulse.
+
+I stared at the question.
+
+I let the seconds pass because I didn’t want to give it what it wanted. Because something in me got stubborn, the same ugly stubborn I use to keep working when I’m exhausted. The same stubborn that makes me swallow things instead of saying them out loud.
+
+The intercom didn’t nag. It didn’t repeat itself.
+
+It just let the timer keep shrinking.
+
+13:51
+
+13:50
+
+13:49
+
+The vent cover scraped, slow and patient, like a fingernail testing an edge.
+
+I pushed the cart toward the suite door instead. If it wanted answers, it could chase me for them.
+
+The moment my hand wrapped around the door handle, it jerked.
+
+Not pulled by a person. Yanked by something mechanical with no hesitation.
+
+The door swung shut so fast the air snapped.
+
+My left hand was still there.
+
+The edge caught my fingers against the metal frame and crushed them in a hard, clean bite. I felt it in my teeth. A flash of white pain so sharp my knees buckled.
+
+I made a sound I’m not proud of, something between a shout and a gasp.
+
+The door opened again immediately, like it had only been closing to take its payment.
+
+I stared at my hand.
+
+Two fingers were already swelling. Blood ran from a split along the side of my ring finger and down to my palm, bright against my skin, dripping onto the carpet in slow, stupid drops.
+
+The intercom crackled, calm as ever.
+
+“You chose silence,” it said. “Silence has consequences.”
+
+I pressed my bleeding hand into my shirt, biting down hard. I could feel my pulse thumping inside the cut, hot and steady.
+
+The timer didn’t stop.
+
+It kept counting.
+
+13:12
+
+The vent cover rattled once, satisfied.
+
+I backed up, shaking, and sat again because my legs suddenly didn’t feel like mine.
+
+The screen held the question like it was patient.
+
+WHY DO YOU TAKE THE NO QUESTIONS JOBS?
+
+My mouth tasted like metal. My hand throbbed so badly it made my vision shimmer at the edges.
+
+I swallowed and forced myself to look at the words, not the door, not the vent, not the live feed, because I couldn’t fight a building. I couldn’t out-stubborn a system that could slam a door whenever it wanted.
+
+“Because I need money,” I said, voice rough.
+
+The intercom was silent for a beat.
+
+The timer continued.
+
+12:41
+
+“That is not the full truth,” the voice said.
+
+I clenched my jaw, pain spiking when I tightened my injured hand. “Because I’m desperate.”
+
+Silence. Then:
+
+“Still not the full truth.”
+
+Rage flared, hot and stupid. “Because I don’t want to think,” I snapped. “Because if I keep moving, I don’t have to sit in my apartment and remember things. Because if I’m scrubbing floors at midnight, I don’t have to be a person.”
+
+The vent cover stopped rattling.
+
+The intercom stayed silent long enough that the quiet filled my ears.
+
+Then the screen changed.
+
+A new line:
+
+WHO DID YOU NOT SAVE?
+
+My throat tightened so hard it hurt.
+
+The timer read:
+
+11:58
+
+I stared at the words until they blurred.
+
+I swallowed and forced the words out.
+
+“Kayla,” I said. “Her name is Kayla.”
+
+The speaker crackled once, like it approved the use of a real name.
+
+I kept going because stopping felt worse.
+
+“She texted me and I didn’t go,” I said. “I told myself it wasn’t real. Or it wasn’t my problem. Or it was too late. I don’t know. I didn’t go. I didn’t answer. I did nothing.”
+
+My voice broke on the last part, and I hated it because it sounded like I was trying to win sympathy from a ceiling.
+
+The lights flickered.
+
+Somewhere deep in the building, something clicked.
+
+The timer froze.
+
+11:51
+
+Then disappeared.
+
+The suite’s main door unlocked with a soft mechanical sound.
+
+I didn’t celebrate. I didn’t feel relief.
+
+Because the vent cover, which had stopped rattling, slid half an inch sideways on its own.
+
+Like something inside had been waiting for permission.
+
+The intercom voice returned, almost gentle.
+
+“Task one complete,” it said. “Do you want to leave now, Matt, or do you want to see what your work has cleaned away.”
+
+I stared at the vent.
+
+A thin, dark line appeared at the edge, like a claw tip or a finger, testing the opening.
+
+My stomach rolled.
+
+“I want to leave,” I whispered.
+
+The intercom didn’t argue. “Then return to the lobby. Walk. Do not run.”
+
+I grabbed my cart and shoved it toward the door, holding my injured hand tight to my chest so it wouldn’t bump anything.
+
+As I exited the suite, I heard the vent cover scrape again behind me.
+
+Like something disappointed.
+
+The hallway lights buzzed as I pushed the cart toward the elevator. My mind screamed at me to sprint, to get away, to not obey some calm voice that had put my life on a timer.
+
+But the do not run part stuck in my head like a hook.
+
+I walked. Fast. Not running.
+
+The elevator was waiting, doors open like before.
+
+I stepped in and hit the lobby button with my good hand. My injured fingers kept twitching like they were trying to climb out of my skin.
+
+As the doors slid shut, I caught one last glimpse down the fourth-floor hallway.
+
+At the far end, where the lights didn’t quite reach, something moved.
+
+Low to the ground. Quick and smooth.
+
+A shape that didn’t match any normal body.
+
+The elevator doors closed fully.
+
+My breathing came loud in the small space.
+
+The ride down felt too slow.
+
+When the doors opened to the lobby, it looked the same as before, bright and empty.
+
+But the security desk monitor loop had changed.
+
+All screens now showed live feeds.
+
+Parking lot. Hallways. Elevator interior. Me, standing in the lobby with one hand pressed to my chest, blood smeared along my shirt.
+
+The envelope on the desk was gone. In its place was a single key fob, black, with a cheap label-maker tag that read:
+
+VAN
+
+The intercom clicked.
+
+“Take it,” the voice said. “Leave.”
+
+I snatched the fob, went to the main doors, and pressed unlock.
+
+The green access light came on.
+
+The gray relay box clicked.
+
+The door unlatched.
+
+Cold air rushed in like the building exhaled.
+
+I stepped outside and the door shut behind me.
+
+The latch clicked.
+
+I didn’t turn around.
+
+I walked to my van like my legs were trying to forget how.
+
+The key fob worked now. The van unlocked with a cheerful beep that made me want to scream.
+
+I yanked the door open and climbed in, shaking so hard I fumbled the key into the ignition twice.
+
+The van started.
+
+The headlights cut across the lot.
+
+And in that cone of light, I saw something that made my hands go numb.
+
+On the building’s glass lobby doors, from the inside, someone had taped up a new photo.
+
+It was me, sitting in the van, eyes wide, one hand clamped around the steering wheel, the other wrapped in my shirt with blood soaking through.
+
+The timestamp in the corner read 10:46 PM.
+
+I slammed the van into reverse and backed out fast, tires squealing on asphalt.
+
+As I turned to exit the lot, the intercom speaker outside the building crackled one last time.
+
+Not loud. Not dramatic.
+
+Just enough to reach me through the closed window.
+
+“Matt,” the voice said, and it sounded almost satisfied. “Keep your phone on tonight.”
+
+I drove until I hit the first gas station with lights and other people and cameras that felt real.
+
+Then I sat in my van shaking with my hands locked on the steering wheel, trying not to look at the smeared red streak I’d left on the leather.
+
+My phone, which had shown no service all night, buzzed.
+
+One bar appeared.
+
+Then two.
+
+A text came in from an unknown number.
+
+No name.
+
+No profile picture.
+
+Just a single image attachment.
+
+I stared at it for a long time before I tapped it, because part of me still wanted to believe this could end if I didn’t look.
+
+The photo opened.
+
+It was my apartment hallway.
+
+My door.
+
+Taken from above, like from a ceiling corner.
+
+And taped to my door, right at eye level, was a clean, glossy photo of me in the lobby holding the stack of pictures.
+
+Under it, written in red ink, was one word:
+
+WORKER.
+
+And below that, smaller:
+
+ANSWER THIS TIME.
