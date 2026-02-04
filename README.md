@@ -1,83 +1,96 @@
-# I Got A Splinter While Camping. It Won’t Stop Growing Under My Skin.
-There were fourteen or fifteen of them at first, by my count. I had slid down a tree and accidentally dragged my left hand across a rough patch of wood. The thin, needle-like pieces tore and embedded themselves into my palm and fingers.
+# My car picked up a stray signal
+I was driving out one night, deep in the sticks. 
 
-Their sizes varied – some were small, and came out easily from my raw, sandpaper skin. Others were long and jagged, anchoring themselves in, ripping the surface as I pulled. Little beads of dark blood leaked from these. I gasped and winced in pain, but I bit my tongue and got them out.
+Through a patch of dead air. The monotony of the road and the static of my car's radio lulled me, as my eyes felt heavier and heavier. 
 
-All except for one.
+I was staring up at the stars through drooping eyes, when my ears were pierced by a deafening sound emanating from the radios. 
 
-The last splinter was the biggest by far. It was right at the inside of the knuckle of my middle finger, deeply set and preventing me from bending it. It was about four inches long and a quarter inch thick at the entry. It stung painfully, inflaming the skin around it. When I tugged, it wouldn’t budge, reacting like a fishhook. Though I couldn’t see how deep it went, I suspected it was in the bone.
+A cacophony of human screaming. So many people, begging for help. 
 
-I was camping in the woods, far from my car or people, and it was getting late. I decided it would be best to just treat my hand with peroxide and get to sleep. It stung far worse than the initial scraping; bubbling, burning, as if searing on a hot stove. I gritted my teeth and finished the job.
+I veered to the side of the road, completely caught off guard. 
 
-I fell asleep soon after, my heartbeat throbbing in my open palm.
+Just as it had come it ended. Leaving me in near silence as the radio quietly hummed.
 
-It was around nine o’clock when I woke up. I sat up and raised my left hand. The wrist felt stiff; I cracked it and felt the stiffness in all the fingers too. I lightly pulled on the splinter and felt incredible tightness. It was as though it were rooted in my finger completely. I could tell the skin was quite inflamed but couldn’t make out the color in the dim tent.
+I went home that night, and as I lay there, unable to sleep, I thought about what had happened. I wondered if I had picked up a stray signal from someone who needed help.
 
-It was only after I sat up and crawled out that I could see the true extent of the damage. The inflamed skin around the wound wasn’t red, it was a dark grey. It felt hard to the touch. Grey-brown lines snaked outwards from the splinter underneath the surface. When I tugged on the splinter, I tugged on these veins.
+The next day I went back to the spot. Guided by the screaming that projected from the radio. 
 
-The pain emanating from it was immense and thrummed as blood flowed through my hand. I figured then was a good time to head back to my car. I needed to go to the hospital. I was about 13 miles out from the parking spot, which had taken me nearly the entirety of the day before to cover while carrying all my gear.
+I had come prepared in case someone out there was injured. 
 
-I put away my tent and packed all the rest of the gear into my backpack. I lifted the tent bag with my good arm and began my trek. 
+I'd also brought a portable radio determined to follow the signal to its source. 
 
-Early in my hike, the strap on my right shoulder slipped down and I reached to grab it with my left hand instinctually. The splinter collided with my shoulder and pressed it deeper into my palm. I shouted out in surprise and dropped the tent bag. I looked down at my recoiling hand. The grey skin around the splinter was now turning a brown tint. I felt it; cold, hard, like stripped wood.
+So I did. I followed it as it got louder and louder. Until I reached its source. 
 
-It was like this across my entire middle finger and a quarter of my palm. I turned over my hand and saw the grey veins spreading across the entire surface. The nail on my middle finger looked like a small piece of bark beginning to flake off. With a single light touch, it peeled off painlessly, leaving behind sticky, bloody sap. 
+A large craterous hole in the ground. 
 
-I felt dizzy. I reached for the splinter and pulled, the large external part finally snapping off. The remaining stump was much shorter, now fused with my wooden flesh. Without the main portion, I could now attempt to close my fist. 
+I could hear soft cries coming from within. Horrified, I now knew someone was injured down there. 
 
-I closed my fingers. They each snapped shut one by one with difficult, sharp stings. The middle finger, when I attempted to will it shut, snapped hard at the base, splintering and falling to the ground like a torn branch. More thick, red sap poured from the knuckle. 
+I had to help them.
 
-I was transfixed, staring at where my finger once had been, jaw motionless. It was *completely painless.* I felt absolutely nothing in the wooden stump. 
+So I tied a rope to a nearby tree and began my descent into its depths. The cave was humid and wet, water dripped down from the ceiling. 
 
-I picked up the finger from the ground and pocketed it before grabbing my tent bag and continuing my dizzying hike. 
+The air was filled with a metallic smell, like corroded pennies.
 
-The midday light shone down in rays from the treetops, leaving a green glow above my head. I tried to focus on it, to distract me from the clunking heaviness I felt in my left arm. I’d occasionally graze it against my body, and each one felt more like a heavy log. It was hard to ignore.
+A breeze ran through the cave, carrying with it an orchestral symphony of agony. 
 
-I was forced to stop again when I felt a tight pain in my chest. I looked under my shirt and found grey veins spreading across my entire chest and stomach, as though the wood was rooting itself deeper into my body. My joints were beginning to feel tight everywhere. 
+I began to walk deeper when I walked on something that clinked. It was a set of keys with a tag that read 'Apartment Building 426' followed by an address. 
 
-When I finally gathered the courage to inspect my arm again, it was worse than I could have imagined. My entire hand was a frozen statue of wood, bark travelling up my forearm, stripped wood all the way to my shoulder. I couldn’t bend anything. I peeled a piece of bark back, finding nothing but more wood. It didn’t even bleed like the nail had before. There was no more flesh left to bleed.
+From a city that I knew did not exist.
 
-My vision swam. It felt like I could black out. I saw a bright pink trail marker and recognized it as the halfway point. The pain in my arm was now a throbbing numbness. My skin was now turning grey along my chest and all my other limbs. It all felt cool and hard.
+As I walked deeper in. I soon found where the screams and moans of agony were coming from. 
 
-My jaw clenched with a crack and it felt as though my teeth could break under the pressure. I marched forwards.
+At least a dozen people were fused into the walls, ceiling and floor of the cave. 
 
-The sun descended closer to the tree line and I made good distance before an intense stabbing pain radiated out from my chest. I looked down and saw something protruding from my shirt. I tugged on my collar and peered inside.
+One man was completely fused into the stone wall, his face frozen in an expression of terror. I still remember the horrible sound of grinding stone on stone as his eyes shifted to meet me. 
 
-Several large splinters were protruding out from my chest, piercing my grey, sickly skin. Sap leaked out of large cracks across the surface. The pain was as if a sword had been driven through me, pulsating with my slow, aching heartbeats. 
+There were others half fused to the stone walls crying in pain for help; some had limbs missing. Perfectly cut off, in single straight edges. 
 
-I needed to get back to my car. It should only be a few more miles. I kept lugging my gear, laboring through the woods. The trees were tall and imposing out here, huge wooden beams that seemed to stare at me as they held up the darkening evening sky.
+There was no blood. Although the stumps did not seem to be cauterized. 
 
-My legs felt tight and creaked with each step. I felt the impact with the ground vibrate up my leg-trunks, making heavy swings.
+One man was on the floor in a fetal position. Half of him was sunken in. 
 
-After a while, I threw down my backpack and tent and fell to the ground, leaning against an oak tree for support. I was so tired. My creaking wooden arm ached. Just a few minutes rest.
+Half his face looked up at me and he began to speak to me in barely legible words.
 
-I then felt something strange. Something poking into my back. I turned towards it. 
+“You have to help us, please for the love of god. Please.”
 
-There was a face in the tree. Pained, squinting eyes lead to a large nose and a clenched mouth. It was all solid wood and bark, forever stuck with that expression. I felt pins and needles trickle up my stomach and into my throat. 
+His pained murmuring quickly grew into a frantic screaming.
 
-My head jutted upwards with a snap as I scanned the rest of the tree. There. I couldn’t see it before but now I could. There was a finger, wooden and crooked, sticking out of one of the branches, with a leaf budding from the end. I stood up shakily and backed away from the tree. I ran into another behind me and I turned to scan it too. 
+“MY WIFE, WHERE'S MY WIFE? YOU HAVE TO HELP HER. YOU HAVE TO SAVE HER.”
 
-A wooden foot was visible in the largest root at the base. 
+When he went quiet again, a woman's voice called out a name from the depths of the cave. 
 
-I spun my head around to look all around me. A finger. A toe. An eye. A nose. A pair of frowning lips. Scattered around, something on every single tree in my vicinity. 
+When he heard it. 
 
-My chest felt tight, like vines were squeezing my ribs, snaking through my organs.
+They both erupted in agonizing wails. 
 
-Screw the tent and backpack. I tried to run, but I quickly realized my knees wouldn’t budge and I fell onto the ground with a sickening thud. I looked down to find my pounding legs turning brown, huge splinters growing *out* of them, tearing at the hardened skin.
+It was the sound of two people who’d had the last of their hope stripped away from them. An animalistic pained sobbing that echoed on the cavern's walls. 
 
-Dirt filled my throat and I struggled to cough it up. I tried to make a call with my good hand, but I had no service. So I started crawling. My right hand dug through the soil and rocks, nails chipping and bleeding as I pulled myself forwards.
+His arm shot up clamping down on my leg painfully.
 
-I don’t know how many miles I’ve gone on like this, but I do know that I have internet here. I called 911 a while ago. I’m typing this out as I wait. 
+"You have to get me out, I can't go back. Please. Don't let me go back."
 
-I can see the paramedics down the trail now. I can see one radioing for backup. 
+I grabbed his arm and his skin shifted under my grip like wet clay.
 
-I’ll be out of here soon. I have to be.
+I pulled but he would not budge.
 
-I can’t imagine what they must be thinking right now. Seeing me like this. My fingers are still stiffening as I type. I can see the skin on my legs and chest turning to bark and splinters. Small roots are latching me to the ground, digging me in place. I have to pull them out to keep myself free.
+I pulled
 
-Don’t come out here. Don’t touch the trees. If you get a splinter, pull it out immediately. It doesn’t matter how much it hurts. It doesn’t matter how much flesh has to come with it. 
+And pulled.
 
-Get it out, or you’ll end up like the hundreds of others around me.
+His arm's socket popped wetly as it dislocated, and his arm tore off like wet paper.
 
-Like I almost did.
+When his arm gave way I fell backwards, smashing my head against a stone and passing out. 
 
+I woke up and the cave was silent. I was the only one there. So I climbed out and called the police. 
+
+Park rangers met me at the hole and told me the police had deferred the situation to them. 
+
+The cave had been silent for the past couple of hours as I'd waited for them to arrive. They went down briefly, before coming back up and, in a frustrated tone, announced that there was no one down there. 
+
+They suggested that I'd either made up the whole situation or had imagined the whole thing. 
+
+As they escorted me out of the woods and to my car, they told me to leave and never come back. They said they'd arrest me if they ever saw me again.
+
+But as I'm sitting here writing this down. I know I couldn't have made it up. 
+
+Because I still have the keys.
