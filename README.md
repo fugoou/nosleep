@@ -1,96 +1,43 @@
-# My car picked up a stray signal
-I was driving out one night, deep in the sticks. 
+# I found a Video game about the story im writing... dated 2 years before i was born.
+Hey , this happened pretty recently and im struggling to close an eye over it.
 
-Through a patch of dead air. The monotony of the road and the static of my car's radio lulled me, as my eyes felt heavier and heavier. 
+My name is Annabella and Ive been trying to write a story called "Orchid legends of the ancients" for this past year. Plannings been good but progress has been.. rather inneffective.
 
-I was staring up at the stars through drooping eyes, when my ears were pierced by a deafening sound emanating from the radios. 
+Recently i was at a used good store, common here in switzerland.
 
-A cacophony of human screaming. So many people, begging for help. 
+While looking around i found something weird under a shelf. An In box GBA game with a drawing i remember commisioning and "Orchid legends of the ancients on the box.
 
-I veered to the side of the road, completely caught off guard. 
+I was confused to say the least I looked at the back and it gave a description thats basically identical to my Story.
 
-Just as it had come it ended. Leaving me in near silence as the radio quietly hummed.
+"16 year old Orchid Elsher has a very unusal life, Adopted by her single dad , professional men liker Mattheo when she was a baby, having a crush on her 2 best friends and trying her best  to not be seen as a boy are only the beginning. No the real kicker is that Hoffnung , The spirit of Chaos ( The power of hope and free will) lives in her pendant and helps her play the card game Legends of the ancients. Togetehr with the 2 you must face many diffrent opponents the only question is Can you do it?"
 
-I went home that night, and as I lay there, unable to sleep, I thought about what had happened. I wondered if I had picked up a stray signal from someone who needed help.
+The game looked like a Rpg similar to Pokemon from what  i saw form the screenshots on the back. But the weurdest thing was it was labeled to have released in 2004 , I was Born in 2006. How could this game exist? had i copied the story and forgotten?.
 
-The next day I went back to the spot. Guided by the screaming that projected from the radio. 
+I had to get answer so i bought the game (5 chf pretty cheap).
 
-I had come prepared in case someone out there was injured. 
+I went home and it it into my  Ds-lite to start it.
 
-I'd also brought a portable radio determined to follow the signal to its source. 
+The option for "New game" was grayed out so i selected continue.
 
-So I did. I followed it as it got louder and louder. Until I reached its source. 
+When i did i was loaded into darkness being slowly lit by a single candle and i was on a table across from me was Who i recognsied as Mattheo, i designed him to be Orchids adopted dad who loved her to pieces and tried to be as supportive as he could be.
 
-A large craterous hole in the ground. 
+Though this version of Mattheo seemed a bit..off his hair and beard had bits of grey,his sweaters colors looked faded and his eyes..they looked like they had seen some thing no one wants to ever see. Just then he spoke.
 
-I could hear soft cries coming from within. Horrified, I now knew someone was injured down there. 
+" Oh Hello, a new challenge... oh its you. Its been a while hasnt it? ..Perhaps you dont know what im talking about. Anyway,perhaps youve forgotten the rules of this game allow me to explain".
 
-I had to help them.
+The game from there is pretty diffrent than the one on the back of the box its like a rogue like where you collect cards or aditional boons and all the while youd fight smaller scaled down duels of Legends of the ancients fights.
 
-So I tied a rope to a nearby tree and began my descent into its depths. The cave was humid and wet, water dripped down from the ceiling. 
+I saved after a bit and put the game down but i havent been able to get it off my mind.
 
-The air was filled with a metallic smell, like corroded pennies.
+Why does this game exist? HOW does this game exist? Did i create Orchid? Did i steal it and not Realise? Why is the game so diffrent than whats on the Box? 
 
-A breeze ran through the cave, carrying with it an orchestral symphony of agony. 
+And Mattheo... what did he see?
 
-I began to walk deeper when I walked on something that clinked. It was a set of keys with a tag that read 'Apartment Building 426' followed by an address. 
+Ill try to get some sleep and keep you updated soon.
 
-From a city that I knew did not exist.
+Any advice on what i should do or try it out its greatly appreciated.
 
-As I walked deeper in. I soon found where the screams and moans of agony were coming from. 
+Ty
 
-At least a dozen people were fused into the walls, ceiling and floor of the cave. 
+<3 Bella
 
-One man was completely fused into the stone wall, his face frozen in an expression of terror. I still remember the horrible sound of grinding stone on stone as his eyes shifted to meet me. 
-
-There were others half fused to the stone walls crying in pain for help; some had limbs missing. Perfectly cut off, in single straight edges. 
-
-There was no blood. Although the stumps did not seem to be cauterized. 
-
-One man was on the floor in a fetal position. Half of him was sunken in. 
-
-Half his face looked up at me and he began to speak to me in barely legible words.
-
-“You have to help us, please for the love of god. Please.”
-
-His pained murmuring quickly grew into a frantic screaming.
-
-“MY WIFE, WHERE'S MY WIFE? YOU HAVE TO HELP HER. YOU HAVE TO SAVE HER.”
-
-When he went quiet again, a woman's voice called out a name from the depths of the cave. 
-
-When he heard it. 
-
-They both erupted in agonizing wails. 
-
-It was the sound of two people who’d had the last of their hope stripped away from them. An animalistic pained sobbing that echoed on the cavern's walls. 
-
-His arm shot up clamping down on my leg painfully.
-
-"You have to get me out, I can't go back. Please. Don't let me go back."
-
-I grabbed his arm and his skin shifted under my grip like wet clay.
-
-I pulled but he would not budge.
-
-I pulled
-
-And pulled.
-
-His arm's socket popped wetly as it dislocated, and his arm tore off like wet paper.
-
-When his arm gave way I fell backwards, smashing my head against a stone and passing out. 
-
-I woke up and the cave was silent. I was the only one there. So I climbed out and called the police. 
-
-Park rangers met me at the hole and told me the police had deferred the situation to them. 
-
-The cave had been silent for the past couple of hours as I'd waited for them to arrive. They went down briefly, before coming back up and, in a frustrated tone, announced that there was no one down there. 
-
-They suggested that I'd either made up the whole situation or had imagined the whole thing. 
-
-As they escorted me out of the woods and to my car, they told me to leave and never come back. They said they'd arrest me if they ever saw me again.
-
-But as I'm sitting here writing this down. I know I couldn't have made it up. 
-
-Because I still have the keys.
