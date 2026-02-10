@@ -1,232 +1,172 @@
-# If You Hear Your Loved One Calling from Mason’s Creek, Don’t Answer.
-If anyone lives near Mason’s Creek, please never go near the water.
+# The Worth of a Life
+"What would it take for you to kill a man?"
 
+"Excuse me?" I asked, taken off guard.
 
+A stranger in an expensive-looking suit sat across from me at the bus stop.
 
-Jason’s wife died two months ago. At the funeral, he was the saddest I’ve seen him.
+"What would it take for you to kill a man?" he repeated.
 
+"Why are you asking me this?" I asked, increasingly unsettled.
 
+He leaned back against the bench casually, as if he were simply asking for the time.
 
-I was surprised when he asked about going on a kayaking trip.
+"Because I want to know, David," he said, his face expressionless.
 
+"How do you know my name?" I asked, a chill running through me. This was getting creepy. "Who are you?"
 
+The stranger leaned forward and looked me in the eye. His stare was cold and unwavering.
 
-He said that he just needed a distraction and a breath of fresh air.
+"I know everything about you, David," he said, not offering his own name. "I know that you are drowning in student loans. That you had to sell your car. That you live from one meager paycheck to the next."
 
+He leaned back and looked away. "I want to know what it would take for you to kill a man," he finished.
 
+This guy was seriously freaking me out, and I wanted to run or call the police. But I was afraid of what he might do. He was obviously some kind of psychopath.
 
-He arrived early on Sunday morning.
+I decided to humor him carefully until the bus came, just in case.
 
+"Why would I ever kill someone?" I asked. "Aside from self-defense, I don't see how that could ever be worth it."
 
+"You have a gun, and someone is kneeling in front of you," he said. "What if pulling the trigger would save a million lives? Would you do it?"
 
-When I looked at him, his eyes were red like he hadn’t slept for days.
+*A psychopathic philosopher?*
 
+"So... the trolley problem?" I asked, cautiously. "Switching the tracks to save a million people by sacrificing one?"
 
+The stranger waved a dismissive hand. "You could think about it that way," he said, "but it doesn't necessarily have to be a million people. It could be for anything. Power, money, even the cure for cancer."
 
-“Are you ready to explore Mason’s Creek today?”
+I'd never liked the trolley problem; it was always an impossible choice for me.
 
+"I wouldn't be able to decide," I said, shrugging. "Luckily, I'll never have to."
 
+He leaned forward again. "But what if you do?" he said. "What if I have the power to make it happen?"
 
-“I’m a little wary. You know what people say about that place.”
+*This guy is insane,* I thought.
 
+"You have the power?" I asked, exasperated. "If so, why not do it yourself? Why would you make a random person kill someone to cure cancer?"
 
+"I can't do it myself," he replied. "I'm unable to directly interfere. I can only act when someone—of their own free will, and by their own hand—provides me with a soul to do so."
 
-“Come on, man, it’s only stories. You worry too much.”
+I leaned back and crossed my arms. "Prove it," I said. "Prove that you have the power to do this."
 
+"Like I said, I'm unable to act," he said. "However, I can tell you that when you were ten years old, you found a frog in a secluded field. You named him Jim. You would return weekly to see him, until one day he was no longer there."
 
+"You had a crush on Jenny in high school," he continued. "You still think about her. You want to call her, but keep putting it off."
 
-We barely talked through the ride. He wore an unnaturally wide grin.
+"You're planning to visit your brother's grave tomorrow," he said. "Two days ago, a conversation with a coworker reminded you of him. You were going to buy flowers later today, from the florist on 7th Avenue."
 
+"Is this satisfactory?" the stranger asked.
 
+I sat there, frozen in shock. I had never told anyone about any of that. *Ever.* No one knew but me. It was impossible. Undeniable proof was staring me in the face. There was no other way he could have known.
 
-“Sally always wanted to go to Mason’s Creek,” Jason mumbled. 
+It took me a moment to find my voice. "Okay," I said, shakily, "so you need me to kill someone? Kill one person to save others?"
 
+"What you kill for is up to you," he said. "You can receive anything you wish."
 
+The stranger stood up. "You have twenty minutes to decide," he said, looking down at me. "You will never have this opportunity again. Think carefully."
 
-I doubt that was true. His wife was very superstitious. The legends of that place would scare her off.
+He turned and pointed. "In that alley, where I am pointing," he said, "you will find a man."
 
+I turned to look at the alley. It was right next to the bus stop.
 
+He continued, "You will also find a gun. State your desire loudly and clearly before pulling the trigger." He lowered his hand and turned to leave. "Decide what you would kill for. Decide the worth of a life."
 
-People would often drown in Mason’s Creek, but their bodies would never surface. Folks around that area said that a demon lured men under the current and took their souls.
+The stranger started walking away. "Remember, twenty minutes," he said, his voice fading. "Will you pull the trigger?"
 
+I looked at my watch, then slumped back on the bench, overwhelmed.
 
+*What should I do?* I thought.
 
-The river was about two miles from the parking lot. The path to it was overgrown with tall grass and bushes on the sides. It seemed like no one had been here for a while.
+*Was there actually a man in that alley? A man who would live or die depending on my decision?*
 
+What is the worth of a life?
 
+Was it more lives?
 
-From afar, tall pine trees grew on the riverbank, towering about a hundred feet, looking down at the stream beneath them.
+*I could save the unsavable. Cure the incurable.* Find the cure for cancer, fix climate change, discover the secret to immortality. A world without suffering. Just one life lost, to save countless others.
 
+What about money?
 
+*I could be rich.* Never work another day in my life. Debt erased. No longer struggling, barely making enough to survive. A life of unparalleled luxury, for one pull of the trigger.
 
-As we walked through the path, Jason told me he’d been dreaming of Sally since her funeral.
+Power?
 
+*I could rule nations.* Change the course of history. Every law, every war, every scientific pursuit, guided by my hand. No one could stop me. Unmatched potential, achieved by removing another's.
 
+My thoughts were racing.
 
-It was a part of grief that I understood.
+*What about the person I would kill?*
 
+Did they have a family? Friends? Were they like me, with their own hopes and dreams?
 
+Their entire life, gone, with one bullet.
 
-The river was about twenty feet across. It was muddy, but very gentle.
+It would be my fault. It would be my decision that they should die. Their innocent blood would be on my hands, forever.
 
+Fifteen minutes had passed.
 
+*Do the ends justify the means? Should I kill them?*
 
-The weather was cloudy. A mild fog started setting in. It felt heavier than usual. I could feel it seeping into my skin.
+*Or do the means justify the ends? Should I let them live?*
 
+I kept looking at the alley.
 
+I had never been so stressed in my entire life. I could barely think.
 
-I heard a faint, soft, feminine laugh…
+I had to decide.
 
-  
+I had to decide *now*.
 
+I jumped up and started walking toward the alley. There was no choice. I had to do this. The world would be a better place in exchange for one, single life.
 
-Small islands overgrown with brush slowly emerged from the fog. At first, I saw shapes running through the twigs, but as we got closer, they disappeared.
+My steps carried me closer.
 
+It had to be done. I would make sure they were remembered forever as a hero. Someone who saved the world.
 
+*Just do it. Keep walking.*
 
-As we moved farther along, the fog grew denser. It was getting harder to see. The river had intensified. Small waves were rocking my kayak back and forth.
+My heart was aching, tearing itself apart.
 
+*Get there. Pull the trigger...*
 
+My legs were so heavy.
 
-The air had a strange odor of dirt and decay.
+*End a life.*
 
+I struggled to keep moving. I was almost there.
 
+*I... I have to...*
 
-I had to slow down, only seeing a silhouette of Jason until he completely disappeared into the fog.
+Ten feet from the alley, my legs gave out.
 
+I fell to my knees.
 
+Tears rolled down my face. I couldn't breathe.
 
-Then I heard strange sounds carried by the wind. They were soft and soothing, almost like a beautiful woman speaking.
+I looked down at my hands. They were blurry, shaking uncontrollably.
 
+It was too much.
 
+"I can't do it," I whispered, sobbing. "I can't do it."
 
-“Sally!” I heard Jason yell out.
+I couldn't kill someone. Someone innocent. For a world they would never see.
 
+My decision was made.
 
+I would not pull the trigger.
 
-I stopped. The waves were slowly rocking my kayak forward. I heard the soft sound of someone speaking again.
+Trying to control my trembling hands, I pulled out my phone and called the police.
 
+It was clear to me now. It couldn't be measured.
 
+The worth of a life.
 
-It was Jason’s wife's voice. The paddle started trembling in my hands. I saw her body in the coffin. How could she be speaking to Jason now?
+---
 
+Soon after, the police arrived.
 
+They couldn't find the stranger I had been talking to.
 
-Then his silhouette appeared. He was leaning over his kayak, looking down into the water, talking into it softly.
+They did, however, find someone in the alley.
 
-
-
-He was hypnotized by whatever he saw beneath the water.
-
-
-
-“I missed you, my love,” Jason said.
-
-
-
-“I miss you too! Come closer, my love, so I can kiss you again.” 
-
-
-
-He leaned over. Out of the water came the naked upper body of his wife. Her hair was long and golden, her skin smooth with no wrinkles. 
-
-
-
-When she died, she was in her 70s; now she looked like she was 20 again.
-
-
-
-She touched Jason's face and leaned in for a kiss, but as their lips met, her body changed.
-
-
-
-Her hands were now mostly bones with pieces of rotting flesh hanging on them. The hair was thin and gray, almost turning white. Her eyeballs swung loosely out of the eye socket, barely holding on by a single tendon.
-
-
-
-The air was now filled with a smell of rotting meat. The waves intensified.
-
-
-
-Jason tried to scream and pull away, but the thing started pulling him back.
-
-
-
-A shockwave ran through my body. My heart was pounding so hard I could barely breathe.
-
-
-
-The thing let out a blood-curdling scream as it dragged Jason’s body underwater.
-
-
-
-Jason managed to resurface again. His hands were waving in panic. A look of pure terror and pain was in his eyes. I thought he screamed out my name.
-
-
-
-The thing resurfaced, taking him back under. Its body was flashing back and forth between the monster and his wife.
-
-
-
-Then only bubbles, and the river became calm again.
-
-
-
-Tears were rolling down my face. My only friend was lost. I wasn’t consumed by fear as much as I was by sadness.
-
-
-
-Then the river started moving again. I heard the faint whisper coming through the fog. Left of my kayak, the face of my wife, whom I lost 10 years ago, appeared. 
-
-
-
-I haven’t seen her since the accident.
-
-
-
-She looked as gorgeous as the day I met her. She started saying how much she missed me, and how we could be back together if I just got off my kayak.
-
-
-
-I almost leaned over until I realized what these things did to Jason. I started paddling away.
-
-
-
-The current fought me. The fog intensified, and water was splashing into my face.
-
-
-
-I heard my wife’s voice get closer. Then something grabbed onto my kayak and started pulling me back.
-
-
-
-I started paddling as hard as my body let me. Finally, I felt the grip relax, and I managed to get to the bank.
-
-
-
-As soon as I got out, the river went quiet, and the air cleared.
-
-
-
-I ran back to the parking lot. Panting, I leaned on Jason’s truck.
-
-
-
-There is a wet handprint on the truck. The fingers are too long to be human.
-
-
-
-The fog is rolling in again.
-
-
-
-Something wet is moving through the woods.
-
-
-
-And my wife’s calling my name.
-
-
-
-*She’s not alone.*
-
+Someone holding a gun, waiting for [me](https://www.reddit.com/u/leadraine/s/gxw2fPmIsN).
