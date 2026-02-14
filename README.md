@@ -1,56 +1,24 @@
-# I think my roommate is sleepwalking. Now she’s mad I locked my door.
-I live with one roommate, I'll call her “Jenna” for privacy purposes. We’ve been friends since college and moved in together about six months ago. Overall, things are fine. We split chores evenly, get along well, belong to the same social circles, work in similar fields, and usually spend time together without any tension. We’re close enough that moving in together felt like a natural next step, not a risk.
+# The Hitchhiker on Stonegate Highway (Part 3)
+[Part 1](https://www.reddit.com/r/nosleep/s/Dui9o5jMPz) | [Part 2](https://www.reddit.com/r/nosleep/s/r41csUWJR9)
 
-About two months ago, Jenna started “sleepwalking.”
+That fainting of the body didn’t last long. I was fully aware, more than before. Something had shifted inside me. The hitchhiker was no longer dominant. My mind felt as if it had staged a death, a quiet collapse meant to confuse whatever had been ruling it. For now, it worked. 
 
-The first time it happened, I didn’t think much of it. I woke up in the middle of the night to the sound of footsteps in the hallway. Our floors creak a lot, so I assumed she was just going to the bathroom or to the kitchen for water. I stayed in bed and waited for the noise to pass.
+Meanwhile, I slowly began regaining control over myself. My body jerked involuntarily, my hands and legs numb and distant. Somewhere deep inside me, faint hums and echoes stirred, restless, indistinct, impossible to understand. The hitchhiker hadn’t left, but he was no longer in control. His presence lingered, subdued, buried beneath my thoughts.
 
-A few nights later, it happened again. Except this time, the footsteps stopped right outside my bedroom door. I remember lying there, half-asleep, waiting for them to move on. They didn’t.
+The echoes felt like a distant voice asking the same question over and over again, frustrated, demanding answers. I knew what I had to do, I had to ignore it and get away from there. It felt like the only chance I had left. But my body was almost paralysed. I couldn’t feel my hands or legs, and I could only manage to tilt my head slightly. When I did, the sky came into view, and before anything else, I saw the shooting stars again, faint now, almost negligible. Barely visible. And I understood what that meant. Whatever was inside me wasn’t gone. It was waiting, submerged somewhere beneath thought, beneath language, slowly gathering itself.
 
-Eventually, I opened my door and saw her standing directly in front of it. She wasn’t reaching for the handle or looking around. She was just standing there, facing my door like she’d been waiting.
+I lay there for nearly half an hour before control returned in fragments. When I finally managed to sit up, my body obeyed me again, slowly, unsteadily. The echoes were still there, but weaker. The foreign language was gone, and my thoughts belonged to me once more. Still, something felt wrong. It was as if part of me remained chained deep within my own mind, tethered to something I could no longer see but could still feel. There was no injury on the back of my head, no blood, yet my brain insisted otherwise. A phantom pain pulsed there; crushing and unbearable, as if the blow had truly landed.
 
-I asked if she needed something. She didn’t respond. Her eyes were open, but unfocused, like she was looking through me instead of at me.
+Ignoring it, I began walking toward the other side of the highway. The shooting stars appeared less frequently now. Along the road, I saw my car standing abandoned. I wanted nothing more than to sit inside it and drive away, but the tank was empty and useless. After several heavy steps, I sensed something behind me. A presence. When I turned slowly, I saw a faint trail of fog following at a distance, too thin... Almost transparent, just like the stars overhead. Alongside the fear came something else, grief. Heavy and unresolved. As if a part of me was mourning something I couldn’t remember losing.
 
-After a few seconds, she turned around and walked back to her room without saying a word.
+The fog terrified me, and fear pushed adrenaline through my body. I forced myself to walk faster, but every mile or so my body failed me. I had to stop, or I would collapse. Each time, the fog followed. After several miles, I finally reached the main highway, the same one from which I had been diverted earlier. The moment I stepped onto it, the road behind me vanished. There were no barricades, no signs, nothing at all. Only the faint fog lingered behind me, and the stars were still there above.
 
-The next morning, I brought it up casually. She looked genuinely confused and said she didn’t remember getting up at all. Then she laughed it off and told me she’s always been a sleepwalker, especially when she’s stressed. I didn’t have any reason not to believe her. It was strange, but it didn’t feel threatening.
+My throat burned with thirst and my legs trembled beneath me. I stopped by the roadside and stretched out my thumb, waiting. Minutes passed before a truck approached. The driver kept switching between high and low beams, and with every flash it felt like waking up again and again, as if part of me were trapped in deep sleep and constantly disturbed by the light. He slowed down, lowered the window, raised an eyebrow, and asked, **"Yeah… where are we going?"** Before I could answer, something tore loose inside my head. It felt like a massive weight being pulled from my mind, as if space had suddenly been cleared. Memories surged violently and then vanished altogether.
 
-Since then, it’s been happening a few times a week.
+and then I saw the hitchhiker leaving me and entering him. The fog thickened, the stars brightened, and the driver’s body jerked violently. His face twisted, his eyes rolling upward as something settled behind them. But as the hitchhiker left, I felt something else tear away too, something quieter, heavier. The echoes didn’t stop. They changed. My mind froze, my inner voice fell silent, and I couldn’t move or think. Only one memory remained, looping endlessly: the hitchhiker’s family, standing helpless as the two men approached, the axes rising, the realization, the screams. I watched it happen again and again as tears streamed down my face and breathing became impossible.
 
-What started to bother me was the consistency. She doesn’t wander the apartment. She doesn’t go into the kitchen or the bathroom. She always stops outside my door.
+The looping didn't last longer, it came to a halt and was followed my an ominous weeping inside my head, it was a strong echo of someone crying, someone constantly crying within me.
 
-Sometimes she stays there for only a few seconds. Other times, it feels like minutes. I’ve tried pretending to be asleep. I’ve tried clearing my throat or shifting in bed. Nothing changes until she decides to leave.
+Meanwhile I could feel a part of me alive somewhere else as well, somewhere I couldn't understand. Before I could reason without the situation, a voice echoed somewhere, somewhere my other self was present at...**"Yeah...Where are we going?"**
 
-I finally told her it was making me uncomfortable. I asked if she could see a doctor or at least close her door at night so she wouldn’t wander. She got defensive and said I was being unfair, that sleepwalking isn’t something she can control, and that I shouldn’t be making her feel bad about a medical issue.
-
-Last night was different.
-
-I woke up around 3 a.m. and immediately knew she was there. She was closer than usual, so close I could see the shadow of her feet under the doorframe. I could hear her breathing on the other side.
-
-I didn’t open the door this time. My heart was already racing. Instead, I asked quietly, through the door, “Jenna, are you awake?”
-
-She answered immediately.
-
-“Yes.”
-
-There was no hesitation. No grogginess. Just a calm, clear response.
-
-I froze. I asked her why she was standing there.
-
-She said, “You weren’t supposed to hear me yet.”
-
-I told her to go back to her room or I’d call someone. My voice was shaking by then. She didn’t respond right away. She just stood there silently for a moment that felt too long.
-
-Then she walked away.
-
-This morning, she acted completely normal. She made coffee, talked about work, and asked if I wanted to hang out later. When I confronted her, she swore she’d been asleep all night. She accused me of trying to control her behavior and said that insisting she did things she couldn’t remember was gaslighting her.
-
-I told her I was going to install a lock on my door.
-
-She got upset and said that makes her feel accused and unsafe, and that I’m treating her like a threat instead of a roommate with a medical condition. She hasn’t spoken to me since.
-
-I honestly don’t know what to think anymore. I’m exhausted, I’m second-guessing my own memory, and I dread going to sleep.
-
-All I know is that tonight, I’m locking my door and I’m scared of how she’ll react when she notices.
-
-Find the update \[[here](https://www.reddit.com/r/nosleep/comments/1q8i8jd/update_locking_my_door_did_not_help/)\]
+[Part 4](https://www.reddit.com/r/nosleep/s/vFsI3VdnWU)
