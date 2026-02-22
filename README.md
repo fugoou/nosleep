@@ -1,44 +1,129 @@
-# My terrifying experience in the Marines
-I'm writing this because I made a short post in the comment section of a tiktok and a lot of people wanted to hear the full story so here it goes.
+# I was told today would be the end of the world
+I was told today would be the end of the world. I had wondered how I would feel when it finally came to it: the destruction of everything we know. I imagined a thousand times how I might react, but somehow I was still wrong.
 
-My name is Jackson and I was in the Marines. My job in the military was an 1833 (Amphibious Assault Vehicle Operator). Think of a tank that floats and drives in the water. It can carry Marines in the back as we operate ship to shore operations, river crossings, armored support while taking cities, etc.  I was stationed in Hawaii during my enlistment and I was a part of Combat Assault Company (no not combat assault battalion as the battalion sadly disbanded before Combat Assault Company disbanded). 
+I feel nothing. No remorse, no hope, no regret. It’s so…mundane, so commonplace. Like when I hit the button for the nuclear warheads. I might as well have hit the on switch on my electric toothbrush.
 
-Out in hawaii we were known for doing a lot more water operations compared to the other bases that also had our vehicles. These operations are sometimes known as splashes and well at my unit we were going to conduct the longest training splash in the Marine Corps. On my vehicle is my Staff Sergeant (SSGT for short), My Corporal (CPL for short) and my buddy that we will call Chris. Our platoon (12 vehicles each containing at least 4 marines) start conducting the splash and everything is great. We do our exercises, getting in different formations, run through emergency situations. We hit the beach of where we are supposed to go and continue with our training.
+There was no emotion to be felt. It was over faster than I could comprehend. The thick concrete and lead walls of my bunker prevented any sound transmission. My boss had programmed a little computer gif animation of a mushroom cloud for me to make up for the lack of fanfare. I appreciated him for that. 
 
-Towards the end of the day we start staging our vehicles on the beach so that we are all in a column along the length of the beach with the front of our vehicles facing the ocean. My SSGT tells us to eat our  MRE's and start getting ready for night and that after we take account for our weapons and bodies we will set up a firewatch. Now for the ones that don't know a firewatch is when at some point in the night it's your responsibility to be awake while everyone else is asleep and make sure everything is okay such as: no ambushes, no suicides, nobody stealing anything, etc. 
+I’m not really that high up in the military. My position is necessary but I myself am expendable. I’ve only lasted this long by going unnoticed. Mediocrity is my shield. I exist to make others look good but to do so without being perceived. As someone with autism, I find it particularly delightful. So when this job was discussed, I volunteered immediately, without hesitation. 
 
-We take accountability and start giving out firewatch and im the unlucky bastard that gets 0100 to 0300 (1 am to 3 am for the ones that don't know military time). I say alright to my Corporal and start getting ready for bed so I can sleep a little bit before my buddy Chris comes and gets me for my turn for firewatch. Now in my job we all sleep in our vehicles since they are spacious and keeps you out of the elements. And unlike typical firewatch in other jobs we take our firewatch in our vehicles as well. You're supposed to climb up inside the turret of our vehicle and scan the surroundings. 
+The internet has an interesting dichotomy when it comes to neurodivergence. We are either grouped together as completely innocent little babies who cannot make mistakes or as morally superior stalwarts of the honor system. Neither is true. After all, I am a part of the demise of the free world. I pressed the button. 
 
-Once I'm settled I quickly doze off because of how exhausted I was. 
+I could have taken this fact to my grave. But there is a sick delight in knowing I will post this and no one will see it. Knowing that I will remain unperceived except by the bots on the internet, to forever be recorded in human history as the destroyer of the world. 
 
-I wake up with a sudden jolt. I scan the back of the vehicle and see my buddy Chris leaning over me, a look of worry on his face, beads of sweat on his forehead and a frown creasing over his face. 
+You might wonder, why? There is so much good in the world? How could you end everyone’s lives? Well, there is also a lot of bad. Evil people hurt many more people than the good can heal. I see it as a reset button.
 
-"Its your turn for firewatch" he says
+Plus, the world deserves it. After all, I was denied a chance. Being autistic made it particularly hard to date. Being short made it even harder. When it came to the genetic lottery I struck out. Women didn’t want to talk to me, and refused to give me a chance. Maybe if I’d found someone, I wouldn’t be in this cement hole, ending the free world. Maybe if everyone had been a little nicer, it wouldn’t have come to this. 
 
-Still groggy and with a sore throat I ask,  "you doin alright? you seem a little uneasy."
+This is what they deserve. I smiled. It has been twenty three hours and fifty minutes since I pressed the button. I imagined what she would look like as she realized her life was going to end. Jennifer. I bet she was looking at wedding dresses to marry that douche bag in. I thought about the coffee she threw at me when I offered it to her. I imagined it bursting into flames in her hand and the fire engulfing her entire body.
 
-His expression doesn't change, "I'm just tired and I think my mind is playing tricks on me" he says. I start getting up and putting on my clothes I ask him, "what are ya seeing out there?" Thinking to myself that its  one of our friends getting hazed or something. 
+At least, that is what I learned would happen when a nuclear bomb goes off. I wondered how close she was to the epicenter. Or would she get cancer and slowly die a painful death later? I smiled. 
 
-He looks me dead in the eye and says, "I don't know but it's not normal and I'm done talking about it"
+The military assured me this box would protect me. It was barely large enough to fit my chair, a desk, a monitor/keyboard and a big red button. I assume the computer is inside the wall or something. Above me is a large hatch door with a valve latch. I was instructed that once I pressed the button, after 24 hours the military would send a team to retrieve me.
 
-Startled by his sudden rudeness I raise my hands up in defeat and start crawling up inside the turret so I can start scanning outside. Once I'm up inside I'm looking through the glass surrounding the turret trying to get a look at anything unusual but I dont find anything (of course). The minutes go by with an agonizing slowness to them undoubtedly because I was tired and ready for bed and almost exactly halfway through my time I see sand kicking up out my peripherals. I start rotating the turret to get a look at whatever is doing that because its looking quite violent and I'm worried its someone in a fight.
+As the ten minutes started ticking away, I pulled up reddit and started posting. I giggled in excitement at all the bots who would like and comment on my post without ever knowing what it was. 
 
-That's when I see it. A sleek black figure resembling a human but with no face and not wearing any clothes. Moonlight is bouncing off its thick black skin giving it a sort of shine making it look slippery. As soon as I laid eyes on it the thing stopped digging immediately and it adjusted its body so it's facing me, almost as if it noticed me somehow. I sit there not moving a muscle out of fear that it will sense me and would start charging.
+EDIT:
 
-"You see it don't you?" Chris asks
+Five minutes passed and I heard a notification from the secure military email. I opened it.
 
-The creature with startling speed scurries up the vehicle beside it and disappears on the other side. 
+Dear soldier,
 
-"Yes" I whisper so quietly that I'm 90% positive that Chris read my lips instead of actually hearing me.
+We regret to inform you that the heat from the blast has sealed you into the safety bunker. Please remain calm as we search for other ways to retrieve you.
 
-"Do you want me to stay up with you? I can get in the driver station and keep watch with ya" he asks. 
+Sincerely,
 
-"Please do" I blurt out shakily. 
+General Bob
 
-He climbs up into the driver seat and as soon as he sits down we hear a clang. And then scurried pats that sounds almost identical to a cat running across a hardwood floor. In my gut I knew it. That creature is on our vehicle. I didn't dare turn around to look out the glass behind me, I didn't take my hand off the turret handle either.
+Ok. No biggie, I thought. Just gotta wait it out.
 
-I hear the creature climb right on top of the hatch that I was underneath. I sat there for what felt like 10 minutes before I had the thought to move. Sitting there holding my breath I worked up the courage to rotate the turret to see if it would get off. I grip the handle tightly and start rotating counter Clockwise to make myself face the ocean again. The creature didn't move until I stopped. And then slowly I saw it's long arms extend down in front of me, gripping the railing that sat at the end of the vehicle. Fingers long and bent at weird angles almost like they were broken 100 times and healed wrong every time. And with a powerful push the creature flung itself over the railing hitting the sand. 
+Twelve hours have passed. No updates so far. I’ve eaten through half of my snacks merely out of boredom. There are 4K likes on this post so far. I’ll keep updating as I go along.
 
-I watched it as it slowly crept it's way to edge of the beach and then sank away into the ocean and out of sight. 
+EDIT:
 
-I didn't see that creature again for the rest of our training and neither did my buddy. Now I don't know if it was my mind playing tricks on me because I was exhausted or if it was real. What I do know is that Chris and I never talked about it again and for the rest of our time in the Marine Corps we always stayed extra alert whenever we had firewatch. 
+It’s been three days since I pushed the button. I have no more food left. I haven’t heard anything despite sending a dozen emails. I wonder if the military died as well in the blast? Could the email have been by a bot? Or auto triggered if the bunker didn’t open after a specific number of hours?
+
+Luckily there was a ventilation and heating system. I’ve been comfortable and am not at risk of running out of air. The lack of food, water, and bathroom have become an issue. At first I just refilled old water bottles with my urine, but soon I’m going to need to shit and I don’t want to be trapped down here with this.
+
+I stepped away from the monitor. The entire room is five feet in diameter. Just me, a chair, a desk, a monitor, keyboard and cabinet with snacks. And that big red button. I imagine it is starting to talk to me now.
+
+“Why did you do it?” the button asks.
+
+“Do what?”
+
+“Why did you press me?” 
+
+“I had to. I had to end the evil.”
+
+“But you killed so many people.” For a hallucination, this button sure as fuck was judgemental. 
+
+“I didn’t kill them. If it wasn’t me, the military would have used someone else.”
+
+“But you could have chosen not to. You could have stood for something.”
+
+“I did stand for something” I screamed. “I survived.”
+
+“No one is coming to get you.” The button softly whispered. “You need to find a way out.”
+
+“How?” The tears started now but ended quickly. I was too dehydrated. 
+
+“Check the computer”. 
+
+I sat again at the monitor. There was a survey popup replacing the entire screen. I looked but I couldn’t shut it. CTL ALT DELETE  did nothing. The text read like a survey 
+
+Thank you for your participation. Please answer the following questions to the best of your ability.
+
+Please rate your attractiveness on a scale of 1 to 10. 
+
+“Um, clearly I am a 10.” I pressed the submit button.
+
+A new pop up.
+
+Are you sure? In bright yellow letters.
+
+I sighed. I selected 5 and submitted. It progressed to the next question.
+
+Does anyone love you?
+
+Yes or No?
+
+I answered no.
+
+Will anyone miss your absence?  
+Yes or No?
+
+No again.
+
+Did you tell anyone about where you currently are?  
+Yes or No? 
+
+Why didn’t I tell anyone? I racked my brain. Wait, I sent an email to Jennifer. I told her it was her last chance to be with me.
+
+I clicked yes.
+
+The screen flashed and the next question appeared.
+
+Did you tell anyone OTHER than Jennifer?  
+Yes or No?
+
+It was at that moment that I realized something was off. I stood up quickly and looked at the hatch. The only thing between me and my freedom. It was at that moment I realized. It was tack welded shut, from the outside. I could a bit of the weld dripping down.
+
+The button started talking again. I realized, I’m not hallucinating. It’s coming from a speaker system.
+
+“Finish the survey” It demanded
+
+“What happens if I don’t?”
+
+“Only good things happen if you do.”
+
+I sat down. No. I didn’t tell anyone other than Jennifer.
+
+They asked me more questions about my childhood, my emotions, if I hurt animals, how I felt about cartoon characters getting hurt. 
+
+I answered them.  
+The pop up went away. I got back to reddit to document.
+
+EDIT:  
+It’s been five days since I pressed the button. I wished I never had. I strained my voice screaming for hours until I passed out yesterday. I woke up in my own shit. I can’t stand the smell. No one has responded. Not to email, not to screaming. The button is silent.
+
+If you are reading this please stop commenting. Send help. I don’t know where I am but I know I’m somewhere in rural Texas. Please. I don’t want to die. Please.
