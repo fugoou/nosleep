@@ -1,56 +1,67 @@
-# [Update] Locking My Door Did Not Help
-\[Find my first post [here](https://www.reddit.com/r/nosleep/comments/1q6of0a/i_think_my_roommate_is_sleepwalking_now_shes_mad/)\]
+# Someone keeps knocking on my window. I live on the fourth floor.
+Normally I wouldn’t reach out here but I don’t know where else to post this. A few days ago someone started knocking on my windows. The problem is that I live on the fourth floor. On Monday we finished the proceedings for the passing of my Grandmother. That day was filled with the standard apologies for loss from family and friends but I didn’t know what to say. I was never close with her in my adult life and this honestly felt like an unexpected blow. I figured maybe we would have had more time to make things up but I woke up one day and boom that’s it. I still had so much I wanted to say and it had been years since we spoke. Even longer since I had a conversation sober. I quit the bottle but was still too scared to reach out and now I figured I would have to live with it forever. 
 
-I didn’t expect my first post to get as much attention as it did. I posted it mostly to get it out of my head and maybe hear that I wasn’t overreacting. I read every comment, even the ones that sounded a little conspiracy theory-ish. I wish I’d listened more closely to the people telling me to leave.
+Monday night she spoke to me with a wispy breath.
 
-To answer the most common question: yes, I installed the lock the same day.
+“I’m here.”
 
-I didn’t tell Jenna ahead of time. I waited until she left for work, drove to the hardware store, and bought the simplest deadbolt I could find. I’m not particularly handy, but adrenaline does wonders for motivation. By the time she got home, it was done.
+I froze. The lights were off and I was half awake but I swear I heard it clear as day. My grandmother’s voice, dim and quiet but with a strong rasp.
 
-She noticed immediately.
+I slowly slipped out of bed and went to the window. I live on the fourth floor, it’s not like someone could have been messing with me but I swear it came from outside.
 
-She stopped in the hallway, stared at my door, and asked, “Why did you change it?”
+“Let me in.”
 
-I told her I just wanted privacy and to feel safer sleeping. I tried to keep my tone light. Reasonable. She stared at the lock for a long moment longer than felt normal, then laughed a little too sharply and said I was being paranoid.
+Again it flowed through the closed window like a breeze. My blood ran cold. I knew logically it couldn’t be her, we buried her. I watched it happen. But she’s talking to me right now. 
 
-That night, I took commenters’ advice and put a chair under the doorknob, wedged tight against the floor. I also moved a heavy storage bin full of old Halloween costumes in front of the door. I planned an escape route in my head, out the window, onto the fire escape, down to the street. This felt like over-kill, but I wanted to say I honestly tried everything you all suggested. A lot of you mentioned trying to record these encounters, but that still felt like too much, so I settled for charging my phone to 100% and sleeping with it in my hand just in case.
+I ran to the window after turning on my light and saw nothing. Just the same skyline view as always. I looked down and could even see a single neighbor walking on the sidewalk. 
 
-I still woke up around 3 a.m.
+I figured I must have started to lose it at this point. Maybe I’m so upset with her passing I’m imagining things. Maybe I’m just that exhausted from the last several days of setting up arrangements for the funeral. 
 
-I didn’t hear footsteps this time. I just knew.
+I wake up and life continues as normal. I work my job, come home to my studio apartment and get ready to unwind. Turn on the TV and white noise fills the modest space. As night approaches I ready myself slightly fearful for the daylight to end. I decided I should take a melatonin to sleep and get through this as quickly as possible. 
 
-Something was different. The air felt… pressed, like before a storm. I stared at the door, waiting. Then I heard it: a soft sound, almost like fingertips brushing the wood.
+I woke up at 2:15 am to the sound of a woman crying. It was loud, ear piercing screaming of pain. I bolted from my bed scrambling to find the culprit of this unexpected cacophony. I look out the window in the dark and see a reflection of a shadow screaming. As soon as I lay eyes on it, the figure and sound disappear. 
 
-There wasn't any knocking. No scratching. Just contact.
+“Please it’s so cold, let me in”
 
-I held my breath.
+Her voice again. It’s different but it’s her voice. Scratchier than ever, she sounds sickly. I heard she died quickly from the accident but this sounds like agony. I reached to the window to feel where the shadow was.  
 
-Then, very quietly, from the other side of the door, Jenna said my name.
+My windows don’t open. They’re sealed shut and never had any opportunity to open in the first place. This apartment was an old hospital prior to a renovation and had been sealed for decades. 
 
-She didn’t sound confused. She didn’t sound asleep.
+“Grandma, I hear you.” I whispered back, still not quite believing what I was hearing. 
 
-She sounded annoyed.
+“Please dear, let me in.” she whispered back.
 
-I didn’t answer. The chair didn’t move. The lock didn’t rattle. After a few minutes, she walked away.
+“Grandma, I can't look at the window, they’re sealed shut.”
 
-The next morning, Jenna was furious.
+I wanted this to be real so badly. I hadn’t had time to talk to her sober in so long, I wanted her to see that now but I missed my chance. Not this time, not again.
 
-She accused me of “changing things without talking to her” and said the lock made her feel unsafe in her own home. She asked me why I was acting like she was dangerous. When I reminded her of what happened the night before, she went pale and said I was doing it again, that I was "putting things in her head," and "making her question herself."
+“Grandma please, I am so sorry. I”
 
-Maybe some of you are right and she is the one gaslighting me.
+My words were cut off by a sudden shriek and the sound of something hitting the ground four stories down. I was so taken aback I just froze in place. I tried to look down but couldn’t see where anything landed. 
 
-She asked me if I was sleeping at all.
+“Grandma? Are you there?” 
 
-That question stuck with me. I don't know anymore.
+Nothing. Absolute silence overtook the space again.
 
-Since then, things have escalated in smaller, stranger ways. Jenna has started waking up exhausted, with bruises she can’t explain. Doors are sometimes open in the morning that I know I closed. This morning I woke up to find my bedroom light on even though I always turn it off.
+The next day I went by where I heard something fall but saw nothing. No bird, nothing. Usually if I hear a big bang I just assume it’s a bird that wasn’t paying attention but no this was a distinctively loud noise of something splattering. 
 
-I haven’t seen her outside my door again. But sometimes, when I lie awake, I swear I hear her pacing the hallway, back and forth, like she’s measuring distance.
+Work was difficult that day, I could barely keep my eyes open after the night I had. I shuffled through the day like a zombie and managed to make it home eventually. As soon as I got settled in I slept with no intention of waking until the early hours of the day. 
 
-I’m looking for a new place. I really am. But every time I try to imagine leaving, my chest tightens in a way I can’t explain. Like something is wrong with the idea itself.
+BANG
 
-Tonight, I’m keeping the lock. And the chair. And the bin.
+I look out the window to see a shadow staring at me. Just the head and fingers are visible as if it is just creeping over the window. After staring for a moment it doesn’t move. I had expected it to dart off again into the night like last time. I walk to the window and hear a muttering. 
 
-I don’t think she likes that.
+“I know you can hear me won’t you please let me in? I’ve missed you so much. I wish you were dead instead of me.”
 
-\[Find my final update [here](https://www.reddit.com/r/nosleep/comments/1qb3vki/final_update_i_dont_think_the_door_was_the_problem/)\]
+My heart dropped. I didn’t know what to say. I had thought the same thing when I had heard the news in my darkest moments but to hear it said in her voice shook me to the core.
+
+“You know I never wanted you. Let me in and we can finally be close again.”
+
+This didn’t sound like my grandmother. She may have been strict and uptight but she would never say such awful things. I looked down and noticed a window opener. A small device I could open this sealed window with that had never been there. I stared at it and my arms moved intrinsically. I hadn’t started intentionally moving my hands but I could feel them wrap around the knob and begin to twist. With a rush I quickly fought to regain will over my body’s movement. 
+
+“No please this isn’t real this isn’t real this isn’t real.”
+
+I started shaking as my hands went back to my sides as I felt a slight breeze coming into my stagnant apartment. Fresh spring air. I looked to see the edges just barely open. The air has gotten bitter. I tried to leave but my door doesn’t have a lock or handle anymore. 
+
+I yelled, hoping to get the attention of my neighbors screaming to the high heavens begging for someone to come inside my apartment. That was three days ago. I’ve begun to run out of food and every night she has asked to come inside. Tonight I’m going to let her but I needed to reach out here first. If you don’t hear from me again, please, someone come check 417 at the Flats.
+
