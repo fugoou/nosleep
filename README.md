@@ -1,67 +1,146 @@
-# Someone keeps knocking on my window. I live on the fourth floor.
-Normally I wouldn’t reach out here but I don’t know where else to post this. A few days ago someone started knocking on my windows. The problem is that I live on the fourth floor. On Monday we finished the proceedings for the passing of my Grandmother. That day was filled with the standard apologies for loss from family and friends but I didn’t know what to say. I was never close with her in my adult life and this honestly felt like an unexpected blow. I figured maybe we would have had more time to make things up but I woke up one day and boom that’s it. I still had so much I wanted to say and it had been years since we spoke. Even longer since I had a conversation sober. I quit the bottle but was still too scared to reach out and now I figured I would have to live with it forever. 
+# I saw my friend in my backyard at 2 AM. Now no one is acting normal
+Im not even supposed to be awake. Its a school night, and my Dad would lose his mind if he knew I was still scrolling on tiktok at 2:00. But my brain wouldn't shut off, my room feels hot and itchy, I needed some water.
 
-Monday night she spoke to me with a wispy breath.
+The house was stupid quiet. Not the peaceful type, The heavy kind. I pushed open the kitchen door and the floor squeaked under my heel, Loud in the dark. I grabbed a glass and let the tap run, staring at that tiny reflection in the window. My eyes looked tired.
 
-“I’m here.”
+Then I heard a crunch, then another, then 2 more. It kept going. Footsteps, slow and steady, rhythmic almost. I froze, holding my glass halfway to my mouth. Racoons don't walk like that, neither do deer, this was human.
 
-I froze. The lights were off and I was half awake but I swear I heard it clear as day. My grandmother’s voice, dim and quiet but with a strong rasp.
+I killed the kitchen light so whoever it was wouldn't see me, then eased up the blinds with two fingers. My stomach dropped straight through the floor. It was Darius.
 
-I slowly slipped out of bed and went to the window. I live on the fourth floor, it’s not like someone could have been messing with me but I swear it came from outside.
+Barefoot, walking towards the trees behind my house, he walked with purpose, almost like he was being pulled by a rope. His arms hung loose by his sides. His head didn't look around. Darius wasn't wearing a jacket though it was cold enough to see my breath fog the window; in fact he wasn't even shivering.
 
-“Let me in.”
+He just walked. Straight, silent, smooth, like he had rehearsed it hundreds of times. My mouth dried out, I didn't even think, just whispered:
 
-Again it flowed through the closed window like a breeze. My blood ran cold. I knew logically it couldn’t be her, we buried her. I watched it happen. But she’s talking to me right now. 
+“Darius, what the hell are you doing?”
 
-I ran to the window after turning on my light and saw nothing. Just the same skyline view as always. I looked down and could even see a single neighbor walking on the sidewalk. 
+He didn't stop, though why would he, Its not like he could hear me. He just kept walking. I stepped outside, barefoot on the freezing cement, breath shaking in front of me. “Darius?” I said again. “Dude, are you good?”
 
-I figured I must have started to lose it at this point. Maybe I’m so upset with her passing I’m imagining things. Maybe I’m just that exhausted from the last several days of setting up arrangements for the funeral. 
+Nothing, not a single reaction. He reached the first line of trees and disappeared into the dark. I stood there for what seemed like hours, waiting for him to come back out. He didn't.
 
-I wake up and life continues as normal. I work my job, come home to my studio apartment and get ready to unwind. Turn on the TV and white noise fills the modest space. As night approaches I ready myself slightly fearful for the daylight to end. I decided I should take a melatonin to sleep and get through this as quickly as possible. 
+Eventually I went inside, locked the door, and lay in bed staring at the ceiling until the moonlight faded to sunlight. Feeling like I'd seen something I wasn't supposed to.
 
-I woke up at 2:15 am to the sound of a woman crying. It was loud, ear piercing screaming of pain. I bolted from my bed scrambling to find the culprit of this unexpected cacophony. I look out the window in the dark and see a reflection of a shadow screaming. As soon as I lay eyes on it, the figure and sound disappear. 
+By the time I got to school, I felt like I'd been hit like a bus. No sleep and a looping mind, Made me feel like shit. I walked into first period, and my heart actually skipped.
 
-“Please it’s so cold, let me in”
+Darius was already in his seat. Wearing clean clothes. Hair perfect. Smiling at the worksheet in front of him, he couldn't actually be exited to be awake at this time.
 
-Her voice again. It’s different but it’s her voice. Scratchier than ever, she sounds sickly. I heard she died quickly from the accident but this sounds like agony. I reached to the window to feel where the shadow was.  
+“Yo” I said as I slid into the desk next to him, voice low. “Where’d you go last night?”
 
-My windows don’t open. They’re sealed shut and never had any opportunity to open in the first place. This apartment was an old hospital prior to a renovation and had been sealed for decades. 
+He looked up at me with a calm expression i’d never seen on him. Darius is usually twitchy, always tapping his pencil, bouncing his leg, and cracking stupid jokes.
 
-“Grandma, I hear you.” I whispered back, still not quite believing what I was hearing. 
+But this version blinked once, really slow.
 
-“Please dear, let me in.” she whispered back.
+“What do you mean?” he said. “I went to bed early.”
 
-“Grandma, I can't look at the window, they’re sealed shut.”
+“You were outside my house,” I said. “Like… at two”
 
-I wanted this to be real so badly. I hadn’t had time to talk to her sober in so long, I wanted her to see that now but I missed my chance. Not this time, not again.
+He tilted his head like a confused dog. “I wasn't anywhere near your house. Malcolm.”
 
-“Grandma please, I am so sorry. I”
+He said it so logically, so politely, I almost doubted myself. Almost. The weirdness didn't stop there. At lunch, this girl named Maya, who literally had a whole EpiPen situation because shes allergic to strawberries, sat down with a yogurt cup that had bright red chunks in it.
 
-My words were cut off by a sudden shriek and the sound of something hitting the ground four stories down. I was so taken aback I just froze in place. I tried to look down but couldn’t see where anything landed. 
+Her friend said, “Maya, isn't that dangerous for you?”
 
-“Grandma? Are you there?” 
+Maya just smiled with a distant look and said: “Are you calling me fat, you bitch” she said it jokingly, in my memory she had never made a funny joke before, this was out of character. But then she ate it, like nothing was wrong.
 
-Nothing. Absolute silence overtook the space again.
+In third period, my math teacher gave a whole explanation about linear quotations without blinking. Not once. I stared at her eyes the whole time. They stayed still, glass like, Terrifying.
 
-The next day I went by where I heard something fall but saw nothing. No bird, nothing. Usually if I hear a big bang I just assume it’s a bird that wasn’t paying attention but no this was a distinctively loud noise of something splattering. 
+By the time the final bell rang, I felt like my brain was unspooling. My shirt felt too tight. My hands were shaking. My heart wouldn't slow down.
 
-Work was difficult that day, I could barely keep my eyes open after the night I had. I shuffled through the day like a zombie and managed to make it home eventually. As soon as I got settled in I slept with no intention of waking until the early hours of the day. 
+I kept thinking about Darius disappearing into the woods and coming back out like nothing happened. Like someone pressed reset on him.
 
-BANG
+I ended the day whispering to myself, “What the hell is happening?”
 
-I look out the window to see a shadow staring at me. Just the head and fingers are visible as if it is just creeping over the window. After staring for a moment it doesn’t move. I had expected it to dart off again into the night like last time. I walk to the window and hear a muttering. 
+And for the first time in my entire life (Other than when my uncle was staying over), I was scared to go home.
 
-“I know you can hear me won’t you please let me in? I’ve missed you so much. I wish you were dead instead of me.”
+I actually slept.
 
-My heart dropped. I didn’t know what to say. I had thought the same thing when I had heard the news in my darkest moments but to hear it said in her voice shook me to the core.
+Not great sleep, the kind where you wake up ten times and your dreams feel like blurry static. But enough that my head wasn't pulsating anymore. When I opened my eyes, sunlight was leaking through my blinds in these soft yellow bars.
 
-“You know I never wanted you. Let me in and we can finally be close again.”
+I almost convinced myself that yesterday didn't happen. That maybe I was tired, hallucinating, being dramatic.
 
-This didn’t sound like my grandmother. She may have been strict and uptight but she would never say such awful things. I looked down and noticed a window opener. A small device I could open this sealed window with that had never been there. I stared at it and my arms moved intrinsically. I hadn’t started intentionally moving my hands but I could feel them wrap around the knob and begin to twist. With a rush I quickly fought to regain will over my body’s movement. 
+But then I remembered how darius walked. The bare feet. The blank face.
 
-“No please this isn’t real this isn’t real this isn’t real.”
+And the weird things at school. It all piled into my chest. I needed answers. I couldn’t sit in my room scrolling on TikTok all day, pretending nothing happened.
 
-I started shaking as my hands went back to my sides as I felt a slight breeze coming into my stagnant apartment. Fresh spring air. I looked to see the edges just barely open. The air has gotten bitter. I tried to leave but my door doesn’t have a lock or handle anymore. 
+So I got dressed, grabbed a hoodie, and decided to go back towards the woods.
 
-I yelled, hoping to get the attention of my neighbors screaming to the high heavens begging for someone to come inside my apartment. That was three days ago. I’ve begun to run out of food and every night she has asked to come inside. Tonight I’m going to let her but I needed to reach out here first. If you don’t hear from me again, please, someone come check 417 at the Flats.
+Not the spot behind my house, I didn’t want to see Darius again. I went the other direction, deep, past the creek then past the hiking trail. As far as my legs would take me.
 
+The woods felt corrupt the farther I walked. Quiet, dead quiet. No birds, no crunch of animals, just my own breathing and the wind brushing through branches.
+
+About two miles in I saw it.
+
+An old barn, leaning sideways, to tired to stand straight. Red paint peeling off. Rust on the metal roof. Broken windows. It looked abandoned for years.
+
+I don’t know why I felt pulled to it. It wasn’t curiosity, but a feeling in my stomach dragging me to it. Step by step.
+
+I opened the door. It groaned open slow, it was warning me. Inside the place smelled gross, dust, mold, and something else. Something putrid, rotten, it smelled like raw meat left out in the sun.
+
+The floorboards creaked underneath my shoes. Light leaked through holes in the roof in skinny little beams.
+
+My foot hit a loose plank, I looked down. The board shifted and the smell got ten times worse. I crouched down and pried it up with my fingers.
+
+Even though everything in my brain screamed stop. The wood broke surprisingly easily, like someone had opened it before.
+
+I lifted the plank. And I saw faces.
+
+People, stacked like trash bags. Gray skin, twisted arms, half covered in dirt. Eyes open on some, closed on others.
+
+I recognized some immediately.
+
+Maya. hair still in a bun, but her skin pale and sunken. Her lips blue.
+
+Darius. The real Darius. Jaw slack, shirt torn, blood on his cheek.
+
+I stumbled back so fast I hit the wall behind me. My chest felt like it was collapsing. My eyes burned, I couldn’t breathe. I vomited, I vomited a lot.
+
+The truth hit me like my dad does.
+
+The Darius at school yesterday wasn’t Darius. The Maya at lunch wasn’t Maya. They were fakes. Copies. Something wearing their faces.
+
+I wanted to run, but before my body could move. Footsteps. Right outside the barn. Heavy, slow.
+
+I froze.
+
+Someone was here.
+
+I dropped to the ground and crawled behind an old metal feeding trough, my heart was beating so loud I was convinced whoever it was could hear it.
+
+The barn door creaked open.
+
+A man walked in. Tall, wearing dirty jeans, mud up his legs. His shoulders were hunched, head hung low. Shaking slightly like he was trying to fight off a migraine.
+
+I didn’t recognize him.
+
+He walked to the center of the barn. Stood perfectly still. Lifted his head toward the ceiling. Reached into his jacket. And in an instant he held a gun in his hands.
+
+My hand was shaking so hard it hit trough with a tiny ding. The man turned in my direction, he spotted me instantly, we made eye contact. He put the gun to his temple, and with a tear rolling down his cheek. He collapsed.
+
+My ears rung, I slapped my hand over my mouth, tears filling my eyes. I wanted to scream, but I couldn’t move. Couldn’t breathe, because the worst part hadn’t even started yet.
+
+The man’s body twitched. At first just a little. Then violently, something was waking up beneath his skin.
+
+His chest expanded unnaturally, stretching the skin tight. His stomach started bulging upward. Then, it grew. A mass. Black red, wet, pulsating like a heart. It pushed up through his throat, through the hole in his skull, out of his mouth, out of his eyes, stretching them until they tore.
+
+I clamped both hands over my mouth to keep from gagging.
+
+The mass kept growing then began to shift. Bones formed inside of it, snapping into place. Skin stretched into the new shape. Hair sprouted.
+
+Then standing over the man’s corpse, was a perfect copy of him.
+
+Same height. Same face. Same haircut. Same everything.
+
+Except its eyes. His eyes were so still, so clean. Like a babies eyes straight out of the womb. The copy wiped a smear of blood from his cheek with mechanical calm. It undressed the corpse. Replacing its naked body with the blood stained clothes of the dead man.
+
+Then it grabbed the dead man by the wrists, dragged him to the hole in the floorboards, and shoved him inside. Right next to Maya, next to Darius, Next to the others.
+
+It pressed the plank back in place. Then it turned, straightened its shirt, rolled its shoulders back into perfect posture. And walked out the barn like nothing happened.
+
+No rush, No nerves, Just calm, smooth, practiced movement.
+
+I stayed hidden behind the trough long after its footsteps faded, shaking so hard my teeth clicked. The world wasn’t what I thought it was anymore.
+
+And I knew without a doubt
+
+Something is replacing people in my town.
+
+That’s what caused me to post here, I need to know if it’s just my town. If you can see this post, please let me know if my town is the only one. I’m scared the world will never be the same.
