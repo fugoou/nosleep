@@ -1,36 +1,515 @@
-# I've Always Been the 'Good Kid.' Last Night, I Did Something I Regret
-I am a nerd, a guy who was the “good boy ” from the beginning of my studying career, my student life, all the time. But I am extremely bad at social, I think everyone else will betray me and can’t be reliable, except for my achievements on papers. In the expectation of my parents, my teachers, and my professors. I grew up, I graduated, and I became a teacher like them.
+# My Landlord Warned Me Never To Press the 7th floor Button. I Should Have Listened.
+My new apartment felt safe until my neighbor asked me if I’d ever been to the 7th floor.
 
-My parents felt proud of me. But to me, I sometimes felt life is dull and inactive, boredom, the daily routine makes me bored, the same thing repeated again and again and again. My boredom told me I need to seeking for something, out of my long life of books and lectures.
 
-I been assigned with another guy called Bob, he was as boring as I was. Even worse, he can’t make sense of gaming or some leisure activities, I thought. We often work to the midnight together, but without any nice entertainment after work.
 
-One day, I can’t tolerate it anymore, but perhaps it is the worst thing I have ever done since my perfect performance at every stage of life. I regretted until today.
+“Okay, so the locks have been changed. This one is from the front door, and this one is from the apartment door.”
 
-There are really just a few days before Halloween, the festival long forgotten since my childhood. Today, it been picked up by me again, in a way more interesting, but bizarre, or disturbing. As I thought after.
 
-I cut a piece of paper into the shape of an oval, yes, really a nice oval, as perfect as my life. I made some holes in it, making it as scary as I could, then I used my finest skill to achieve the maximum effect under the dim light of our office. The simplest plan for punishing another boring nerds just done.
 
-During the night, Bob was also working very late; his students had an exam, including writing, massive writing, and he had to mark them tonight. I opened the door swiftly but quietly. Tried to make the sound as low as possible, as a mice sneak from the shadows of the kitchen.
+“Thank you.”
 
-I close to him, waiting, with the mask on my face, waiting, patiently, and imagine what his face will be like, his terrified face, even might not achieve my goal. But at least entertainment enough tonight, some nice stimuli,
 
-Finally, after 10 mins which passed like eternity, he turned his back, and, certainly, being shocked, his face turned pale, like the paper, his eyes opened as large as the moon, his mouth big enough to put the whole egg inside. His screaming amused me, he just fell on the floor and looked like he shortness of breath when he pressed his chest.
 
-I felt a bit myself. I don’t want to be a murderer when his breath went thin. I took off the mask in a hurry. And squatted down, put my hand on his back to comfort him. “I am so sorry, Bob. I did not mean to be like that. I am Mike, you know, and I was just trying to play a trick or trick game tonight. Are you ok? Are you ok?”
+Denis turned around and began walking down the hall.
 
-But what he said truly terrified me.
 
-“No, I am not ok, my nice colleague, I know it was you, from the time you came into the room with that childish mask. I am not afraid of you, what I fear”.
 
-His face pale more this time, his breath seemed more violent, more frequent because of fear, and from his shivering mouth, he spoke a word one by one.
+I was about to close the door when he burst back in.
 
-“What… I fear… isn’t you, is…the…mask at…at… You back!”
 
-His finger pointed at my back as his expression went to a bizarre state of fright, with shivering. I also turned around slowly.
 
-There wasn’t just darkness at my back; there was a man, or exactly, a man with a mask, the mask the same as mine, but more terrified, closer to the nightmarish figure. The figure was tall, very tall reach the sky, in its emotionless, pale face, twisted nose and eyes, they seemed like been pressed together, but his eyes, his eyes were the most terrified.
+“Also, one last thing. The 7th floor is closed up. You can’t get there by stairs, but the floor is still on the elevator. The elevator shouldn’t go there, but don’t press it.” He walked away.
 
-His eyes don’t have any white part, only darkness; the abyss is glaring me,
 
-and I am glaring back.
+
+My neighbour John came over that day with a box of chocolates and a warm introduction. He invited me over for some tea. 
+
+
+
+“Are you married?” He asked.
+
+
+
+“No, not anymore.”
+
+
+
+“I’m sorry to hear that.”
+
+
+
+John tightened his lips and nodded. His beautiful small dog then came into the room. He quickly shifted the conversation to him.
+
+
+
+We continued talking for another 15 minutes, then John excused himself. 
+
+
+
+Over the next few weeks, I saw him almost every day after work, coming into the building with his dog. We would chat on the elevator, and on some days, he would invite me to his apartment.
+
+
+
+I had grown a fondness for John. Being away from my family and friends was unpleasant, but his presence and the conversations we had made it easier. His personality was warm and kind, and he made me feel safe. Plus, I loved his little cute dog.
+
+
+
+One day, I was back on my way from work. I saw him coming into the building, but he didn’t have his dog today. He waved at me and held the door as I came in.
+
+
+
+That night, I didn’t sleep too well.
+
+
+
+As always, John could tell something was wrong.
+
+
+
+“Still thinking of Jenny, huh?”
+
+
+
+“How do you know her name?”
+
+
+
+“You told me before.”
+
+
+
+“Oh, okay.”
+
+
+
+“Well, I got something to cheer you up.”
+
+
+
+“Have you been to the 7th floor before?” he said as we got on the elevator.
+
+
+
+“No, Denis said it’s blocked off.”
+
+
+
+“Yes, for tenants, but not for apartment owners. I have some stuff stored up there. You wanna take a look?”
+
+
+
+“Sure.”
+
+
+
+John pressed the button. The elevator rattled and began going up.
+
+
+
+First, second, third floor.
+
+
+
+“Our floor,” John said jokingly and winked.
+
+
+
+Six, seventh floor.
+
+
+
+The elevator stopped.
+
+
+
+A ding.
+
+
+
+The door didn’t open.
+
+
+
+I stared at the door, not blinking, waiting.
+
+
+
+Nothing.
+
+
+
+A chill ran down my spine.
+
+
+
+“Um….John?”
+
+
+
+He was looking at the door with contempt.
+
+
+
+His eyes were glowing red.
+
+
+
+Then the elevator started shaking violently.
+
+
+
+Blood froze in my veins.
+
+
+
+I had to grab onto the bar.
+
+
+
+“Jesus.”
+
+
+
+John stood still.
+
+
+
+Then the shaking stopped.
+
+
+
+The door opened.
+
+
+
+A dark, cold, and empty hallway.
+
+
+
+“Come on,” John said and waved his hand.
+
+
+
+His eyes were normal again.
+
+
+
+“What was that, John?”
+
+
+
+“No one really goes up here; it makes it rattle a little.”
+
+
+
+“A little?”
+
+
+
+“Everything okay?”
+
+
+
+He put his hand on my shoulder.
+
+
+
+I let out a loud sigh.
+
+
+
+“Yeah.”
+
+
+
+“Okay,” he said and smiled.
+
+
+
+John then walked over to the wall and pressed the switch.
+
+
+
+It flickered in a dim yellow light.
+
+
+
+The walls were grey with large pieces of plaster peeling off.
+
+
+
+A moldy, damp odor reeked.
+
+
+
+The hall went on and then split in two directions at the wall.
+
+
+
+The sound of John’s steps echoed weirdly, almost as if they were coming from behind me.
+
+
+
+“To the left.”
+
+
+
+John walked swiftly, faster than I had ever seen him before.
+
+
+
+The hallway would turn corners, but it looked the same.
+
+
+
+No old doors, no storage units.
+
+
+
+It gave me goosebumps.
+
+
+
+I kept looking back behind us.
+
+
+
+“John, where are the storage units?”
+
+
+
+“Wait.”
+
+
+
+Another turn.
+
+
+
+A hall much longer than the others.
+
+
+
+Rooms with steel bars.
+
+
+
+“Here,” he had a strange, cunning smile. 
+
+
+
+The storage units were mostly filled with Christmas lights, old clothes, old toys, and random boxes.
+
+
+
+Then a mostly empty one.
+
+
+
+Except for a car seat, half burned and scraped.
+
+
+
+In another, there was a children’s car seat.
+
+
+
+John was at his storage unit looking through his pockets.
+
+
+
+When he saw me come over, his face twisted in an unnatural, wide grin.
+
+
+
+My heart dropped when I walked closer to him.
+
+
+
+In the unit was a half-broken car.
+
+
+
+“You recognize this?” His voice was crackling and deep.
+
+
+
+“What…How did you get?”
+
+
+
+He was now standing next to it, smiling.
+
+
+
+“You know what this is, don’t you?”
+
+
+
+“What’s happening, John?”
+
+
+
+“You tell me. Why did you lie to the police? Why did you say you didn’t drink that night?”
+
+
+
+The car started burning. The smell of burned fuel filled the room.
+
+
+
+I jumped back and tried to get away, but the hall to the left was only a wall.
+
+
+
+“What about your wife and daughter?” John’s eyes turned dark red, and his face went black.
+
+
+
+The car rattled.
+
+
+
+Two people now sat in it. 
+
+
+
+A woman in the front seat. 
+
+
+
+A small child in the back.
+
+
+
+It was my wife and daughter.
+
+
+
+They were screaming, crying, banging on the seat and windows.
+
+
+
+“No, no, no.”
+
+
+
+My body slowly slid to the ground, and tears began pouring out of my eyes.
+
+
+
+I lay on the floor curled up in a ball.
+
+
+
+Darkness flashed in front of my eyes.
+
+
+
+I was in the car now.
+
+
+
+The heat slowly surged to a painstaking burn.
+
+
+
+The extreme heat was unbearable.
+
+
+
+Soon, smoke filled my lungs.
+
+
+
+I started coughing and choking.
+
+
+
+My lungs felt like two heavy bags.
+
+
+
+I banged on the windows, trying to get out.
+
+
+
+The screams of my wife and daughter.
+
+
+
+So loud I could feel my eardrum burst.
+
+
+
+A ding.
+
+
+
+I quickly shuffled around, feeling my body.
+
+
+
+No more burning.
+
+
+
+I was inside the elevator again, lying on the ground.
+
+
+
+The floor felt cold on my skin.
+
+
+
+No one around.
+
+
+
+Outside the door was the hall to my apartment.
+
+
+
+I slowly got up and stumbled to the door.
+
+
+
+Not knowing what to make of what happened.
+
+
+
+I tried to knock on John’s door, but no answer.
+
+
+
+The next day, I called my landlord.
+
+
+
+Apparently, that apartment has been vacant for a while.
+
+
+
+A man used to live there.
+
+
+
+He died in a fatal car crash, in which a mother and a daughter also passed away.
+
+
+
+The father made it out alive.
+
+
+
+This will be my last post on Reddit for a while.
+
+
+
+Tomorrow I’m gonna go to the police and tell them what actually caused the crash that killed my wife, daughter, and John.
+
+
+
+I survived the fire once, but I won’t survive it again if I keep lying.
+
