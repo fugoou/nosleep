@@ -1,93 +1,33 @@
-# I Joined a Game of Hide-and-Seek on the Dark Web Part 10
-Terror welling up [again](https://www.reddit.com/user/DantesGhost92/comments/1egjxu1/i_joined_a_game_of_hideandseek_on_the_dark_web/), my eyes darted across my surroundings. A couple of buildings down, I saw something. It wasn’t ideal, but the slamming of those heavy combat boots reminded me it would have to do.
+# The shadow on my ceiling
+I was hellbent on getting my deposit back once I move out of this place so I made sure to take pictures of everything on the day I moved in. That’s how I know, it wasn’t here back then. I needed to make sure, because I felt like I was losing my mind, but looking at the pictures it’s true. The shadow is new.
 
-Charging toward it, I darted inside. It was a store, an older one from the looks of things. Scaffolding coated the outer walls like a metallic spider's web, while the inside seemed stripped to its bones, the renovations nowhere near complete.
+I first noticed it a week ago. I turned off the TV, since I was done with the movie I was watching. I laid back and closed my eyes. When I opened them back up, I saw it. A small dark spot at the ceiling of my apartment. About 5cm in diameter. It was pretty much the same colour as the surroundings, but a couple shades darker.
 
-I prayed to god that it was empty. If by some miracle I’d managed to avoid that masked woman, the last thing I needed was the commotion of an angry construction crew.
+ My first thought was water damage, so I took a picture and called it in immediately. I asked the person living above me if they’ve noticed anything, but apparently, they hadn’t. They even showed me the spot directly above it at their place. Nothing out of the ordinary.
 
-To my relief, there was no one inside, and no sounds from further within. The place felt like a ruin. Parts of it were stripped down almost to the bare frame, the aged wood exposed to the air for the first time in I don’t know how long. Without the overhead electric lighting, the place was gloomy and dismal.
+I waited a couple days and the stain began to grow. I felt like it was about as large as my face at this point. My landlord hired someone to investigate potential water damage, but according to them, there was none. So here I was, perplexed. I decided to keep monitoring it. Maybe I was doing something that was causing this stain to grow without knowing it?
 
-The footsteps echoed louder in here, reverberating in the empty space as she closed the distance. I needed to get out of sight.
+It grew by a lot. But not in a circular shape. It grew, like it was trying to resemble something specific. I grabbed a ladder to see if I could remove it somehow. It was dry to the touch. I used five different cleaning agents and made sure to have them soak into the ceiling. Once it dried it looked exactly the same as before, Larger though I guess. It was still growing.
 
-Materials littered the floor: bags of insulation, reels of cable, and sheets of drywall, but nothing useful. Nothing I could use to defend myself. I made my way further inside, questioning all the while if I’d just signed my own death warrant by coming in here.
+The next day, when I turned off the light, I couldn’t see it anymore. Sure, it was  
+ dark, so maybe that’s it. But it didn’t feel like that was it. It felt like it wasn’t there anymore in the dark. I couldn’t make out the colour at all.
 
-Towards the far end was what I assumed would be an office or store room. With only a few wooden boards differentiating it from the main storefront, it was hardly any better. Rounding the entrance, my heart sank as I looked inside. In addition to more of the same materials, leaning against the far wall was a large pile of what I thought could be custom panelling, based on the brickwork pattern. No doubt the finish for the walls.
+I turned the light back on and I swear it was not in the same spot as before. It hadn’t moved much, one centimetre at most, but with how much I’ve investigated it the past couple days I could see the difference. I decided to leave the living room lights on.
 
-There was nothing. Nowhere to go.
+The next morning, walking into the living room, I could tell what it was immediately. A human shadow. It looked like it was stuck in the middle of doing a jumping jack. It was still in the same spot though, so leaving on the light must’ve been a good idea.
 
-I had to have missed something; this couldn’t be it. Frantically glancing around again, I was about to turn back into the main storefront to look for a window or… something, when a small patch of light towards the back of the room caught my eye.
+It was freaking me out too much now, so I decided to get help one more time. When I left the living room though, I instinctively turned off the light. The curtains were still drawn, so the room was now completely dark. Just as I realized what had happened, I felt something bite my foot from behind. I immediately turned the light back on and looked at the shadow. It was gone.
 
-Casting a slight glow in the gloom, I slowly stalked towards it, aware of the footsteps from the street getting louder. As I rounded a stack of panelling, I could make out a small hole in the far wall where a section of drywall was missing. The light from beyond spilled through, cutting across the barren floor.
+It wasn’t gone. Looking down at my foot, I could see it, now on the floor, with my foot standing on top of it. I reflexively moved away. It was still in the same position as before. Stuck in the middle of doing a jumping jack.
 
-Quickly scurrying over, I poked my head through. It led to what I assumed was a service corridor, or at least another corridor that linked the backrooms together. Light was pouring in through an unfinished window further along the opposite wall.
+ I ran, but only after making sure that all the lights in the apartment were on. I called some friends and had two of them agree to come back with me. I was grateful for that, because I knew how crazy I probably sounded.
 
-An idea formed, quick and incomplete, but it was enough.
+ I was shaking when I put the key in the door, but I pulled myself together and opened it. Darkness. The lights were not on anymore. I could see sparks coming from the breaker box and the apartment was completely black.
 
-Grabbing a piece of the custom panelling, I ran back over to the hole and leaned it against the wall. After wiggling it around a little, I could place it so that it blocked out the hole and the light. It wasn’t perfect, there were a few spots where the light seeped in if you looked from a certain angle, but it looked inconspicuous enough… I hoped.
+I stepped in with one foot expecting the worst, but nothing happened. I continued inside. Thankfully turning on the switches in the breaker box turned the lights back on.
 
-Wasting no more time, I slid it back out of the way, scrambling through before edging it across as carefully as I could until it sat almost flush. Resting with my back against the wall, my ears strained for the Organiser's footsteps. She had to be right behind me now.
+We searched the entire apartment but the shadow was gone. We checked behind every piece of furniture, any place we could have missed but nothing. I haven’t gone back to the apartment since.
 
-The light from outside stung my eyes. Still waiting for the window to be fitted, it cascaded through the open brickwork further along the wall and into the corridor. Squinting toward it, I could clearly see the street through it.
+ I’m currently staying at a hotel, keeping the lights on of course. Looking back at it, it doesn’t feel real. But I can still see the shadow on the image I took for my landlord and the bitemarks on my foot are as real as it gets. I don’t know how to continue now.
 
-A flash of silver caught my eye, moving quickly before coming into focus. When I finally made it out, my legs nearly gave way. Instantly dropping to a crouch, I pressed myself even harder against the wall.
-
-The van, the silver van. If I’d noticed them a few seconds later, there was no doubt they’d have seen me standing there.
-
-My heart was pressing hard against my ribs, every pulse ringing in my ears. Then the clacking of all too familiar heavy boots reverberated around the deserted space. She’d caught up.
-
-I could hear them clearly, edging closer. They were slow, deliberate, but all the while unrelenting. And they were heading this way.
-
-My hand began to tremble as I remembered the look she'd given me in the alley. I could imagine her clearly, taking her time, checking every inch of space, knife at the ready as she steadily headed towards me.
-
-An almighty metallic crash caused a yelp to catch in my throat.
-
-“I know you're in here, David, just come out. I promise I won't bite…”
-
-Her voice, feminine but with a rough undertone as though she’d been smoking a pack a day for some time now, did nothing to hide the malice in her words. I didn't dare move, hardly even dared to breathe. As the footsteps drew closer, it took all I had to stop myself from trembling.
-
-Then, they came to an abrupt stop.
-
-“David, seriously, you'll have to do better than that…”
-
-Another crash, it sounded like paint tins or something, but much closer, followed by a grunt of annoyance. I heard the footsteps start up again, stalking around the room on the other side of the wall.
-
-Each moment felt like an eternity. All I could do was crouch there, waiting….
-
-Again, they came to a stop, what sounded like inches from me this time. I waited, shuddering with barely restrained tears, for the panelling to be torn away, replaced by the broken porcelain mask.
-
-She was so close, the smell of the stale beer I threw at her invaded my nostrils. My breath caught in my lungs, and for a moment, I was almost certain she was going to hear my heart trying to burst through my chest. This was it, any minute now.
-
-I don’t know how many agonising seconds passed by. My legs were starting to seize, my thigh muscles spasming in protest, when her voice cut through the air, startling me.
-
-“He's got to be in here, unless you dipshits let him sneak past you”
-
-She was talking to someone, she had to be, but there was no other voice. A spike of anxiety shot through me. What if she was talking to herself?
-
-I knew the Organisers were unhinged, but what if she was legitimately crazy?
-
-“Yeah, I know they’ll be here soon, but the boss wanted both of them”
-
-No, she was definitely having a conversation. It took me a second to work it out, but then it clicked.
-
-They were using wireless mics.
-
-The footsteps started back up again, accompanied by the occasional scraping and scuffing sounds. She was still searching for me. The frustration in her grunts, as she knocked what sounded like the pallet of paneling across the floor, was unmistakable. I couldn’t help but glance at the sheet of panelling obscuring me, the only thing covering my little hiding spot. If I didn’t know any better, I’d have sworn it had moved…
-
-“The kid saw us taking the girl, the fuck else was I supposed to do?”
-
-Another pause, she was talking about that poor kid in the alley.
-
-“Whatever, he’ll turn up again soon, just keep your eyes open.”
-
-The sounds of her searching stopped, and the footsteps started up again. My hair stood on end as they edged closer, inches away from me this time. I couldn’t break my eyes away from the panelling, had she noticed it finally?
-
-Sweat that had been beading on my forehead chose this moment to spill into my eyes. The salty liquid stung as it pooled in my eyelids, but I didn’t dare move to wipe it away. I didn’t make a sound, no matter how imperceptible I thought it would be. Not with her standing just inches away.
-
-My eyes burned as I blinked frantically, but every blink seemed to introduce as much sweat as it removed. I didn’t know how much longer I could stand it. I was seconds away from giving in, from wiping my face, when the footsteps turned. In an instant, they faded away towards the front of the shop.
-
-In the distance was the unmistakable sound of a van door opening, then slamming shut. A scream of rubber tearing at the asphalt soon followed. As soon as they had started, the sounds faded to nothing, leaving only the pounding of my heart ringing in my ears. 
-
-My legs were screaming at me, begging me to break from the squat I was in, but I didn’t dare move. I could hardly believe what had just happened. It was several more minutes before I started letting myself believe that they’d gone.
-
-Even now, my legs sting when I think back to crouching there, not quite believing I’d escaped. I should have just stayed there… maybe things would have been better. I’ll try to post again soon, but things have been getting difficult…
-
+Maybe one of you has some idea? Some knowledge on what this thing might be? One thing for sure. I’m not going back there.
