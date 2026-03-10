@@ -1,144 +1,92 @@
-# Holy Parasites
-Often, I've seen these TV shows and movies depict the devil using a pentagram or an upside-down cross as his symbol, but in reality, it's nothing like that. From my experience, he'll take the cross and pervert it to his own desires. I know this because I've witnessed it firsthand. In America, we're infested with these holy parasites that leach off the land's inhabitants for not just wealth, but they feast on belief. Taking it, twisting it, and when it spits you out, you're the antithesis of everything your faith once stood for. When did it begin? Some say it began with traveling tent revivals, others say they began in rented out buildings and town halls. I can't say the true origin of their spread across this continent, but I can attest to how one took root in my hometown.
+# The Deserted Village [Part 3]
+I don’t remember falling back asleep, only jolting awake when someone shook my shoulder. I turned, bleary eyed, to see Stephen’s beaming face, his red hair blinding me.
 
-My name is Jimmy, and I am forty-seven years old, and I've attended my Church since I was a baby. It was always a regular part of my life, and I had enjoyed every second of it. I gained knowledge, wisdom, helped my community with charity, and I've also gained many lifelong friends. In recent years, it dwindled in popularity due to the town's growing callousness. We'd welcome folks of any race or sexual orientation. That may not sound so controversial in a big city, but in a rural town like our own, it was looked down upon. Our crusade to welcome everyone and love our neighbor has been met with hatred and resentment. But no one said that following Christ's teachings would be easy, even in the face of those who claim to know him. We stuck to our guns, and no matter the risk, because that was our profession. Of course, I say all this, and I'm not even technically part of the ministry. I'm just the caretaker of the Church.
+“Rise and shine, Niall,” he chirped, already dressed, munching on a cereal bar. 
 
-One day, while I was mowing the grass out front, a fancy car drove up to the Church (I don't know the type of car, I'm not a car person per se). Two men in dark shirts with pistols holstered at their sides exited the vehicle, looking around at the environment and then to me. I stopped mowing and waved at them. They did not wave back. One of them said something to the other, and then a third man came from the vehicle. From the back seat, I saw a man, or what was shaped as a man, stagger from the vehicle. He wore a clean navy blue suit with a matching tie, upon his wrist was a golden Rolex, and he had a ring for every finger. When I saw his face, I knew that he had work done; his skin was pulled back so tight that it looked as if it were made of wax. His eyebrows were pulled up in a perpetual expression of surprise, but the worst part was the teeth. Bleached white, big, and all of them were the same shape. They sat in the grey gums like someone shoved ivory in old gum that had been stuck underneath someone's shoe. His eyes were wide as he looked around at the town, and then he gazed at the Church. The eyes grew bigger, looking like they were going to bulge outwards.
+I grunted and turned away, burying my face in the soft grass. I didn’t even care about the dew wetting my face.
 
-"Gorgeous!" He said, "Utterly gorgeous!"
+“Come on, lazybones,” Stephen tried again, “You don’t want to sleep the day away, do you?”
 
-I waved at him, and he snapped to my direction.
+I let the silence be my answer. Pulling my beanie down over my eyes, I curled into a ball, returning to the warm embrace of sleep. I wanted to cook in my sleeping bag.
 
-"Hello."
+“Alright,” I heard Stephen sigh, “We’ll let you sleep more, but come find us when you do eventually get up.”
 
-"Why hello to you, too!"
+I grunted, sinking back into the darkness. Before I did, I caught the tail end of the pair’s conversation,
 
-He approached me with janky steps, and the security followed him. He extended his hand, and it was a sea of wrinkles and spots, but I took it anyway. His grip was stronger than I expected. He pulled me in close,
+“I’m missing a water from my bag,” I heard John Joe say, followed by the zip of a bag.
 
-"My name is William Wyrm, boy! This is one beautiful Church you got here!"
+“Have one of mine,” then, the sound of chewing made me burrow further into my bag.
 
-"Thanks, I help maintain it. If you want people to come, you gotta make it look pretty."
+When the pair finally left, jumping over the wall, their shoes scuffing the stones, I never realised just how comfortable grass could be, even with the chill of morning dew. My cheek went numb, but the rest of me was blissfully warm. I turned my head, the dew followed. Teetering on the border between sleep and the waking world, I felt a cold droplet drip down my cheek, almost like cold fingers were tracing patterns on my skin.
 
-"That's right!"
+“Lads, come on,” I grumbled, sleepily, “I’ll get up in a minute.”
 
-He cleared his throat and straightened himself. His tone got slightly more serious as he asked,
+The feeling was still there. That singular droplet danced across my face, I ignored it.
 
-"Is the Pastor here at this time?"
+Eventually, I cracked open an eye. The sky was its usual grey; budding clouds bordered my vision. The promise of rain scented the air. Whilst rubbing my eyes, I noticed something next to me. A Pot Noodle, gently steaming. The other men were intent on feeding me something. The gesture should have been sweet, but it only angered me. The smell of curry sent my stomach into a familiar lurch. Ripping up a fistful of grass, I poured it out. 
 
-"Unfortunately, he's out right now, but I can give him your number if you want."
+As I did, a chill went up my spine, different than the morning dew. My skin broke out into goose bumps, the hairs on my arms stood up. I looked all around me, I was alone. Just the gentle, swaying grass, and a singular red bush, twitching by the cliff’s edge. Hiding the empty cup, I got up and stretched. The others left their bags beside me; I could tell from the bulky shape that Stephen had books more than anything. The wind was gentler today but I still put on a jumper.
 
-He grabbed a card from his shirt pocket; there was only the symbol of a golden cross on one side and his number on the back. After he gave it to me, he looked at our Church again and sighed. He walked up to the side of it, feeling the old brick and admiring the stained-glass windows.
+Leaving the cottage, back into the Irish wilderness, I thought about what to do. It had just struck 12, and the boredom was waiting for me. Shoving my hands into my pockets, I gazed out at the barren dwellings. Just as eerie as yesterday. It was the silence that did it. That heavy, choking silence. The little remnants of homes, slowly being devoured by the land, the moss and bog growing like the scab of a wound. I leaned against the wall, dislodging a loose corner. 
 
-"How old is it?"
+As I sighed, I noticed something else. Nestled by the doorway was a stacked pile of rocks. Knee high, all different shapes, piled like Lego bricks. Wait. There was more. Every ruined cottage had its own little pile. The name lumbered into my mind like a sluggish drunk. Cairns. The namesake of the village. I didn’t need Stephen to explain it to me. They were burial markers. I tried not to look at the smallest cairns. It was a nice gesture, but I couldn’t shake a sudden feeling of unease as I gazed at them. I had that cold feeling again.
 
-"I think we're celebrating 125 years this Easter, I believe."
+I shook my head, putting it down to the eerie setting. I couldn’t just stand here brooding, not all day. The only thing I could think to do was take a walk. As I put distance between myself and the cairns, my steps grew lighter, like a weight had been lifted. The tangled grass turned to muck; the ground softened under my feet. The wind picked up, it wasn’t strong but it had me shivering. It carried the voices of my friends, growing distant the farther I walked. The rough terrain eased up enough that I wasn’t tripping every second step. I wondered if I could circle the island, but judging from the ache already on my legs, it was a foolish thought.  
 
-He turned to me and smiled, his stretched face working against his expression. He nodded and then asked,
+Kicking an errant rock, I thought about following my friends, but didn’t want to feel like a little kid trailing after their parents. How would I have helped anyway? Was I going to search every rock with Stephen? Wade through the water for fish with John Joe? No, I didn’t see myself doing any of that. As my feet stumbled and squelched, I took each sinuous path I found, the sheer boredom urging me on. The rolling hills encompassed me, looming over me the further I walked. I struggled up a steep incline, pulling myself up by handfuls of grass. The ripping sounds drowned out my wheezing, I was more out of shape than I thought. At the top of the hill, as I wiped the sweat from my brow. In this corner of the world, it truly felt like I was the only person left alive.
 
-"What's the inside like? I'd love to see it!"
+I don’t know how long I stood there, gazing down at the scenery. I saw more broken cottages, abandoned farms. A snapshot of life interrupted. I slid back down the grass, tripping over the ridge of a lazy bed. Returning to the hairpin path, I stepped off it and headed down to the shore. Stephen was still in control of the cliff, no doubt tearing up the ground to look for more bones. The dirt under my feet turned to sand, and I was soon met with crashing waves, and salt on my tongue. I stood in the empty cove, alone at the edge of the world, with nothing but the wind and the waves for company. Suddenly, I felt an urge, and I kicked my shoes off. The sand was soft, gritty between my toes. With two steps forwards, the cool water lapped at my toes, and a strange feeling overcame me, one I hadn’t felt in god knows how long. I felt calm. It greeted me like an unfamiliar relative. I tried to embrace it, knowing I would never feel this way again. As the wind blew through my hair, I closed my eyes. 
 
-I had this dark feeling in my gut; it wasn't just his appearance, but there was a menace behind his words that I couldn't describe. I wanted to tell him 'no' so badly, but who was I to turn down this man? So I let him and his men in to look around. He looked at the floors and ceiling of our sanctuary, which was plain but elegant in its simplicity. It was made for endurance, not decadence.
+The calm I found was, of course, ruined. Ruined by a sound, the sound of someone hollering above me. I stood in the shadow of a cliff, Stephen’s cliff. At the peak stood a figure, waving down at me. Stephen must have finally took a break from his skull. His arm moved as slow as a pendulum. He hollered down at me, but it was lost to the wind. His sounds were like the hungry howls of a wolf. I sighed,
 
-"What woods is this, boy?" He spat,
+“What?!” I yelled back, annoyed at having my peace disturbed.
 
-"American chestnut, I believe."
+My own voice was an assault to my ears. Stephen didn’t answer, just waved, still in that lazy, slow movement. A lone figure blurred by distance and my near-sightedness.
 
-"A lot of the older ones usually are." He mumbled,
+“What?!” I cupped my hands over my mouth, thinking he couldn’t hear me.
 
-I asked, "Say again?"
+Stephen just waved, his languid movements ticked away the seconds of this strange moment. Then, the waving sped up. With every blink of an eye, he waved faster, and faster, until his arm was a blur. I frowned. Was Stephen having a fit? No, the rest of him was eerily still. He let out another howl, a strange tortured sound, almost like a cry of pain. I sighed again, he must have went over his ankle or something. Picking up my shoes, I headed back up the path, grumbling all the while. 
 
-"Oh, I was just saying it's a very fine wood. Shame they don't make them anymore."
+Of course, the one time I was enjoying myself, it had to be ruined. The sand in my shoes put me in a fouler mood. Lost in my thoughts, I collided with something hard, John Joe. The dirt on his face highlighted how pale he suddenly looked.
 
-"...Sure."
+“Hey Niall,” he greeted, rubbing his arm, “I was looking for you. Look, I caught something.”
 
-"Well, I've seen all I wanted. I guess I'll linger until Sunday. Get to introducing myself personally."
+In his hand was something hairy that twitched, I didn’t want a closer look.
 
-And then he was gone, drove back to whatever hotel he was renting nearby, and I didn't see him again until Sunday morning. I gave our Pastor his card, and he said he'd look into it another time. That Sunday, I saw him sitting in the back pews; he was the first to enter the Church. As our regulars walked in, they were met with a scowling stare from the man in the back. Behind his eyes were malice and judgment, all without saying a single word. Once everyone was in, Church began, songs were sung, and the lesson was taught. Everyone talked afterwards to each other, but Wyrm just sat back there, just watching, and waiting for everyone to clear out. I didn't like him, but I couldn't say that in a Church; this was a place to welcome, not to expel. Yet, maybe it was best if I had.
+“Cool.” I changed the subject.
 
-Once the last person was out, our Pastor, let's call him Ted, for the sake of anonymity, walked to the back and talked with Wyrm. And for the first time all morning, he smiled and flashed his grotesquely fake grin. Ted had said,
+“What does Stephen want? He’s acting like the island is going to explode,”
 
-"Jimmy tells me that you was here to talk with me, is that right?"
+“Huh? I don’t know, go ask him,”
 
-"Oh yes, son, it's just a little proposition. May we talk in your office?"
+“No, he’s all the way up there,” I gestured to the cliff,
 
-He hesitated, but steadied himself with a professional demeanor,
+“Huh?” John Joe was distracted by his catch, practically licking his lips,
 
-"Of course. Need me to fix anything to drink?"
+“He’s up at the cliff, probably kissing his new friend,” I smiled at my own joke,
 
-"I'll just have tea, thank you."
+John Joe finally looked at me, the thing in his hand stopped twitching,
 
-Now, one of my biggest sins is that I'm nosey, I get into people's business, and I gossip, but perhaps it was an unintentional blessing considering how things turned out. The security system we installed has only a few cameras around the Church, and there was one installed in Ted's office. I can access them on my laptop, so I went into the Men's bathroom and put in my earphones to listen to the conversation.
+“Stephen’s back at camp,” he glanced up at the cliff then back to me,
 
-It started out harmless, chatting about the Church's history and about how pretty it stayed after all these years. Then the conversation turned to theology, and it turned ugly. Wyrm and Ted traded blows with scripture. Ted was for the inclusion and brotherhood of Christ, while Wyrm said that he polluted the blood of 'God's Army'. This went on for so long that I almost thought of shutting down the laptop and calling it a day, but then, out of the blue, Wyrm says,
+“What? No, he’s-,” the words died in my throat as I turned around. There was no one on the cliff.
 
-"You've got a small flock, Ted, are you gonna pander to the select few sinners who don't change their nature? These vile demons that infest our faith with their so-called progressive ways? You're not saving them, you're enabling them. Cast them out, and a new flock will come."
+I blinked, “He was just there.”
 
-I thought Ted, the strong man of faith I knew, would shut this shit down and tell him to leave, but he just sat there. Looking defeated and staring into his cup of tea. He mumbled out,
+“No, he’s at camp, I was just talking to him,”
 
-"I try. I try to turn the other cheek."
+I mumbled, mind blank, “He was waving at me.”
 
-"That time is over! That weak passage has enabled so many to take advantage of our faith. I'll tell you what we need..."
+I felt John Joes’ eyes on me, questioning, worried,
 
-He balled up his old, wrinkled hand into a white knuckled fist,
+“Your mind is playing tricks on you,” his voice was distant, like I was the one on the cliff, and he was calling for me to come down,
 
-"This! This is the only thing that folks listen to now!"
+“Maybe you’re just hungry, I know I am.”
 
-"I'm not a violent man."
+“No, I’m not.” I mumbled on instinct,
 
-"Niether am I! But these sheep? Our flock? They can be. All you have to do is play dumb when they go a little too far every now and then. But they work our will regardless."
+John Joe didn’t listen, “Aye, you are.”
 
-"What should I do?"
+Without warning, he threw his arm around my shoulders, practically dragging me back to camp. His dinner dangled in the corner of my eye, a long, skinny hare, its amber eye empty yet piercing. I felt its gaze on me with every step. I ignored it, my mind in a daze. It had been Stephen waving, hadn’t it? Of course it was, John Joe had to be playing a joke. It had be. I held onto that weak hope, clutching it like a candle in a storm, not daring to think of the alternative, but of course, my being pessimistic, the question waited in the back of my mind, waiting to pounce.
 
-Wyrm laid a hand on Ted's shoulder; his back was to the camera, but I could feel his smile.
-
-"I can transform this place into the battleground we need. Give you power, *true* power, Ted. Imagine it! Rows and rows of seats, giant speakers blasting your voice directly into their souls, and everything you need at your disposal. Everything and anything you'd *want*."
-
-Ted looked up with fascinated eyes; they were wet with tears.
-
-"What do I need to do?"
-
-"Nothing special. You just need to pledge loyalty to my company, and we'll get started immediately."
-
-"How?"
-
-Wyrm stood to his feet, extended a hand to shake, and grumbled,
-
-"Just a handshake, no contracts or legal agreements, just a good old-fashioned handshake. What do you say?"
-
-Ted arose to his feet and looked at the haggard old hand, the nails jutting out a little too long. But regardless of the warning signs, after the verbal and theological beating he took, Ted betrayed his own faith with a simple handshake. I could hear a low chittering sound, and was disgusted to find out that this was how Wyrm laughed. The sound made my skin crawl, and my stomach turn, but that was nothing compared to what happened next. Wyrm gave Ted his cup and said,
-
-"Go get us more tea, son. We've got arrangements to make, and I can't talk with my throat all dry like this."
-
-Ted exited the room, and that's when Wyrm turned to face the camera. He locked eyes with it, and there was something different about him now. His eyes were those of a goat, slanted pupils with yellowed irises. He smiled to the camera, held the hand that he used to shake Ted's, and licked his palm with a satisfied moan. My heart froze, and it felt like every vein in my body was full of ice. Out of instinct, I slammed the laptop shut and bolted from the Church.
-
-I didn't hear from Ted all week; there wasn't even a Wednesday service that week, and for a moment, I had hope that what I'd witnessed was nothing more than a fever dream or perhaps an intense psychological break. But that Sunday, I was reminded all too much that what I witnessed was real. Within the Church, there were cameras set up all around the sanctuary. Men worked to get their shots lined up and tested the audio as folks strolled in for what they thought was going to be a regular service. We didn't see Ted until he approached the pulpit, and his appearance had undergone a change in such a short time. His hair was styled and greased with hair gel. His teeth were bleached so white that they looked alien, and for the first time in his ministry, he traded his plain Sunday clothing for a lavish two-piece suit with golden cufflinks.
-
-"I've got a lot to get off my chest this morning..."
-
-He unleashed a tidal wave of hatred, racism, homophobia, sexism, transphobia, and many other obscenities on those in attendance. He laid out his biblical plan, his reinvention of how to perfect and purify his Church. *His* Church. With every person who walked out, every person who was shunned from God's house, Ted took this as a grand spiritual victory. With every venomous word he spewed, the regulars who'd called this Church home dispersed in silence until there was just me. After he finished his sermon, he called to me, asking if I'd like to confess to Christ and accept him, but I said,
-
-"I was already saved here, Ted."
-
-"But that was the Church of old," he said, "The Church of Sinners and Cowards!"
-
-"Cowards?" I said, approaching him, "I'll tell you something about cowards. A true man of faith doesn't sell out his beliefs for power."
-
-I was face-to-face with him, and I didn't recognize him anymore. This was not the kind-hearted preacher who'd given sermons on kindness and love. I saw a man with manic hatred and lust for power. I leaned in and whispered the last words I'd ever say to him,
-
-"You're a fucking coward."
-
-Ted was flabergasted at my words at first, but as I left, I heard him spin this towards his narrative, and said,
-
-"It is finished! This Church, for the first time in decades, is cleansed!"
-
-In the following days, I'd be fired as caretaker of the Church, and that following Sunday, I saw crowds flock to the Church in droves. These new members were the same folks who sent us death threats and defaced our Church with graffiti, but now that Ted caters to the hatred and fearmongering they'd always wanted to hear. Months passed, and I was given papers and a cash settlement to relocate myself. Good old eminent domain. And for what, you may ask? Why expand Ted's Church? Well, he couldn't settle for a humble medium-sized Church that housed dozens, so he had it demolished. All of the history and memories were destroyed with it. In its place would be a Mega Church quadruple the size, taking up nearly a third of the town. It was labeled by Ted himself as a 'Colloseum of the Faithful'. I live four counties away now, and from what I gathered, Ted is now married to a woman a third of his age, and they're expecting their first child soon. Just recently, the town I used to call home has been consumed whole by the Mega Church; it no longer exists. No houses, no businesses, and there aren't even any fucking trees. Just a vast parking lot and the gigantic mega Church standing there like a monolithic perversion of God. From what I gather, it's not alone either; these holy parasites are growing and spreading all over the land. They sit embedded into the earth like great concrete ticks siphoning the faith and kindness of good people and replacing it with vitriolic hatred and fear.
-
-Fellow Church members who were labeled as 'Sinners' that day have started going missing; no matter where they ended up relocating to, they'd just seemingly vanish without a trace. I'm the last one left. I'm scared now because it's not just expanding across the country, but now it's infecting everything else. Television, film, podcasts, YouTube, specialty food items, housing, and now there are even mentions of Wyrm's services in the government. These creatures masquerading as holy men, they've got their fingers in everything, they have all the power in the world, but they don't lift a fucking finger to help those around them.
-
-In the end, I look around at our society of violence, hatred, and fear, and I can't help but wonder if we're in the End Times. Revelation always speaks of false prophets and the Anti-Christ walking amongst men, turning them against each other. I know it sounds crazy, but it can't be crazier than anything else I've borne witness to recently. What if the Anti-Christ just waltzed into our Church and poisoned it? What if that's his goal? Systematic eradication of empathy? I turned on the TV today and saw Ted; his forehead was waxy due to Botox, no doubt, his bleached teeth had become veneers now, and his hair looked more like a hairpiece. There was a part where the stream buffered, and in those few seconds, I saw that Ted had more changes done than I had realized. The teeth were stained yellow with blackened gums, his skin was gray and withered, the hands he gestured wildly with were thin with blackened nails, and from his forehead came two uneven horns that bent upward in two separate directions. Then there was, of course, the eyes, which had reverted to their unnatural goat-like form. Slanted pupils and yellowed irises. The buffer stopped, and the stream came back in full clarity. Ted played it off all cutsey, telling the camera,
-
-"Sorry folks, technical difficulties, I told y'all *they* are trying to stop us!"
-
-The crowd roared and clapped in unanimous praise.
-
-I've decided to leave, and I sincerely hope I can make it out of this country in one piece. I hope that writing all of this down changes something, but I don't know anymore. I've saved up my money and plan to move to Ireland. Evidently, I had family there, and I guess that's enough for me. My home is gone, my town is gone, the Church friends are gone, but my faith remains. Maybe that's all I need.
+What if we aren’t alone on this island?
