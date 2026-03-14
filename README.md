@@ -1,172 +1,176 @@
-# My friend’s game night got really weird.
-My wife, Madison, and I are serious board gamers. We like the complicated ones best that take 2-3 hours to complete.
+# I think I found where missing people go. I almost stepped into it.
 
-Our good friend, Jake, is even more of a gamer than we are. He’s single and can afford the latest releases, so we often test them at his place. 
+I don’t expect everyone to believe this.
+I probably wouldn’t believe it either if someone else posted it.
 
-This past weekend, he got ahold of a new board game and texted us: “I bought the coolest one ever! You guys should come over and play it!”
+But after what happened four nights ago, I don’t think I can stay quiet. There are people out there with missing family members who deserve to know the truth. Or at least the possibility of it.
+I think I know where some of them are.
+And I think they’re still alive.
 
-My wife and I were ecstatic. A night of gaming was just the break we needed. We hired a babysitter, got our house in order, and headed over to Jake’s apartment for an evening of fun.
+I work late pretty often, so it wasn’t unusual for me to be walking through an empty parking lot around 11:30 at night. The lot sits behind a row of offices that close around five, so by the time I get out of work the place is usually dead quiet. Just cracked asphalt, a few dim yellow lights, and my car sitting by itself at the far end.
+I remember looking down as I walked because the pavement there is uneven and I’ve tripped before.
 
-After we stepped into Jake’s apartment, we were surprised to see a beautiful woman setting up a table in the living room.
+I lifted my foot to take the next step.
+And the ground disappeared.
 
-“Hi everyone!” Jake beamed, introducing us to his companion. “This is Liz. She’s my new girlfriend.”
+Not cracked. Not collapsed.
 
-“Your *girlfriend*?” I asked.
+It opened...
 
-“Yeah. She’s *super* into board games.” 
+The best way I can describe it is like someone erased a perfect circle out of the world. About six feet across. No rubble. No broken asphalt. Just a clean hole straight down where pavement should have been.
 
-Madison and I made our introductions. Liz seemed nice. But we were struck by her appearance. You see… 
+My foot was already coming down when it appeared.
 
-… Jake is what most people would describe as average-looking. He rarely took care of his appearance and always wore the same clothes. 
+Instead of hitting pavement, my shoe went straight into empty space.
 
-Liz, in contrast, resembled a glittery influencer. She was clearly out of his league.
+My leg dropped past my knee before my brain even understood what was happening.
 
-“Nice to meet you,” Liz said and shook my hand. Her skin felt surprisingly cold against mine.
+Instinct kicked in. I threw my weight sideways and shoved off with my other foot. I basically dove forward and rolled across the pavement hard enough to scrape my knee and knock the wind out of myself.
 
-“Let’s get this thing going!” Jake slapped my back and motioned us to our seats.
+If I hadn’t reacted instantly, I would have fallen straight in. i sat there for a few seconds, staring.
+The hole was still there. I quickly caught my breath and stared in awe.
 
-***
+Perfect circle. Pure darkness.
 
-The board game was a mixture of all our favorites. There were elements of the classics, but enough new mechanics to keep things interesting.
+Not just dark like a shadow, but the kind of dark that feels wrong to look at, like your eyes can’t focus on it properly.
 
-All throughout the game, I pushed myself, desperate to outdo Jake.
+At first I thought I was hearing wind.
+A low sort of murmur echoing up from inside it.
+Then I realized it wasn’t wind.
 
-“So close,” he'd tease, scooping up a handful of resources from the bank. “But not ready to play with the big boys yet.”
+It was voices.Dozens of them.
 
-About thirty minutes in, I noticed Liz casting glances at me. They were intense and focused, almost like she was… checking me out.
+Quiet at first, overlapping like people whispering in a crowded room.
 
-I leaned over to my wife and whispered, “You seeing this?”
+I slowly crawled a little closer, keeping my distance from the edge.
 
-She glanced up from her cards: “What?” 
+“Hello?” someone called.
 
-“Jake’s girlfriend won’t stop looking at me.”
+“Can you hear us?”
 
-Madison rolled her eyes and nudged my arm, "Sure, honey. You wish." But as the night went on, she began noticing it too.
+Another voice shouted, “Hey! Someone’s there!”
+My heart was pounding so hard I could feel it in my throat. My hands were trembling.
 
-***
+I still couldn’t see anything down there. No movement, no shapes. Just blackness.
+But the voices were definitely coming from below.
 
-After a few more rounds, Madison began her questioning. “So, Liz, how long have you lived in Northern California?”
+“Please!” someone yelled. “Don’t leave!”
 
-“Oh, since I was seventeen,” Liz said, playing with her hair. “I left for a few years, but came back.” She gave Jake a heart-pounding kiss. “It’s been so nice having this stud muffin around.”
+Another voice said, “Throw something down!”
 
-*Stud muffin?* I glanced at my friend. *He's certainly no stud muffin. Maybe she likes his personality or sense of humor?*
+I asked the first question that came to mind.
 
-I pushed away my thoughts and continued playing.
+“Where are you?”
 
-After a few more rounds, Jake yawned and scooted out of his seat. “Anyone else want some popcorn? I'm starving."
+There was a pause.Then a man answered.
 
-“I'll take some,” Madison said.
+“I don’t know.”
 
-“I’ll come with you.” I got up and followed Jake out of the room. Once we were out of earshot, I pulled him aside, “Dude, what’s up with your girlfriend?”
+His voice sounded strangely calm.
 
-“What do you mean?”
+“There’s no ground here,” he continued. “We’re just… floating.”
 
-“She keeps staring at me.”
+A woman near him said, “Time doesn’t move here.”
 
-Jake did a back-and-forth over his shoulder. “Okay, I know she’s strange, but… deep down she’s a good person. Only problem is… she has this addiction… I can’t keep her off me… she’s like… draining me… every chance she gets." His eyes sparkled. "It's wonderful."
+Another voice said, “You don’t get hungry or thirsty either.”
 
-“Just tell her to stop staring at me!"
+Someone else added quietly, “I think I’ve been here for years.”
 
-“Okay, okay… I’ll ask her to chill out. Relax, man. She's just free-spirited, is all."
+At that point my brain was trying desperately to come up with any normal explanation. Speakers underground. Some weird construction shaft. A prank.
 
-***
+Then someone said my name.
 
-Once the popcorn was ready, I grabbed a bowl and followed Jake back into the living room.
+“Zach.”
 
-I was surprised to see both Madison and Liz were gone.
+Every muscle in my body went tight.
+I hadn’t told them my name.
 
-No sooner had I set the bowl on the table than the back door opened. Madison and Liz stepped inside.
+“Zach, please,” the voice said. “You can hear us. That means it opened again.”
 
-“Oh, hey, honey. Did you want a soda water or… ?”
+I asked how they knew my name.
+The voice hesitated.Then he said something that made my stomach drop.
 
-“No thanks…” Madison fixed her collar, like she was hiding something.
+“The holes only open when someone’s alone.”
 
-“Is everything alright?”
+Suddenly a bunch of voices started talking at once.
 
-“Yes,” she crept back to the table, then froze mid-step, as if short-circuiting. “Actually, I need to use the restroom. BRB!”
+“Please help us!”
+“Get a rope!”
+“Don’t walk away!”
 
-She hurried out and I furrowed my brow, confused by her behavior.
+I looked around the parking lot, hoping there was anything nearby I could use.
+There wasn’t. No rope. No ladder. Nothing long enough to reach.
+And even if I had something, I still couldn’t see anyone down there.
+Just darkness.
 
-After what seemed like a good twenty minutes, Madison’s voice drifted in from the hall. “Will, can you come here for a second?”
+One of the voices said quietly, “It’ll close soon.”
 
-“Sure, babe.” I got up and followed her voice.
+“How long does it stay open?” I asked.
 
-As soon as I reached the bathroom door, a pair of cold hands yanked me inside.
+“Usually about a minute.”
 
-“Yo, what the —“
+That’s when the panic really started.
+People began shouting names.
 
-It was Madison. She was already lunging for my neck. Her fingers tearing at my collar.
+“Tell my wife Anna!”
+“Tell my brother Mark I’m alive!”
+“Please remember my name!”
 
-"Babe? What are you —"
+I tried to memorize as many names as I could.
+And then the darkness shifted.
+The hole didn’t close the way you’d expect.
+It just… stopped being there.
 
-“I’m sorry, sweetie. I’m just so hungry.” 
+One second there was a perfect black circle in the pavement.
+The next second it was normal asphalt again.
+Flat. Solid. No crack. No seam.Nothing.
 
-“Hungry?!” I shoved her off. “What are you talking about?”
+If it weren’t for the blood on my knee and the dust on my clothes from diving out of the way, I would’ve thought I imagined it.
 
-“You guys ready?” Jake’s voice bled in from the living room.
+But I didn’t imagine the voices.
+When I got home, I started searching the names I remembered.
 
-“Give me five seconds!” I faced Madison, trying to ward her off. “Seriously, what’s going on?!” 
+Three of them matched missing persons reports immediately.
 
-"I just need one bite."
+One man disappeared in 2009.
+Another in 1997.
+A woman from Illinois who vanished while jogging in 2014.
 
-There was a loud banging at the door. “Come on! Popcorn’s getting cold!”
+All of them disappeared while they were alone.
+Walking.
+Parking lots.
+Sidewalks.
+Driveways.
 
-“I'll be right there!” I turned and gasped at my wife’s expression. Her gaze seemed feral and ravenous, like a mountain lion sizing up its prey.
+I kept searching.Right now I’ve found seven names that match people reported missing.
+I’m planning to contact their families. I don’t even know what I’ll say yet. How do you tell someone you might have heard their son or daughter calling from a hole that shouldn’t exist?
 
-“Just. One!”
+But I feel like I have to try. I have to do Something.
 
-*Screw this.* I grabbed the door handle and noticed for the first time…
+I’ve also been thinking about something else.
+The voice told me the hole only opens when someone is alone.
 
-… a bite mark on her neck.
+So I’ve been wondering if there’s a way to force it to appear again.
 
-*The fuck?!*
+Maybe if I go back to the same spot.
+Maybe if I’m alone long enough.
+Maybe if someone else watches from far away.
+Maybe it had to do with what I was thinking about at that exact moment.
 
-Madison opened her jaws, revealing tiny incisor-like fangs. "Please.. it'll really help..."
+If I can make it open again, maybe I can bring rope. Or a ladder. Or something. Because those people are still down there.
 
-She leapt toward me and I dove behind her. Grabbed a towel and pinned her arms to her side. Straining, I set the towel between her jaws and pulled tight, like I was securing an alligator.
+They’re still talking.Still waiting to be rescued.
 
-“…et… me… go…” her voice hissed.
+But tonight I realized something that made this a lot worse.
 
-I must’ve backed into the door and nudged the handle because we were soon stumbling into the hall.
+While searching the names again, I checked the dates more carefully.
+One of the voices that called my name belonged to a man who disappeared in 1986.
+I figured maybe he could’ve known me somehow.
+Except for one problem.
+According to the report, he vanished in May of that year. I wasn’t born until September.
 
-“Nice of you to join us…” Jake's voice groaned from the living room.
+Which means someone down there already knew my name four months before I existed. And they knew it was me!
 
-I turned to see him lying on the table…
+I'm both freaking out and surprisingly calm. I've considered going to the police over and over and over but I know they won't believe me. I don't even believe it, but it happened and these people need my help!
 
-… Liz was hunched over him, feasting on his flesh, like a rat devouring raw meat. 
-
-“What the — ?!”
-
-She sat up, wiped the blood from her lips.
-
-“What is this… what are you… what did you do to my wife?!”
-
-Liz swallowed a pile of gore. “All I did was teach her how to be beautiful. Like me.”
-
-I stared at Jake in horror. Disgusting bite marks covered his body. They seemed festered with infections, leaking out blood and pus. He was still alive... somehow...
-
-"...ive... me... ur flesh!" Madison ripped the towel free and reached a hand behind her, almost tearing my left ear off.
-
-“Ahhhh! The hell —”
-
-I shoved her into the wall and sprinted past Liz and booked it for the front door.
-
-“Don't let him escape!” is all I heard as I wrenched it open and leapt outside.
-
-***
-
-I managed to hide in the neighbor’s bushes. Thankfully, nobody saw me enter.
-
-I watched as Madison exited the apartment and wandered along the road, calling for me.
-
-Liz came out shortly after. I watched them sweep the block and stop at my car, peering in to see if I was hiding there.
-
-I could still hear Jake moaning from inside his apartment. It sounded like he was dying.
-
-After a few minutes, Liz and Madison gave up searching and returned to his place.
-
-It’s been quiet for some time now. I know that if I can just book it to the car and call the police… I can make it out of this.
-
-I’m going to make a run for it…
-
-… wish me luck.
+[Part 2](https://www.reddit.com/r/nosleep/s/bKGjYRyrKK)
