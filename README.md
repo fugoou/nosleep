@@ -1,250 +1,70 @@
-# Truth or Dare
-I was on my third beer in a local bar. She must’ve noticed me before I noticed her, because when my eyes fell on her, she was already looking my way.
+# I think I might be adopted; my dad looks nothing like me.
+I spoke with the counselor lady at school the other day. I had to speak with her because teachers had some concerns about me, something about me being too skinny and my messy hair. At least that's what I'm assuming.
 
-There was passion in her eyes. She wore a short black dress, and her crimson hair complemented her emerald-colored eyes. A tattoo of a snake stretched across her arm. As soon as we made eye contact, I looked away. I’ve always been a nervous guy, and I didn’t want to make things awkward by staring at her. Out of the corner of my eye, I saw her keeping a constant gaze on me.
+So the counselor lady asked about my home life and if I'm getting everything I need, already running into a problem that I had to lie about. My home life is not good at all anymore, but my dad would never let me talk about that. So I lied. I told her that home life was fine and that I'm just a bit skinny. She didn't seem satisfied though.
 
-I pretended to be busy on my phone when the bartender put a beer in front of me. “I didn’t order this,” I told him. Carl was the regular bartender and gave me a little wink. “It’s from the girl sitting at the bar.”
+"Are you sad?" She asked, probably after spotting the shape my face was making.
 
-He walked away, and I looked at her dumbfounded, but gave a small nod to say thanks. She took this as an invitation and walked over to me.
+"A little." I admitted. I failed to lie and my heart rate quickened. I shouldn't have told her I felt any kind of sadness.
 
-“So, you finally stopped avoiding my eye contact, huh?” She took the seat right next to me and gave a playful smile. My nerves were acting up, and I felt sweat running down my back. This girl was beautiful—and she was talking to me. I decided to play it cool. “Trying to catch my eye, were you?”
+"Well, go on. Tell me why that is, Katie."
 
-She looked at me as if she were expecting something more. “Can I get you a drink?” I offered.
+"Uhmm..." I fidgeted with my thumbs. I argued in my mind with what I should say. Eventually the truth won out again in my stupid little mind, "I- I think my dad... isn't related to me."
 
-“Something strong.”
+"Oh? What makes you think that." She said, leaning in closer.
 
-I called over Carl and ordered her a vodka. She didn’t complain. “What’s your name?” I asked.
+"He- I look nothing like him. My skin is smooth and pale, but his is tough and as dark as... like ebony. And his hair is very bristly and blond and not on top of his head." I said as my eyes were on the verge of tearing up. My voice grew louder as I went on, "And he only has three fingers and instead of a-"
 
-“It’s Madeline.”
+"Okay! Katie, calm down. I understand how that must make you feel. But uhm... Im afraid I shouldn't insert myself into family matters of that kind. It's obvious that was weighing very heavily on you so here, write about this. Write about how you feel and about other things, write about your concerns, your hates, your loves. Get it out there, on paper, on the internet. It's not healthy to keep these things inside." The counselor confided.
 
-“Well, Madeline, my name is Jack. So what made you sit down next to me?”
+"O-ok. I will."
 
-“You have inviting eyes, and I was bored,” she replied.
+So, that's why I'm writing here now. Just to get it out there. All those things. My dad. He's a good man. He can be mean, but I know absolutely that he loves me. But we just look nothing alike. We are nothing alike. 
 
-“If it wasn’t for that second part of your sentence, I’d be flattered as hell.”
+I'm happy for being able to get that all out the counselor lady though. I felt a lot better. And apparently noticeably too. My best friend, Daniel Mcalby, told me so as we were walking home.
 
-She laughed. “Interesting choice of words.”
+The road to my house was behind the school, so we would walk along the edge of it until we got back there. We have done it so many times that a dirt path has formed. We passed under the school sign and logo, a fancily made lion surrounded by the words "Carmichael Middle School."
 
-I didn’t get the joke, but laughed anyway.
+Anyway, so Danny noticed pretty fast. It makes sense, as we have known eachother since forever now.
 
-“Do you live close by?” she asked. I noticed that every few minutes she’d scooch her chair closer to mine.
+"Wow you must be in a good mood. You didn't even look back at the school all forlorn and shit." Danny said with a chuckle.
 
-“Yeah, it’s a ten-minute drive from here to my place.”
+"Heh... I guess I am."
 
-“Interesting…” She took a sip from her vodka. “Want to play a game of truth or dare?”
+"Anyyyy specific reason?" He prodded
 
-“Sure,” I said, trying not to break eye contact. “You go first.”
+"No- I mean yes, but it's embarrassing so I'm not telling!"
 
-“How about we make it more interesting? If you win, you get to take me home tonight and do whatever you want. If I win, I get to take you home. So what will it be—truth or dare?”
+"Hmm ok. Wellll are you doing anything today? Wanna go into the woods?" He asked
 
-This sounded like a win-win in my opinion. My luck with girls had never been amazing. I’d been on a dry spell for over a year now, and here was my chance to take this lady home. I couldn’t mess this up. “Dare.”
+"Sure. Y-yes, let's go." I responded. I wanted to keep this good feeling as long as possible, and that meant spending time with Danny, and not my dad.
 
-“My kind of guy,” she said, giving me that flirtatious smile again. “Let’s see… what to make you do? Oh, I know. You have to steal something from this bar.”
+Our small little town is surrounded my this dense forest. It's very beautiful but a bit creepy. Though when I'm with Danny it's less scary. I don't know why he always takes me with him though, all I do is follow behind him as he forges ahead. We laugh and joke though, but my jokes aren't very good. He still laughs at them though. He laughs so much, I'm kinda jealous.
 
-I looked around, trying to find an easy steal. “Okay, be right back,” I told her, and went to the bathroom.
+We have gone out into the forest so many times that we both pretty much know it like the back of our hands. We stayed out there for a while. We found some cool bugs and a stick that looked like a sword. It quickly became dark so we had to go back. The sun was almost set by the time we got out and onto the main town road. Our houses were in opposite directions so we parted there, Danny taking the stick and me taking the bugs.
 
-When I came back two minutes later, I showed her the roll of toilet paper I’d stolen. She laughed. “Well, not exactly the great heist I was expecting, but I guess it’ll do.”
+I like bugs. They are so so very cute. I got a fuzzy caterpillar and a big heavy beetle. I held them in my hands as I headed home. But even with these bugs to keep me company I felt dread creep in as I got closer to my house. I stepped up onto the porch, the old wood squealed in response. I unlocked the door and stepped inside.
 
-I was starting to get tipsy. “Your turn—truth or dare?”
+"H-hello! I'm home-" I called out
 
-There was a malicious glance in her eyes. “Dare me.”
+"LATE! YOU ARE LATE. BRING ME FOOD." My dad's gurgling gruff voice shook the house as he spoke.
 
-“Get a stranger to buy you a drink in this bar.”
+"I fed you yesterday! I didn't think to set the trap for any-"
 
-She rolled her eyes. “At least make it a challenge.” She got up, pulled up her skirt slightly, and gave me a wink. Not three minutes later, she set down a vodka and a beer on the table. “Got you something as well. Now tell me, boy—truth or dare?”
+"NO YOU HAVE FOOD. I SMELL IT." He said. I figured out where it was coming from. He was in the kitchen.
 
-“Okay, give me a truth,” I replied.
+"Th-these bugs? No they won't fill you up..." I said. I didn't want him to take my bugs.
 
-“When’s the last time you fucked someone?”
+He paused for a moment. I heard his heavy deep breathing.
 
-This caught me by surprise. I hesitated, wondering if I should tell her the truth or make up a wild sex story. “I’m going to be honest here. I wasn’t exactly on my game this past year.”
+"I'm sorry, Katie. I just need snack." He said. Much quieter now, but the low rumble and gurgle of his voice was still very much felt.
 
-She looked at me with surprise. “Oh. Well then, you just have to make sure that you win tonight.”
+"You know I like them..." I said, feeling tears starting to come.
 
-To be fair, I thought I was rocking this interaction. And I’d just thought of a dare she couldn’t possibly go through with. This was going to be my victory move. “Truth or dare?”
+"Please..."
 
-“Dare.”
+It hurt me more to see him go hungry. I left the bugs on the living room table and went upstairs, crying.
 
-I took a deep breath. “Okay, Madeline—take off an article of clothing.” I knew she wouldn’t be able to do this, because she was only wearing that short black dress.
+"Thank you." he said.
 
-She smiled. “The gloves are coming off, huh? Finally. Let’s play, then.” As she spoke, she reached under her skirt and pulled out her underwear. With a few easy movements of her legs, it was completely removed. I tried to look cool and casual, but I’m afraid I was just gaping at her.
-
-She laughed and, without saying anything, moved closer and slipped her underwear into my pocket. “Truth or dare?”
-
-I knew if I said dare, she’d pick something insane. I decided to play it safe. “Truth!” I blurted out. The beers were getting to my head.
-
-She looked at me. Her eyes went cold, all expression draining from her face.
-
-“Do you still think about your brother a lot?”
-
-My stomach turned. I went from almost drunk to stone-cold sober in a second.
-
-“What… what did you just say?”
-
-“I asked: do you still think about your brother?”
-
-My heart sank. “Who… are you?” Sweat ran down my back again, but this time it wasn’t nerves—it was fear.
-
-“It doesn’t work that way. You have to answer, or you lose.”
-
-For the first time that night, I felt genuinely scared. I thought about getting up and walking out, but something in my gut told me I needed answers.
-
-“Every day,” I said, trying to hide the sadness in my voice.
-
-She looked surprised, then laughed. “Oh my, you really are someone special. I was sure you would’ve walked out after that one.”
-
-I glanced around the bar. It was almost empty—the local drunk slumped in the corner, Carl chatting with a blonde, two guys murmuring at the far end.
-
-“Well, don’t you have anything to ask me?” she said, clearly enjoying herself.
-
-“Who are you?”
-
-She frowned. “No. That’s not how this works. Second time. You get one more chance.” Her eyes flashed red for a split second.
-
-Summoning all my courage, I asked, “Truth or dare?”
-
-“That’s more like it. Truth.”
-
-“Who are you?”
-
-“I have been known by many names on many different planes. One of the names your people gave me was Apollyon. Others called me Abaddon. Though the legends far outweigh my actions. This body isn’t even mine—it belongs to someone who performed a ritual with her friends, looking for cheap thrills. Now she gets the privilege of being mine until I’m sick of her.” She smiled sweetly, as if unaware of the weight of her words.
-
-I shook my head. “This has to be some kind of sick joke.”
-
-“Truth or dare Jack?” She asked me.
-
-I chose truth.
-
-“Do you believe what I’m telling you?”
-
-“No. This is too much to believe.”
-
-Her only response was a faint smile.
-
-I felt trapped. Walking away crossed my mind, but fear kept me seated. She couldn’t have known about my brother. He’d died over seven years ago, before we moved states. Still, I kept playing. “Truth or dare?”
-
-“Dare!”
-
-“Go away and leave me alone.”
-
-She laughed. “That’s not how this works. Leaving is a forfeit. But I’ll be kind and give you one more chance. We can’t dare each other to go away, or to kill ourselves. Now give me a dare.”
-
-“Fine. Prove to me you are who you say you are.”
-
-She smiled. “That, I can do.”
-
-She grabbed my hand, and images flew through my mind. I immediately knew she wasn’t human. God, the things she made me see.
-
-I stood in an unfamiliar landscape with black fire burning everywhere. There were things walking around that couldn’t have been real—giant monstrosities with two snake-like heads and six legs. Almost humanoid creatures that must’ve been four meters long, with bat-like wings on their backs. It was painful to my eyes and sanity just to look at them. An eclipse loomed high in the sky.
-
-In the far distance stood enormous mountains—at least, that’s what I thought, until those damned mountains started moving.
-
-At the center of it all was a pit. Thousands upon thousands of humans and other creatures lay inside it. I was shocked to see they were still alive. The sound of their screams and muffled moans was horrible. But the most awful thing of all—when I looked at those poor, damned souls in that wretched pit, I saw his eyes. He was buried beneath others, and even after seven years, I would never forget the eyes of my own brother.
-
-Jonathan was in that pit.
-
-I don’t know what came over me, but suddenly my fear of that hell-like world faded away, and I ran toward the pit. I saw his eyes widen in response. I was getting him out.
-
-I blinked once, and when I opened my eyes, I was back in the bar. Madeline sat next to me, that same smile plastered on her face.
-
-“Don’t make a scene, or this won’t end well for the people here,” she told me.
-
-My brother was stuck in hell, and this bitch didn’t want me to *make a scene*?
-
-“Get him out of there,” I said, trying to sound confident and intimidating. Tears rolled down my cheek.
-
-“Poor baby,” she replied. “I know it can’t be easy facing this reality.”
-
-She wiped a tear from my face as I sat there in utter shock. “God, I love that taste,” she murmured, licking the tear from her finger. “I’m afraid I can’t get him out. The stakes of this game have already been set.”
-
-I tried to stay calm and think rationally, but that was easier said than done. The only thought going through my mind was finding something sharp and stabbing her in the face. That wouldn’t help, though. I had to save my brother.
-
-“You told me if I won, I could tell you to do whatever I wanted.”
-
-She chuckled. “You sweet child. The deal was that you could do whatever you wanted *to me*. And I really mean that. You can torture me, or take me and work out every fucked-up fantasy you’ve ever had. Hell, you can do both at the same time—it sounds like a fun night. But you can’t tell me what to do.”
-
-The way she said it almost sounded like sympathy.
-
-“Please,” I said, no longer holding back my tears. “Get him out.”
-
-“Truth or dare, Jack?”
-
-I chose dare.
-
-“Make yourself bleed.”
-
-“Wait—hold on. You said we couldn’t ask each other to harm ourselves.”
-
-She laughed. “I said we couldn’t tell each other to *kill* ourselves. I just want to see a little blood.”
-
-I pulled out my pocket knife and held my hand under the table as I made a small cut in my finger. It hurt like a bitch. As soon as the blood welled up, she took my finger and licked it clean.
-
-“Do you like that?” she asked, licking the last of the blood from her lips.
-
-I didn’t.
-
-“Can we just ditch the small talk and play the fucking game?” I asked. That only seemed to excite her more as she leaned forward, eagerly waiting for the question we both knew was coming.
-
-“Truth or dare?”
-
-“Truth!”
-
-“How can I get my brother out of there?” I asked, wiping away the last of my tears.
-
-She tilted her head, studying me like a sick puppy. It disgusted me.
-
-“You can’t, Jack,” she said. “Your brother played a game, and he lost. It’s that simple. Even if you managed to return, there’s not a goddamn thing you could do.”
-
-Those words devastated me.
-
-I had a thousand more questions about Jonathan and that wretched world, but this horrible game wouldn’t allow them.
-
-“Truth or dare, Jack?”
-
-I picked truth. There was no way I was choosing dare again.
-
-“Would you take his place? If I gave you the option right now, would you go to the pit to free him? A soul for a soul—it’s not a bad deal, right?”
-
-The question caught me completely off guard. Everyone likes to believe they’d be the hero—the martyr who wouldn’t hesitate to save someone they love. I thought about my parents, my friends, my colleagues. Even my online gaming buddies.
-
-Tears welled in my eyes again as I realized what I had to do. Even if it meant being trapped in that world forever, I had to try. For Jonathan.
-
-I looked at her with disgust. “Okay. Take me there. I’ll take his place.”
-
-She burst into manic laughter.
-
-“Oh, my dear, dear boy. I just wanted to know if you would. The truth is, even if I wanted to, I can’t get your brother out. He’s property of that world now—and its inhabitants.”
-
-Never in my life had I wanted to hurt someone so badly. I knew I couldn’t lose this game. I couldn’t bear the thought of my parents losing another child. It would destroy them.
-
-Then something clicked. It wasn’t a good plan, and I didn’t even know if it would work—but it was my only chance.
-
-“Truth or dare, Madeline?”
-
-As expected, she chose dare.
-
-“I dare you to leave the body you’re possessing right now.”
-
-Her eye twitched, and her smile finally vanished.
-
-“Well, well. Clever boy,” she said. “If I’m not here, I can’t play the game anymore. Of course, you’ll miss out on your prize… or who knows, this girl might still be into you. Let’s do this again sometime.”
-
-She laughed. None of this meant a damn thing to her. She was just having fun—and that infuriated me most of all.
-
-“Please,” I said, exhausted. “Just leave me alone.”
-
-In an instant, her eyes changed. Confusion flickered across her face before she collapsed.
-
-It took me a moment to call out to Carl for help. The past half hour had felt like it was just the two of us in the world.
-
-I told him I thought she’d had too much to drink. He called an ambulance and told me to go home.
-
-On the way back, I replayed everything, tears streaming down my face. When I got home, I had a drink. Then another. And another.
-
-I woke to birds chirping as sunlight spilled through the window. My head felt like it might explode. Relief washed over me—it had all been a dream.
-
-Until I noticed I was still wearing yesterday’s clothes.
-
-I reached into my pocket for my phone—and my body went cold when my fingers brushed against a piece of underwear.
-
- 
+At the top of the stairs I look back down. I heard him munching on the bugs, just out of sight. Except for his tail that clacked and cricked at each segment as it swung side to side. Just barely in view at the bottom of the stairs.
