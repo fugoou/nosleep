@@ -1,70 +1,93 @@
-# I think I might be adopted; my dad looks nothing like me.
-I spoke with the counselor lady at school the other day. I had to speak with her because teachers had some concerns about me, something about me being too skinny and my messy hair. At least that's what I'm assuming.
+# I Joined a Game of Hide-and-Seek on the Dark Web Part 10
+Terror welling up [again](https://www.reddit.com/user/DantesGhost92/comments/1egjxu1/i_joined_a_game_of_hideandseek_on_the_dark_web/), my eyes darted across my surroundings. A couple of buildings down, I saw something. It wasn’t ideal, but the slamming of those heavy combat boots reminded me it would have to do.
 
-So the counselor lady asked about my home life and if I'm getting everything I need, already running into a problem that I had to lie about. My home life is not good at all anymore, but my dad would never let me talk about that. So I lied. I told her that home life was fine and that I'm just a bit skinny. She didn't seem satisfied though.
+Charging toward it, I darted inside. It was a store, an older one from the looks of things. Scaffolding coated the outer walls like a metallic spider's web, while the inside seemed stripped to its bones, the renovations nowhere near complete.
 
-"Are you sad?" She asked, probably after spotting the shape my face was making.
+I prayed to god that it was empty. If by some miracle I’d managed to avoid that masked woman, the last thing I needed was the commotion of an angry construction crew.
 
-"A little." I admitted. I failed to lie and my heart rate quickened. I shouldn't have told her I felt any kind of sadness.
+To my relief, there was no one inside, and no sounds from further within. The place felt like a ruin. Parts of it were stripped down almost to the bare frame, the aged wood exposed to the air for the first time in I don’t know how long. Without the overhead electric lighting, the place was gloomy and dismal.
 
-"Well, go on. Tell me why that is, Katie."
+The footsteps echoed louder in here, reverberating in the empty space as she closed the distance. I needed to get out of sight.
 
-"Uhmm..." I fidgeted with my thumbs. I argued in my mind with what I should say. Eventually the truth won out again in my stupid little mind, "I- I think my dad... isn't related to me."
+Materials littered the floor: bags of insulation, reels of cable, and sheets of drywall, but nothing useful. Nothing I could use to defend myself. I made my way further inside, questioning all the while if I’d just signed my own death warrant by coming in here.
 
-"Oh? What makes you think that." She said, leaning in closer.
+Towards the far end was what I assumed would be an office or store room. With only a few wooden boards differentiating it from the main storefront, it was hardly any better. Rounding the entrance, my heart sank as I looked inside. In addition to more of the same materials, leaning against the far wall was a large pile of what I thought could be custom panelling, based on the brickwork pattern. No doubt the finish for the walls.
 
-"He- I look nothing like him. My skin is smooth and pale, but his is tough and as dark as... like ebony. And his hair is very bristly and blond and not on top of his head." I said as my eyes were on the verge of tearing up. My voice grew louder as I went on, "And he only has three fingers and instead of a-"
+There was nothing. Nowhere to go.
 
-"Okay! Katie, calm down. I understand how that must make you feel. But uhm... Im afraid I shouldn't insert myself into family matters of that kind. It's obvious that was weighing very heavily on you so here, write about this. Write about how you feel and about other things, write about your concerns, your hates, your loves. Get it out there, on paper, on the internet. It's not healthy to keep these things inside." The counselor confided.
+I had to have missed something; this couldn’t be it. Frantically glancing around again, I was about to turn back into the main storefront to look for a window or… something, when a small patch of light towards the back of the room caught my eye.
 
-"O-ok. I will."
+Casting a slight glow in the gloom, I slowly stalked towards it, aware of the footsteps from the street getting louder. As I rounded a stack of panelling, I could make out a small hole in the far wall where a section of drywall was missing. The light from beyond spilled through, cutting across the barren floor.
 
-So, that's why I'm writing here now. Just to get it out there. All those things. My dad. He's a good man. He can be mean, but I know absolutely that he loves me. But we just look nothing alike. We are nothing alike. 
+Quickly scurrying over, I poked my head through. It led to what I assumed was a service corridor, or at least another corridor that linked the backrooms together. Light was pouring in through an unfinished window further along the opposite wall.
 
-I'm happy for being able to get that all out the counselor lady though. I felt a lot better. And apparently noticeably too. My best friend, Daniel Mcalby, told me so as we were walking home.
+An idea formed, quick and incomplete, but it was enough.
 
-The road to my house was behind the school, so we would walk along the edge of it until we got back there. We have done it so many times that a dirt path has formed. We passed under the school sign and logo, a fancily made lion surrounded by the words "Carmichael Middle School."
+Grabbing a piece of the custom panelling, I ran back over to the hole and leaned it against the wall. After wiggling it around a little, I could place it so that it blocked out the hole and the light. It wasn’t perfect, there were a few spots where the light seeped in if you looked from a certain angle, but it looked inconspicuous enough… I hoped.
 
-Anyway, so Danny noticed pretty fast. It makes sense, as we have known eachother since forever now.
+Wasting no more time, I slid it back out of the way, scrambling through before edging it across as carefully as I could until it sat almost flush. Resting with my back against the wall, my ears strained for the Organiser's footsteps. She had to be right behind me now.
 
-"Wow you must be in a good mood. You didn't even look back at the school all forlorn and shit." Danny said with a chuckle.
+The light from outside stung my eyes. Still waiting for the window to be fitted, it cascaded through the open brickwork further along the wall and into the corridor. Squinting toward it, I could clearly see the street through it.
 
-"Heh... I guess I am."
+A flash of silver caught my eye, moving quickly before coming into focus. When I finally made it out, my legs nearly gave way. Instantly dropping to a crouch, I pressed myself even harder against the wall.
 
-"Anyyyy specific reason?" He prodded
+The van, the silver van. If I’d noticed them a few seconds later, there was no doubt they’d have seen me standing there.
 
-"No- I mean yes, but it's embarrassing so I'm not telling!"
+My heart was pressing hard against my ribs, every pulse ringing in my ears. Then the clacking of all too familiar heavy boots reverberated around the deserted space. She’d caught up.
 
-"Hmm ok. Wellll are you doing anything today? Wanna go into the woods?" He asked
+I could hear them clearly, edging closer. They were slow, deliberate, but all the while unrelenting. And they were heading this way.
 
-"Sure. Y-yes, let's go." I responded. I wanted to keep this good feeling as long as possible, and that meant spending time with Danny, and not my dad.
+My hand began to tremble as I remembered the look she'd given me in the alley. I could imagine her clearly, taking her time, checking every inch of space, knife at the ready as she steadily headed towards me.
 
-Our small little town is surrounded my this dense forest. It's very beautiful but a bit creepy. Though when I'm with Danny it's less scary. I don't know why he always takes me with him though, all I do is follow behind him as he forges ahead. We laugh and joke though, but my jokes aren't very good. He still laughs at them though. He laughs so much, I'm kinda jealous.
+An almighty metallic crash caused a yelp to catch in my throat.
 
-We have gone out into the forest so many times that we both pretty much know it like the back of our hands. We stayed out there for a while. We found some cool bugs and a stick that looked like a sword. It quickly became dark so we had to go back. The sun was almost set by the time we got out and onto the main town road. Our houses were in opposite directions so we parted there, Danny taking the stick and me taking the bugs.
+“I know you're in here, David, just come out. I promise I won't bite…”
 
-I like bugs. They are so so very cute. I got a fuzzy caterpillar and a big heavy beetle. I held them in my hands as I headed home. But even with these bugs to keep me company I felt dread creep in as I got closer to my house. I stepped up onto the porch, the old wood squealed in response. I unlocked the door and stepped inside.
+Her voice, feminine but with a rough undertone as though she’d been smoking a pack a day for some time now, did nothing to hide the malice in her words. I didn't dare move, hardly even dared to breathe. As the footsteps drew closer, it took all I had to stop myself from trembling.
 
-"H-hello! I'm home-" I called out
+Then, they came to an abrupt stop.
 
-"LATE! YOU ARE LATE. BRING ME FOOD." My dad's gurgling gruff voice shook the house as he spoke.
+“David, seriously, you'll have to do better than that…”
 
-"I fed you yesterday! I didn't think to set the trap for any-"
+Another crash, it sounded like paint tins or something, but much closer, followed by a grunt of annoyance. I heard the footsteps start up again, stalking around the room on the other side of the wall.
 
-"NO YOU HAVE FOOD. I SMELL IT." He said. I figured out where it was coming from. He was in the kitchen.
+Each moment felt like an eternity. All I could do was crouch there, waiting….
 
-"Th-these bugs? No they won't fill you up..." I said. I didn't want him to take my bugs.
+Again, they came to a stop, what sounded like inches from me this time. I waited, shuddering with barely restrained tears, for the panelling to be torn away, replaced by the broken porcelain mask.
 
-He paused for a moment. I heard his heavy deep breathing.
+She was so close, the smell of the stale beer I threw at her invaded my nostrils. My breath caught in my lungs, and for a moment, I was almost certain she was going to hear my heart trying to burst through my chest. This was it, any minute now.
 
-"I'm sorry, Katie. I just need snack." He said. Much quieter now, but the low rumble and gurgle of his voice was still very much felt.
+I don’t know how many agonising seconds passed by. My legs were starting to seize, my thigh muscles spasming in protest, when her voice cut through the air, startling me.
 
-"You know I like them..." I said, feeling tears starting to come.
+“He's got to be in here, unless you dipshits let him sneak past you”
 
-"Please..."
+She was talking to someone, she had to be, but there was no other voice. A spike of anxiety shot through me. What if she was talking to herself?
 
-It hurt me more to see him go hungry. I left the bugs on the living room table and went upstairs, crying.
+I knew the Organisers were unhinged, but what if she was legitimately crazy?
 
-"Thank you." he said.
+“Yeah, I know they’ll be here soon, but the boss wanted both of them”
 
-At the top of the stairs I look back down. I heard him munching on the bugs, just out of sight. Except for his tail that clacked and cricked at each segment as it swung side to side. Just barely in view at the bottom of the stairs.
+No, she was definitely having a conversation. It took me a second to work it out, but then it clicked.
+
+They were using wireless mics.
+
+The footsteps started back up again, accompanied by the occasional scraping and scuffing sounds. She was still searching for me. The frustration in her grunts, as she knocked what sounded like the pallet of paneling across the floor, was unmistakable. I couldn’t help but glance at the sheet of panelling obscuring me, the only thing covering my little hiding spot. If I didn’t know any better, I’d have sworn it had moved…
+
+“The kid saw us taking the girl, the fuck else was I supposed to do?”
+
+Another pause, she was talking about that poor kid in the alley.
+
+“Whatever, he’ll turn up again soon, just keep your eyes open.”
+
+The sounds of her searching stopped, and the footsteps started up again. My hair stood on end as they edged closer, inches away from me this time. I couldn’t break my eyes away from the panelling, had she noticed it finally?
+
+Sweat that had been beading on my forehead chose this moment to spill into my eyes. The salty liquid stung as it pooled in my eyelids, but I didn’t dare move to wipe it away. I didn’t make a sound, no matter how imperceptible I thought it would be. Not with her standing just inches away.
+
+My eyes burned as I blinked frantically, but every blink seemed to introduce as much sweat as it removed. I didn’t know how much longer I could stand it. I was seconds away from giving in, from wiping my face, when the footsteps turned. In an instant, they faded away towards the front of the shop.
+
+In the distance was the unmistakable sound of a van door opening, then slamming shut. A scream of rubber tearing at the asphalt soon followed. As soon as they had started, the sounds faded to nothing, leaving only the pounding of my heart ringing in my ears. 
+
+My legs were screaming at me, begging me to break from the squat I was in, but I didn’t dare move. I could hardly believe what had just happened. It was several more minutes before I started letting myself believe that they’d gone.
+
+Even now, my legs sting when I think back to crouching there, not quite believing I’d escaped. I should have just stayed there… maybe things would have been better. I’ll try to post again soon, but things have been getting difficult…
+
