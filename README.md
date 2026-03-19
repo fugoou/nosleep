@@ -1,93 +1,106 @@
-# I Joined a Game of Hide-and-Seek on the Dark Web Part 10
-Terror welling up [again](https://www.reddit.com/user/DantesGhost92/comments/1egjxu1/i_joined_a_game_of_hideandseek_on_the_dark_web/), my eyes darted across my surroundings. A couple of buildings down, I saw something. It wasn’t ideal, but the slamming of those heavy combat boots reminded me it would have to do.
+# The Still People
+My wife and I stared out of the kitchen window in confusion. 
 
-Charging toward it, I darted inside. It was a store, an older one from the looks of things. Scaffolding coated the outer walls like a metallic spider's web, while the inside seemed stripped to its bones, the renovations nowhere near complete.
+“Should we call someone?” Erica asked. 
 
-I prayed to god that it was empty. If by some miracle I’d managed to avoid that masked woman, the last thing I needed was the commotion of an angry construction crew.
+I squinted, willing my brain to make sense of the situation. Our elderly neighbour, Chester, had been standing in the exact same spot in his front garden for fifteen minutes now, seemingly frozen in place.
 
-To my relief, there was no one inside, and no sounds from further within. The place felt like a ruin. Parts of it were stripped down almost to the bare frame, the aged wood exposed to the air for the first time in I don’t know how long. Without the overhead electric lighting, the place was gloomy and dismal.
+“No, I’m gonna go over there and see what the deal is. He’s probably just knackered himself out from gardening.”
 
-The footsteps echoed louder in here, reverberating in the empty space as she closed the distance. I needed to get out of sight.
+I scurried out the front door, wrapping my arms around myself, breath visible in the crisp air. It was the last week before winter, several of our neighbours had been tending to the last of the fallen leaves before the frost hit, including Chester. As I approached him, I realised I was out of my depth. 
 
-Materials littered the floor: bags of insulation, reels of cable, and sheets of drywall, but nothing useful. Nothing I could use to defend myself. I made my way further inside, questioning all the while if I’d just signed my own death warrant by coming in here.
+He stood with one foot slightly sunken into the earth, rake angled mid-drag through a blanket of leaves. His body was unnaturally still, caught in the middle of an ordinary motion that should have ended by now. One eyelid hovered halfway down in what would have been a blink, yet his eyes didn’t seem dry or red from lack of moisture. Even the skin on his face looked paused; a crease remained fixed where his brow had been furrowed in concentration. 
 
-Towards the far end was what I assumed would be an office or store room. With only a few wooden boards differentiating it from the main storefront, it was hardly any better. Rounding the entrance, my heart sank as I looked inside. In addition to more of the same materials, leaning against the far wall was a large pile of what I thought could be custom panelling, based on the brickwork pattern. No doubt the finish for the walls.
+“Chester?”
 
-There was nothing. Nowhere to go.
+No rise or fall to his chest, no tremor in his wrinkly fingers that gripped the rake. I placed a hand on his shoulder and repeated his name. As I touched him, a stillness washed over me. A calming, euphoric feeling that begged to stay. I withdrew my hand instantly and turned back to the house. Erica stood in the doorway, speaking urgently into the phone pressed to her ear. 
 
-I had to have missed something; this couldn’t be it. Frantically glancing around again, I was about to turn back into the main storefront to look for a window or… something, when a small patch of light towards the back of the room caught my eye.
+By the time the ambulance arrived, a small crowd had formed. Neighbours whispered amongst themselves as paramedics tried to rouse Chester. I had retreated back to the safety of my own home, unable to answer the bombardment of questions from Erica.
 
-Casting a slight glow in the gloom, I slowly stalked towards it, aware of the footsteps from the street getting louder. As I rounded a stack of panelling, I could make out a small hole in the far wall where a section of drywall was missing. The light from beyond spilled through, cutting across the barren floor.
+“A stroke, maybe?” She asked. 
 
-Quickly scurrying over, I poked my head through. It led to what I assumed was a service corridor, or at least another corridor that linked the backrooms together. Light was pouring in through an unfinished window further along the opposite wall.
+“No. I don’t think so.”
 
-An idea formed, quick and incomplete, but it was enough.
+“Then what? What could cause something like that?”
 
-Grabbing a piece of the custom panelling, I ran back over to the hole and leaned it against the wall. After wiggling it around a little, I could place it so that it blocked out the hole and the light. It wasn’t perfect, there were a few spots where the light seeped in if you looked from a certain angle, but it looked inconspicuous enough… I hoped.
+The police arrived half an hour later to cordon off the area. Word spreads fast in a small village like ours. With a modest population of barely 400, everyone knows everyone, save for a handful who keep to themselves.
 
-Wasting no more time, I slid it back out of the way, scrambling through before edging it across as carefully as I could until it sat almost flush. Resting with my back against the wall, my ears strained for the Organiser's footsteps. She had to be right behind me now.
+Erica stayed glued to the window for the rest of the afternoon. I asked her to come sit down, to have a cup of tea, but she shrugged me off.
 
-The light from outside stung my eyes. Still waiting for the window to be fitted, it cascaded through the open brickwork further along the wall and into the corridor. Squinting toward it, I could clearly see the street through it.
+“I need to know,” she whispered, more to herself than to me.
 
-A flash of silver caught my eye, moving quickly before coming into focus. When I finally made it out, my legs nearly gave way. Instantly dropping to a crouch, I pressed myself even harder against the wall.
+By the time dinner rolled around she reluctantly accepted defeat. We sat in silence over cooling plates, Erica’s attention snagged again and again by the pulsing red and blue lights that bled through the curtains.
 
-The van, the silver van. If I’d noticed them a few seconds later, there was no doubt they’d have seen me standing there.
+“I don’t think they can move him,” she said, eventually. 
 
-My heart was pressing hard against my ribs, every pulse ringing in my ears. Then the clacking of all too familiar heavy boots reverberated around the deserted space. She’d caught up.
+I know my wife. I know what she wanted me to say. She didn’t need my approval, she just wanted it. 
 
-I could hear them clearly, edging closer. They were slow, deliberate, but all the while unrelenting. And they were heading this way.
+“Go.” I said. “It’s okay.”
 
-My hand began to tremble as I remembered the look she'd given me in the alley. I could imagine her clearly, taking her time, checking every inch of space, knife at the ready as she steadily headed towards me.
+She kissed me on the cheek and hurried out the door. I got it, I really did. The overwhelming pull that had drawn her from the table. Curiosity is a natural part of being human, after all. We like to make sense of things, to see them clearly and find the logic in them. I felt the pull, too, coiled tight in my chest. But beneath that urge was something heavier, something that kept me pressed firmly in my chair. An instinct that warned me that some doors, once opened, can never be closed. That instinct was fear. 
 
-An almighty metallic crash caused a yelp to catch in my throat.
+Ten or fifteen minutes passed before Erica returned, pale and quiet, as if she’d left part of herself standing on the other side of the road. 
 
-“I know you're in here, David, just come out. I promise I won't bite…”
+“Let’s go to bed,” she said. I didn’t argue. We carried out our nightly routines in silence before sharing a quiet kiss and turning out the lights. I lay in the dark for a while, staring at the ceiling. I wondered what Erica knew that I didn’t, and debated with myself if I ever wanted to know. Turns out I didn’t have a choice. 
 
-Her voice, feminine but with a rough undertone as though she’d been smoking a pack a day for some time now, did nothing to hide the malice in her words. I didn't dare move, hardly even dared to breathe. As the footsteps drew closer, it took all I had to stop myself from trembling.
+The next morning, while making a coffee, I glanced out the window and saw that Chester was gone. Nothing remained but his footprints in the ground. The same pull I’d felt the night before stirred inside me again. I stared at the footprints, thoughts of the stillness flashing in my mind. The way my body had felt being near him, the way I knew right then and there that, if I’d allowed it to, the stillness could have taken over me. My fingers tightened, my jaw clenched, my ears filled with a dull, rising hum. Whatever had happened across the road was calling to me now. A hand on my shoulder startled me, bringing me back to reality, but the pull remained. I looked at my wife with sleep in her eyes, and took her by the hand. 
 
-Then, they came to an abrupt stop.
+“I have to know,” I said. She nodded. 
 
-“David, seriously, you'll have to do better than that…”
+According to Julie Willis, a paramedic and member of Erica’s book club, their first thought was that Chester was catatonic. His brain had stopped issuing normal movement commands, leaving his body in a fixed posture for an extended period of time. Then someone suggested locked-in syndrome, a condition caused by a brainstem injury where Chester’s mind is conscious but his body is immobile. Both good guesses, except for one thing.
 
-Another crash, it sounded like paint tins or something, but much closer, followed by a grunt of annoyance. I heard the footsteps start up again, stalking around the room on the other side of the wall.
+Chester had no pulse. 
 
-Each moment felt like an eternity. All I could do was crouch there, waiting….
+In fact, despite him being completely upright, there were no signs of life at all. But, perhaps more disturbingly, there were no signs of death, either. No smell. No discolouration. No deterioration. Still warm, still standing, still… Just still. They had no choice but to declare him dead. 
 
-Again, they came to a stop, what sounded like inches from me this time. I waited, shuddering with barely restrained tears, for the panelling to be torn away, replaced by the broken porcelain mask.
+I sat myself down at the kitchen table before my legs buckled underneath me. Erica sat down too and bit her lip. 
 
-She was so close, the smell of the stale beer I threw at her invaded my nostrils. My breath caught in my lungs, and for a moment, I was almost certain she was going to hear my heart trying to burst through my chest. This was it, any minute now.
+“Honey,” she said. “You were there. Did you…”
 
-I don’t know how many agonising seconds passed by. My legs were starting to seize, my thigh muscles spasming in protest, when her voice cut through the air, startling me.
+“Did I what?” I snapped, banging my hands on the table causing Erica to flinch. I took a breath and apologised.
 
-“He's got to be in here, unless you dipshits let him sneak past you”
+“Did I what?” I said again, calmer this time. 
 
-She was talking to someone, she had to be, but there was no other voice. A spike of anxiety shot through me. What if she was talking to herself?
+“Did you… feel anything?” 
 
-I knew the Organisers were unhinged, but what if she was legitimately crazy?
+I looked at her. She knew. She’d felt it, too. Panic surged through my body. 
 
-“Yeah, I know they’ll be here soon, but the boss wanted both of them”
+“It’s just, when I was over there with Julie, I could swear I could feel something. I know it sounds crazy, but it was almost like-“
 
-No, she was definitely having a conversation. It took me a second to work it out, but then it clicked.
+“A stillness.”
 
-They were using wireless mics.
+“Yes.” she said. “A stillness.”
 
-The footsteps started back up again, accompanied by the occasional scraping and scuffing sounds. She was still searching for me. The frustration in her grunts, as she knocked what sounded like the pallet of paneling across the floor, was unmistakable. I couldn’t help but glance at the sheet of panelling obscuring me, the only thing covering my little hiding spot. If I didn’t know any better, I’d have sworn it had moved…
+We tried to carry on with life as normal, the whole village did. We went to work, walked our dogs, nodded politely to one another in the street, pretending that Chester’s “death” was just another sad, ordinary thing.
 
-“The kid saw us taking the girl, the fuck else was I supposed to do?”
+Then the stillness returned, this time for Marjorie Hallows. She’d been fixing a Sunday lunch for her family. They were sat around the table, eagerly awaiting their food when Marjorie bent down to take the chicken out the oven, only she never got back up. Julie told Erica how she’ll never forget the guttural cries of Marjorie’s children as they watched their mother get taken away in a black ambulance. Little did they know that they would be next. I heard through the grapevine it came for them all at the exact same time. Marjorie’s funeral.
 
-Another pause, she was talking about that poor kid in the alley.
+It happened more and more after that. It came for Peter Durbridge while he queued at the post office. It got a group of teens who were out on their bikes, and little Katie Fowler from down the road. She’d been on her way to school. It took dozens and dozens and still there was no logical explanation. 
 
-“Whatever, he’ll turn up again soon, just keep your eyes open.”
+The authorities tried to keep everything under wraps to avoid sparking panic in the community. They’d cart off the still people quickly and quietly, without the sirens and flashing lights. They insisted the situation was under control, that experts were already investigating the cause. 
 
-The sounds of her searching stopped, and the footsteps started up again. My hair stood on end as they edged closer, inches away from me this time. I couldn’t break my eyes away from the panelling, had she noticed it finally?
+Then the rules came. Keep your curtains closed at all times. Do not approach the still people. Do not touch the still people. Do not look directly at the still people. Do not give in to the stillness. Life as we knew it was nothing but a ghost. From what I could see online, this wasn’t happening anywhere else in the world. In fact, there was no mention of it even happening to us anywhere. It was as if the internet had been scrubbed of all traces of our village entirely. We didn’t exist.
 
-Sweat that had been beading on my forehead chose this moment to spill into my eyes. The salty liquid stung as it pooled in my eyelids, but I didn’t dare move to wipe it away. I didn’t make a sound, no matter how imperceptible I thought it would be. Not with her standing just inches away.
+Erica and I had discussed it many times as we lay in bed together, speaking in hushed voices. We knew the rules were arbitrary- they were only put in place to distract us from our inevitable fate.
 
-My eyes burned as I blinked frantically, but every blink seemed to introduce as much sweat as it removed. I didn’t know how much longer I could stand it. I was seconds away from giving in, from wiping my face, when the footsteps turned. In an instant, they faded away towards the front of the shop.
+“I don’t want you to go,” she sobbed as I held her tightly. “I don’t want to be alone. I can’t be without you.”
 
-In the distance was the unmistakable sound of a van door opening, then slamming shut. A scream of rubber tearing at the asphalt soon followed. As soon as they had started, the sounds faded to nothing, leaving only the pounding of my heart ringing in my ears. 
+I shushed her and stroked her hair. I tried to comfort her with empty promises. We could fight this. We’d sensed the stillness once before. It had beckoned us into its warm embrace when it took Chester. We’d both resisted. Perhaps we could resist it again. We just needed to be strong. I’m not sure that Erica believed me, and I’m not sure I believed myself, either. 
 
-My legs were screaming at me, begging me to break from the squat I was in, but I didn’t dare move. I could hardly believe what had just happened. It was several more minutes before I started letting myself believe that they’d gone.
+Our usual nightly routine had been replaced with something more desperate, more urgent. We’d list the reasons we love each other. Recount our fondest memories. We’d cry, we’d laugh, we’d live like each night was our last.
 
-Even now, my legs sting when I think back to crouching there, not quite believing I’d escaped. I should have just stayed there… maybe things would have been better. I’ll try to post again soon, but things have been getting difficult…
+“Just in case,” Erica would say. 
 
+That brings me to tonight. I woke with a sharp, searing pain in my arm. Erica sat upright beside me, her hand locked around my bicep, long nails digging into my skin. Eyes wide with panic, she lent towards me in an awkward, stiffened way. 
+
+“I feel it,” she whispered. 
+
+She murmured something else, but before I could register her words, the fear on her face softened, melting into a strange, peaceful smile as she let the stillness wash through her. 
+
+I waited for the pain to come, the heart wrenching ache of losing the woman I love. 
+
+Yet, inexplicably, the longer I looked at her, the calmer I felt. I brushed my fingers through her hair, but it didn’t sway or fall back into place; it stayed exactly as it was. I leant in and kissed her warm, unresponsive lips. 
+
+In the silence that followed, her last words looped endlessly in my mind. Soft and irresistible, carrying more weight than anything she’d ever said before:
+
+“Come with me.”
