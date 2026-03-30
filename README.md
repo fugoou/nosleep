@@ -1,53 +1,216 @@
-# The comedian I cherished most in my adolescence took the smile off my face.
-Do you want to resolve your traumas? Do you want to let go of everything that keeps you stuck in life and prevents you from moving forward? Come and let's talk about mental health FOR FREE. That was the ad from my favorite comedian on my teenage years. I was doubtful, but I clicked the link.
+# The Chicken Went Bad. Like Really, Really Bad!
+\*
 
-I signed up using the online form. An invitation to a chat group arrived, where they sent a video of the comedian confirming the event was real. The guy is an older man who was very popular several years ago. I remember having DVDs of his shows and repeating them until I knew them almost word for word.
+My husband has rigid daily routines akin to somebody who retired from the military. He is not a veteran, but a white-collar worker in insurance management.
 
-On the day of the event, I was very excited until I saw something strange: the location. For security reasons, let's call the building's owners "the church," although they insist it's not a church, but a "philosophy of knowledge," or something like that.
+So, I already knew he was going to ask me about the chicken in the fridge.
 
-There's a girl who harasses me who belongs to "the church." She has followed me on every social media account I've created, calls me from different numbers every so often, writes to my family, my partner, etc. I hesitated about going, but my excitement to see the man won out; I imagined asking him for a photo or an autograph.
+I braced myself.
 
-My girlfriend and I arrived at the building about ten minutes before the announced time, and they let us in without asking for any information. "What did I sign up for then?" I thought, this is weird. We filled out a new attendance list.
+“Hey, hon, I think this chicken is going bad. I can smell it through the Tupperware.”
 
-The "waiting room" was a space divided into cubicles, each with a small sofa and a giant TV. They were all playing the same loop of images about social problems, with a clear solution based on "knowledge" and the guarantee of happiness. The place was full of books on very diverse topics, from psychology to economics, but all written by the same person.
+“Yeah, I know,” I said. “This is the third time you’ve reminded me.”
 
-Right next to it, there was a place for "personality tests." There were wooden desks with pencils and a sign that said, "Take your free test today and improve your life." There were charts of "results" where all aspects were rising: openness to experience, extraversion, aggressiveness.
+“You want me to take care of it for you?”
 
-After half an hour, they told us:  
-"You can go up to the second floor, the event is about to start."
+I hesitated then.
 
-We approached the stairs, and there was a line of about two hundred people crowding together. Movement was slow, so I noticed that most of the people were adults over 50.
+“No, it’s fine. I’ll deal with it after I take the girls to their class.”
 
-When we got there, the "auditorium" was a rectangular room not much bigger than a standard classroom. Each row of chairs was less than a foot away from the next, making it difficult to enter and get seated. The place had floor-to-ceiling curtains covering the walls and a small platform like a stage with a triangle as a symbol.
+I should have let him take care of it.
 
-When we entered, an older woman who was seating people spoke to us.  
-"There's an empty space here, you can separate."
+Honestly, I shouldn’t have even bought it. I was passing through that blip-of-a-town, Acadia—long rumored throughout Connecticut for strange paranormal happenings.
 
-I intentionally disobeyed, as a way of telling myself I wasn't being controlled. Once seated, I whispered to my girlfriend:  
-"If I tell you we're leaving, we do it immediately."
+Small-town lore. I didn’t believe in ghosts and ghouls.
 
-After we settled in, a young woman behind us asked who the author of the books in the waiting room was. A very thin guy in his twenties with sunken eyes replied:  
-"I think he's the founder of modern psychology."
+I needed eggs, and their only grocery store, Brown Barrel Market, touted farm-fresh eggs on a quaint wooden sign.
 
-I couldn't contain my laughter, and my girlfriend looked at me uncomfortably. I turned around and said to the girl:  
-"This is a cult, be careful with everything you hear."
+Perfect.
 
-We were so cramped in the space that I could almost smell the hair of the person sitting in front of me. The atmosphere was suffocating due to the closeness of the chairs and people packed together, but there was such intense air conditioning that I didn't feel hot. The music was like elevator music, but it wasn't relaxing; it was unsettling, like the kind of music that seems to grow infinitely.
+I saw the meat counter nearby. It was selling free-range, whole chickens that were about to expire. I knew they’d get thrown out if no one bought them, and you can’t beat $0.49 a pound!
 
-The discomfort was such that my girlfriend told me, "I want to leave." I hesitated a bit; I wanted to wait for the comedian who defined my adolescence to come out. But I made up my mind, took my girlfriend's hand, stood up, and we started to leave. We were lucky the place wasn't full yet, as there were empty chairs near the exits.
+I had planned on roasting it that night.
 
-We passed behind the computer controlling the music. On the screen, I could see a file playing called "Control Noise.mp3." It was a sound like a buzz that, from the front, I couldn't hear, but now it was very clear. Several people asked us as we were leaving:  
-"Are you leaving already?"  
-"Yes," I replied, growing more uncomfortable each time.
+But that was three days ago.
 
-Upon leaving, I felt like when you come out of a horror movie that has left a very bad taste in your mouth. We walked almost twenty blocks trying to shake off the discomfort. We ate ice cream, and when we felt somewhat better, we returned home.
+My husband pecked me on the cheek and grabbed his gear. His company was going on some kind of weekend wilderness adventure retreat. I had no idea about the specifics. Something like roughing it, hiking, archery—stuff like that.
 
-Once home, curiosity got the better of me, and I investigated. Simply typing the comedian's name and the name of "The church" was enough. It turns out the guy is a high priest and was involved in the building's foundation. There's a video from almost twenty years ago where he talks about the church; I saw in his gaze the same sunken eyes and empty expression I saw in the young man at the church. I felt my adolescence being destroyed; one of the men I admired most was a high priest of a cult.
+I left shortly after him to take the girls to ballet. Upon returning and entering the house, I remembered that I really needed to take care of the chicken.
 
-Yesterday, I told this story to a friend and felt the chills from that day again. He told me he had seen ads; the comedian had kept advertising his "conference" every week.  
-"Let's go see what happens," said my friend with the resolved excitement of someone inviting you to go fishing or hunting.  
-"It could be dangerous," I said. "Being a private place, they have control over what happens."
+As I peeked under the lid of the huge Tupperware bowl, a putrid smell hit my nose. I peeled back the lid completely and saw the white, sticky film all over the rancid meat.
 
-My girlfriend decided to investigate how members of "The church" react to those who go against their cult. It turns out their texts contain orders to attack detractors in any way, legal or illegal: defamation, scams, attacks, and any form of nullification. Furthermore, several high-ranking police officers are members.
+I turned my head and coughed, gagging. I knew I needed to remove the bowl and dump the chicken in the trash, but I had this weird resistance to throwing away dead meat, especially when it was a whole chicken still resembling the form of a poor, dead bird.
 
-Thinking about what I said inside the building—"this is a cult"—fills me with panic, knowing I put myself and my partner in danger. I know the woman who harasses me will probably read this due to her crazed obsession with me. I'm afraid of what she might do; I hope there are no members of "the church" on this forum. Never go to a free conference; nothing in life is free.
+Don’t get me wrong, I’m not averse to eating meat. Humans are omnivores, meaning we’re meant to eat meat and vegetables, so I partake.
+
+However, I have this weird thing that when meat, especially a whole chicken, spoils in my fridge, I feel overwhelming guilt. Suddenly my mind goes to this animal being butchered, and now I’m just throwing it in my trash can. It feels like maybe it at least deserves a funeral.
+
+Call me crazy, but this probably comes from my childhood. My grandma had chickens, and when I was little, I got kind of attached to them. I was a little devastated when I found out that sometimes the older ones would become dinner.
+
+Clearly, it didn’t deter me from eating meat.
+
+But… and please don’t judge me here… when a whole chicken goes bad in my fridge, I have this compulsion to bury it in the backyard rather than just throw it in the trash.
+
+However, being a suburban housewife with two small girls, I don’t often do that anymore.
+
+Not only would the neighbors think it’s weird, but inevitably one of my family members would come out to question me.
+
+Then I really would look crazy.
+
+All day long, I kept thinking about the chore of throwing out the chicken, but I procrastinated. It could wait one more day.
+
+I locked up the doors. I didn’t feel unsafe when my husband left for these trips. We lived in a safe neighborhood.
+
+I did my nightly routine and got in bed. Sleep came pretty quickly.
+
+\*
+
+I guess it was about 3:00 a.m. when I heard a sound.
+
+*Slooosh, thump, slooosh, thump…*
+
+“What the hell is that?” I sat up in bed, rubbing at my eyes, straining to hear that strange repetitive noise.
+
+It sounded like it was getting closer.
+
+*Slooosh, thump, slooosh, thump…*
+
+Then, all at once, the faint but discernible scent of rancid meat filled my nose.
+
+I flipped on my nightstand light and gripped the covers, momentarily paralyzed by the sound of wet sloshing and thumping moving slowly and steadily down my hardwood floors.
+
+Then the sound stopped momentarily outside my doorway. The door creaked open, and nothing. No one was there!
+
+My hands were trembling as I stood up. I steadied myself against my bed frame, moving closer to the door. I threw the door open, and the overwhelming stench of the rancid meat hit my nostrils.
+
+My eyes slowly drifted down to the floor, where the chicken carcass was lying motionless at my feet.
+
+The smell was terrible. I felt like I was going to vomit or faint. I sucked in deep breaths, but the smell was making it worse.
+
+Oh no…
+
+*Blackout*
+
+\*
+
+The next morning I woke up and sat bolt upright.
+
+My head was aching as if I had a hangover, but there had been no drinking the previous night!
+
+In a rush, the memories came flooding back in. I pulled back the covers and went to my bedroom door, throwing it open.
+
+Nothing.
+
+I braced myself for the terrible smell. I expected to see the rotting chicken lying on the floor.
+
+Nothing.
+
+Absolutely no trace.
+
+I ran my hands through my hair and stopped.
+
+A cold chill permeated me as I felt the huge goose egg on the top side of my head—the kind someone might get when they fall down and…
+
+“What the hell is going on?” I mumbled.
+
+I ran down the hall to the kitchen, threw open the fridge door, and—yes—it was still there. The bowl, and presumably the spoiled meat.
+
+I lifted the bowl out of the fridge. Relief filled me when I recognized there was a heaviness to it, meaning the chicken was…
+
+I quickly lifted the lid and peeked inside. I exhaled the tense breath I had been holding.
+
+Quickly, I grabbed a trash bag from under the sink, poured the chicken into the bag, and knotted it off. I took it out to the trash cans and threw it away.
+
+I went back inside, washed my hands, and sanitized the bowl with hot water and soap.
+
+Slowly, the lingering smell began to dissipate.
+
+The day went on as normal.
+
+Except I couldn’t shake the feeling that it wasn’t a dream. Not to mention, every time I ran my hand through my scalp, that knot was still there, tender and aching.
+
+It didn’t matter. Whatever was going on, it was taken care of.
+
+\*
+
+That night, I went through my routine of locking the doors and getting ready for bed. I settled into bed, but sleep didn’t come so easily this time.
+
+The day had kept me busy—my thoughts preoccupied—but now in the quiet stillness of night, I ruminated on the strange dream.
+
+If it was a dream, why did I have a headache all day from a fall I don’t remember taking?
+
+Furthermore, how did I get back in bed?
+
+I got up, went to my bathroom, and popped two nighttime Tylenol. As a rule of thumb, I liked to refrain from alcohol when I was stressed, but I was highly considering downing a shot or two of Johnnie Walker from our alcohol cabinet.
+
+Eventually, sleep did come. But I must have been restless because the sound came again, and my eyes instantly popped open.
+
+*Slooosh*
+
+*Thump*
+
+*Slooosh*
+
+*Thump*
+
+It was slower this time. I sat bolt upright, straining to hear.
+
+Then that unmistakable scent hit my nose. Was it worse now?
+
+Definitely worse.
+
+I waited, the sound growing louder.
+
+*Slooosh*
+
+*Thump*
+
+*Pause.*
+
+*Creeeak…*
+
+I grabbed a T-shirt lying on a chair near my bed and placed it over my mouth to stifle the smell. I was not going to faint again this time.
+
+There sat the dead chicken carcass on the threshold of my doorway again.
+
+This time worse.
+
+Bits of trash clung to it. It had an awful green tint. It had been “cooking” in the hot plastic trash bin all day.
+
+Even breathing, through my mouth into the cloth, I couldn’t escape the smell.
+
+A frantic idea hit me, and without further contemplation, I decided to act quickly.
+
+I took the T-shirt and threw it over the chicken, bundling it up. I ran to the back door, unlocked it, and went outside.
+
+Of course it would be raining…
+
+My bare feet sloshed against the wet grass as I grabbed a shovel from the garden shed on my way to the very back of the property.
+
+I dumped the carcass on the ground and began to dig a hole. I dug four feet down, picked up the bundle, and threw it into the hole.
+
+My limbs were aching, but it didn’t hamper my speed. I quickly covered the hole and smacked the wet earth down firmly with the shovel.
+
+*“Please stay dead*,” I silently prayed.
+
+That was the only eulogy it was getting.
+
+I went back inside and took a very long, hot shower. It was already 5:00 a.m., and I knew I wouldn’t be getting back to sleep. I stumbled into the kitchen and made myself some coffee.
+
+I startled and jerked around as I heard the back door to the kitchen rattle while my husband inserted his key.
+
+He threw open the door, grinning. His eyes were bright and enthusiastic.
+
+“Hey, check this out!”
+
+He waved me outside, over to the patio table, and I looked down at the fully skinned carcass of a rabbit.
+
+“We did a bit of bow hunting. Steve and I were the only ones to bag one!”
+
+I put a hand on his shoulder and said, “That’s great, honey, but I’ve decided to become a vegetarian.”
+
+\*
+
+[\[MaryBlackRose\]](https://www.reddit.com/r/BlackRoseOriginals/comments/17qnb8a/where_to_find_my_work_how_to_contact_me/)
+
+\*
