@@ -1,248 +1,272 @@
-# The wrong side of platform
-Okay so I've been sitting on this for almost three weeks now and I keep telling myself I won't post it because it sounds exactly like the kind of thing people make up for this sub. But it happened. I have the bruise photos somewhere on my phone. My wife keeps waking up at 2am. My four year old asked me two days ago if the aunty in the dark building was sad. So. Here we go.
+# My Life Is Stable Thanks to Andrew. But He Never Left That Room
+I don’t know why I keep coming so early. Visiting hours start later, but I prefer to sit in the empty hallway before the other families arrive.
+At that hour, the hospital sounds different. There are no conversations, just the irregular beep of some distant monitor and the dry scrape of a cleaning cart against the linoleum.
 
-Some context first. I'm a trauma surgeon. I've worked nights in emergency theatres for years — blast injuries, road accidents at 3am, the kind of cases where you just don't think, you cut and you clamp and you make calls and then you go home and stare at the ceiling. I'm telling you this not to sound impressive but because I need you to understand that I don't scare easily. Fear for me has always been a physiological thing. Cortisol spike, heart rate up, it passes. I've stood over a man with half his face missing and stayed completely steady. I'm not bragging. It's just the job.
+Sometimes, when the cart passes down the hall, the sound reminds me of the short echo of the place where I left him. It’s not the same, but my body reacts as if it were.
+As if some sounds no longer belong to just one place.
 
-What happened in that building didn't pass. Three weeks later it still hasn't passed. And I don't know what to do with that.
+Once, when it passed closer than usual, Andrew tensed all at once. His hands closed around the armrests and his lips moved without sound.
 
-—
+For a second, I could have sworn he was reacting to the same hum, even though there was only the hallway there.
 
-We were visiting Priya's family. I won't say which city — somewhere in central India, a tier-2 place, the kind where everyone's been there for four generations and the streets have two names, the government one and the real one. Priya is my wife. Dr. Priya Deshmukh, dentist. We had an arranged marriage, met over one of those compulsory Sunday lunches with about thirty relatives crammed into a flat that could comfortably fit twelve. We both sat there pretending to look at a painting on the wall and actually clocking each other. She was wearing green, she argued with her chacha about the election within fifteen minutes of arriving, and I thought — this woman is going to be a problem. I was completely right. I married her six months later.
+Andrew doesn’t talk anymore. Not really.
 
-Seven years. She's been right about most things in those seven years and she keeps a running tally, not out loud, just in that particular expression she gets. She's the kind of person who packs the kids' extra clothes three days before we travel. Reads reviews of restaurants before agreeing to go. Has a small emergency kit in her bag that has, I'm not exaggerating, saved us three separate times. She also has this thing where if she gets a bad feeling about something she'll say it exactly once, calmly, and then let you decide, and then when she turns out to be right she will never say I told you so, she doesn't need to, the silence is enough. It's genuinely worse.
+He was always the one who filled the silences. Not because he talked a lot, but because he found a way to make everything feel less heavy. He had that habit of joking when things got uncomfortable, even when there was nothing funny. Now, when his lips move without sound, I sometimes wait for that gesture, that half smile. It never comes.
 
-She told me once that evening. I didn't listen.
+I say it like that because it’s easier than explaining what really happens when I sit in front of his bed. Sometimes he moves his lips, as if he’s practicing words he no longer remembers.
+Other times he just looks at me, eyes open, following something that isn’t in the room.
 
-Arjun is four and a half. Loud, funny, refuses to stop narrating everything — traffic, pigeons, the texture of footpaths. He was in his red dinosaur shirt that day and had been swinging my arm the whole walk to the metro station like he was trying to dislocate my shoulder as some kind of experiment. Kabir, the younger one, nine months old, was strapped to my chest in his carrier. He'd just fed and was basically unconscious. That particular warm boneless weight that babies go when they're fully out. You know the one.
+The air always smells like disinfectant and plastic, and that smell clings to my clothes even if I wash my hands twice.
 
-The time was around seven thirty in the evening. It had been a solar eclipse that day. Priya had done everything her mother asked — prayed, kept the kids inside, didn't cook, the whole thing. Her mother gave me the look she specifically reserves for my skepticism about these customs, the one that says she's been right about everything for sixty years and is prepared to wait. I gave her the smile I give consultants who have made a wrong diagnosis.
+No matter how many times I come… it’s never the same.
 
-Here's the thing about eclipses in central India — in most of the country really — it's not just a superstition, it's baked deep into the culture. It's Grahan. The darkness of Rahu, the severed demon head that swallows the sun. The period of inauspiciousness that operates on different rules from normal time. Even completely non-religious people observe it. You just stay inside. The city empties out. It's one of those cultural things where the sheer collective weight of everyone believing it makes it feel true even if you personally don't. I noted all of this and did not engage with it. I am a man of science.
+I sit in the hard chair by the wall, the one that squeaks if I move too much.
+There’s a clock that makes an almost imperceptible click every second. I catch myself counting those clicks so I don’t think about the rest.
+Sometimes I talk to him about normal things — the weather, traffic, things that don’t matter — because the silence weighs more when he doesn’t respond like he used to.
 
-We needed to get to the other side of the city. The metro station we needed was built over one of the main highways — the new kind, very impressive, the government's pride-and-joy civic infrastructure. Platform 1 was on our side of the road. Platform 2 was on the opposite side, same line, you needed to cross four lanes of absolute chaos to get to it on foot. My brother-in-law mentioned, while we were leaving, that there was a shortcut — internal bridge connecting both sides of the building on the third floor. Both platforms sit on the fourth floor, bridge one level below, and apparently there was a ground floor exit on the other side that opened right onto the service road. No highway. Two minutes.
+My lawyer told me not to talk about this.
 
-Priya said she'd rather take the zebra crossing.
+Not in those exact words. But he was clear: there are things that are better left out of any record, out of any story someone might read.
+I nodded in his office, with the air conditioning too cold and a glass of lukewarm water in my hands, as if understanding that were the same as accepting it.
 
-I asked why. She said she didn't like shortcuts today. I said because of the eclipse? She said because of common sense, and yes also the eclipse, and she said it in the exact tone that means she's being practical AT me, which is a specific tone I have learned to recognize over seven years. I didn't have a good response. I kept walking. She followed — she always follows because she's not going to let me take the children somewhere without her, and also I think she understands by now that I have to find out for myself when I'm wrong. That's the thing about us. We bicker constantly. We know exactly how to irritate each other. But she has never once not been with me. Not once. Even when she thinks I'm an idiot. Especially then.
+Now my life is stable. That’s what I say when someone asks. Steady job. Debts under control. A routine that works. All of that is true.
 
-—
+And I can’t sleep.
 
-The third floor bridge was fine. Open, lit, last bit of sunset coming through the vents in orange columns, very pleasant actually. We crossed it. On the other side of the bridge, where it should have opened into the Platform 2 area, there were construction barricades. Floor to ceiling. Big industrial site panels bolted together, completely filling the corridor. Safety yellow paint. A bilingual sign: ENTRY RESTRICTED / प्रवेश वर्जित.
+Before that, it wasn’t. I had an eviction notice taped to my apartment door. It wasn’t an abstract threat.
+It had a date. Every morning I saw it before leaving and every night I pretended not to read it again.
 
-Priya stopped. She said great, let's go back.
+It’s not a concrete image. It’s more like pressure in my chest, as if I’d forgotten something important and my body knew it before I did.
+I lie down, close my eyes, and hear the same sounds as always. I don’t need to distinguish them to know where they come from.
 
-I saw the gap. One panel had come loose at the bottom, creating this triangular opening maybe eighteen inches across at its widest. Through it I could see the concourse on the other side. Wide space. High ceiling. Metro signage still up, the logo still on the pillars. The big windows at the far end facing the mall next door, and the mall lights were on now, that flat commercial yellow spilling through. Everything intact. Just dark. Just completely empty.
+I’m not writing this to be forgiven. I don’t even know if there’s anything that can be forgiven.
 
-It didn't look dangerous. It looked like a room that had been shut, not a room that had collapsed or anything. It looked like it was just closed.
+I just need to say, at least once, that none of this was an accident.
 
-"Rohan." Priya said my name in that flat quiet voice that means she is absolutely serious.
+Andrew was the one who called it a challenge.
 
-"Two minutes," I said, and I turned sideways and went through.
+He said it like it was a private joke between the two of us, with that half smile he used when he wanted something to sound less serious than it really was.
 
-The air on the other side was different. I noticed it immediately. It wasn't cold, it wasn't the kind of old smell you get in a properly neglected space. It was just — heavier. Like the air had been sitting still for a long time and didn't appreciate being moved. I know that sounds like I'm trying to make it sound eerie in retrospect, but genuinely this was the first thing I noticed, before anything else happened, that the air felt wrong.
+We were standing in front of the entrance to the place, and the air smelled like old dust and hot metal.
+The building had been abandoned for years, but you could still hear the low hum of electricity somewhere, like an insect trapped inside the walls.
 
-Arjun came through behind me and straightened up and looked around and said, very matter-of-fact, "smells like Ajoba's old cupboard." His grandfather's cupboard on Priya's side, old dark wood, been locked for years. That specific smell of old enclosed space and something underneath it, older, harder to name. He was right. That was exactly it.
+“Just ten days,” Andrew said.
 
-Priya came through last. She looked around. Took Arjun's hand. Said "two minutes" back to me, and it wasn't an agreement, it was a timer.
+He repeated it slowly, as if the number itself were a guarantee. I thought about the money before I thought about anything else.
+Not in exact amounts, but in what it meant: room to breathe, fewer calls, fewer unopened envelopes on the table.
 
-—
+“If something goes wrong, I stop it,” I told him.
 
-The concourse was huge and completely silent. Our footsteps hit the polished floor and came back wrong off the ceiling — slightly too loud, the echo a bit off, like the space was larger than it looked. The floor had that thin pale dust on it, the kind that's months not years, the kind you get when nothing moves the air. Everything lit in that sickly yellow from the mall windows. Everything tinted like a sepia photograph.
+It wasn’t a dramatic promise. It was something practical, said almost out of habit, like checking the stove before leaving. Andrew nodded quickly, too quickly.
 
-The ticketing counters were intact. Turnstiles intact. Little kiosk in the middle with pamphlets still in the rack. A row of orange plastic waiting chairs, the standard metro kind, in a perfectly neat undisturbed line. A paper cup on the kiosk counter like someone set it down meaning to come back. Everything in place. Everything as it should be except no people, no light, and a layer of dust over all of it.
+“Trust me,” Andrew said.
 
-Arjun started to say something — you could see the breath coming in, the windup — and Priya squeezed his hand. He stopped. That's not nothing. Arjun doesn't stop. In four and a half years I have not once seen that child stop mid-commentary for anything. He looked up at her and she looked down at him and they had some kind of communication that I wasn't part of, and he stayed quiet and pressed into her side.
+He said it with a confidence he didn’t usually use with me. Normally I was the one who doubted first, and he was the one who minimized things to make them sound less serious.
+That’s why, instead of calming me, that sentence made me think he knew something I didn’t.
 
-Escalators were off, obviously. Stairwell next to them: clean, white-painted, three floors to the ground. I went first, Priya behind me with Arjun.
+The camera was ready. It wasn’t sophisticated, but it worked.
 
-Second flight down and the light from the concourse was gone. Phone torch on. The walls very white, the shadows very black. Four sets of footsteps — mine, Priya's quick precise ones, Arjun's little slaps, and Kabir's silence against my chest.
+On the interface, the system appeared with a name I’d never stopped to read out loud: **Custody-10**.
+It sounded administrative. Clean. As if what mattered was the number, not what happened during those days.
 
-Then on the second floor landing. Behind the door on the landing — not from below, not from above, from behind that specific door — one single slow drag. Something heavy shifting its position very deliberately. Not a bang, not a creak, not the building settling. One. Slow. Drag. The sound of something that had been waiting a long time and was just moving around.
+The metal door looked thicker than I remembered, with peeling paint and a handle cold to the touch. When I opened it, the hallway light didn’t quite reach the back.
+The inside stayed halfway between visible and dark, as if the place didn’t want to be seen.
 
-Priya's nails went through my sleeve. I felt it.
+The sound inside was different: more closed in, more hollow. Every step made a short echo that never fully disappeared.
 
-Arjun turned toward the door.
+We checked everything again. He talked about consent, about understanding the risks, about it being his decision.
+I nodded, holding the key in my hand. It was heavier than I expected. That weight calmed me. Something tangible. Something I could open and close.
 
-"Baby." Priya's voice was absolutely calm. The voice she uses on scared patients, I'd imagine — that particular register, warm and completely non-negotiable. "Look at me." He looked at her. She held his eyes until he nodded. Then she looked at me. In the torchlight what her eyes said was: move.
+Andrew took a deep breath before going in.
 
-We moved.
+For a second I thought about saying something else, but I couldn’t find what. I just lifted my hand with the key so he could see it.
 
-—
+“Ten days,” he repeated, and smiled.
 
-Ground floor. Beautiful, actually — high ceiling, glass and steel, the kind of public space that makes you feel like a city has ambitions. And through the glass doors, maybe thirty meters away: the highway. Headlights everywhere. Auto-rickshaws cutting between buses. Evening rush hour fully underway. The whole ordinary glorious noisy real world, right there.
+The door closed with a dry slam. The sound echoed down the empty hallway. I turned the key. The metallic click was clear, clean, final.
+I stared at the door a second too long, the key still warm in my palm, telling myself everything was under control.
 
-The doors were chained and padlocked from the outside.
+Because, in that moment, it really seemed that way.
 
-Heavy iron chain through both push-bars. Proper padlock. Someone had done this carefully and from the other side.
+At that point it no longer felt like a decision. It felt like the next phase. Something that, once started, had to be completed.
+I didn’t think of it as “continuing” or “stopping.” I thought of it as not ruining something that was already in motion.
 
-I stood there and looked at it. Priya stood beside me. Neither of us said anything for a bit.
+The first two days were strange, but manageable.
+That’s what I told myself.
 
-Then she said quietly: "the elevator."
+There was a constant hum in the audio, like the microphone was picking up something I couldn’t hear in person.
+It wasn’t loud, just… always there.
 
-To our left: a service elevator, older than everything else in the building, like it came with the plot of land rather than being installed. Dull metal door. Where the call button should have been there was just bare wiring. No light above it. The kind of elevator that exists in the old wings of government hospitals. You know what I mean. Everyone knows not to take that elevator.
+Like an unwanted companion. When I turned up the volume, his breathing was amplified too.
 
-We looked at it. We looked at each other.
+Each inhale sounded too close, too wet, like he was right up against the microphone without realizing it.
 
-"No," we both said at the same time.
+“You hear that too?” he asked once.
 
-It was almost funny. Given everything. That small moment of us being absolutely in agreement in the dark — she almost smiled, I almost smiled. It was the only thing that kept me from falling off some edge I don't have a name for.
+I didn’t know what to answer right away. The hum filled the spaces between his words. I told him it was probably interference. That it was nothing.
+While I was talking, I realized I was clenching my teeth.
 
-We went back up the stairs.
+By the third day, he started getting closer to the microphone. He didn’t always talk. Sometimes he just breathed there, letting the sound saturate.
+When he did talk, he repeated things he had already said before, but with a strange calm, like he was reading instructions instead of asking for help. His voice sounded clearer, but less like his.
 
-—
+“Talk to me… just say something.”
 
-I'll try to describe the climb back up but I should say first that my memory of it doesn't feel linear. It comes back in pieces, out of order, the way bad nights in trauma sometimes do. So bear with me.
+I answered, but shorter each time. Practical phrases. Weightless comments. Anything to fill the silence without stepping too far into it.
 
-Between the ground floor and the first floor landing: my torch flickered. Battery at 64%. No reason for it. I stopped walking for just a second and in that second the silence rushed in properly, and I heard her.
+Between the fourth and fifth day, he started getting confused. He asked me the same question twice. Then three times. He said my name over and over, like he was afraid of forgetting it if he didn’t repeat it.
 
-A woman humming.
+“Are you there?”
+“Are you there?”
+“Tell me you’re there.”
 
-From behind us. From the ground floor lobby we had just left. Not from outside, not traffic, not through the glass — from inside, from somewhere near the elevator.
+There were soft knocks against the wall. Not hard. Not panicked. More like he was testing the space, measuring where it ended. The microphone picked up each tap like a short, hollow echo.
 
-Old tune. Not anything I recognized from films or radio. The kind of melody that doesn't go anywhere, just three or four notes in a slow loop, circles back on itself, never resolves. The kind of thing you hum absently when your hands are busy with something else. Completely unbothered. Unhurried. As if the dark was not a circumstance but just a preference.
+“Get me out. It’s not funny anymore.”
 
-Priya pressed against my arm without looking at me.
+He didn’t raise his voice. He didn’t sound desperate. He sounded calm, like he was asking for something ordinary. That lack of urgency unsettled me more than if he had screamed.
 
-I told myself it was outside sound. Acoustics, the glass, someone on the footpath. I am good at telling myself things. I told myself this firmly and kept going up.
+I knew it was dangerous. But I also knew — or convinced myself — that stopping it at that moment wouldn’t undo what had already happened.
+It was easier to think the damage was already done than to accept that it still depended on me.
 
-First floor landing. And here's where I made the mistake of pointing my torch back down the stairwell toward the ground floor.
+Still, I kept going.
 
-There was a shape at the bottom.
+I told him to rest. That it was part of the process. That the sound was distorting everything. While I was talking, I realized I was justifying myself more than I was reassuring him.
+I turned the volume a little lower. Not enough to drown him out, but enough so that... his breathing didn’t fill the whole room.
 
-I've gone over this many times since. Checked myself. Memory does things, fear does things, I know all that. But I was looking directly at it with a torch for about three full seconds. I know what I saw.
+That night, when he said my name again, I let a second pass before answering.
 
-An old woman. Seated — and that was immediately wrong because there was nothing to sit on down there, no chair, no ledge, nothing, but she was at seated height with her back slightly curved the way old women sit who've carried weight their whole lives. White saree — widow's white, the kind you see at certain temples. Her hair was long and loose and dark in a way that was wrong for her age, spread across her shoulders too evenly, too arranged. Her face was turned away from me, toward the locked glass doors and the highway outside, like she'd come down there specifically to watch the traffic and had been doing it for a while.
+Just one second.
 
-Still humming. That same circling tune. Absorbed in it.
+After that, the access failed without warning. It wasn’t a clear message. It wasn’t a big alert. Just one attempt that didn’t load and a second that took too long.
 
-The torch flickered again. Half a second of dark. And in that half second she turned her head toward me.
+I did nothing but stare at the screen, the brightness tiring my eyes. The clock showed the time in white numbers too sharp for how tired I was.
 
-I did not wait.
+When the audio finally came back, Andrew was already breathing fast.
 
-I turned back up and I did not run — Kabir was on my chest and Arjun was two steps behind me and running would have meant telling both my kids that something was wrong in a way that couldn't be fixed. So I walked. At the absolute edge of what walking is. Priya was already moving. She'd seen me look down and look away and she'd understood everything from that.
+“I can’t,” he said. “I can’t.”
 
-"Don't look back," I said quietly.
+His voice sounded louder than usual, like he was closer to the microphone than ever.
+The hum was still there, but now it mixed with something more irregular. A wet sound, like air sticking in his throat.
 
-She didn't ask why. She didn't look back.
+“Please. I can’t anymore.”
 
-The humming followed us up one whole floor before it faded. I don't know if it stopped or if we just got far enough away. I genuinely cannot decide which of those possibilities bothers me more.
+I looked for the key in the drawer. My fingers touched it before I took it out. The metal was cold. I held it for a second, just to feel its weight, like that could organize my thoughts.
 
-Second floor landing. The door. Same door from the descent. Arjun slowed as we approached it without being told — he didn't look at it, just slowed and then sped up after we passed it. His fist was twisted so hard in Priya's kurta that he'd pulled it completely off one shoulder.
+“You said you’d get me out.”
 
-The door handle.
+I spoke to him in a calm voice. Too calm. I told him the system was failing. That it needed time. That he should calm down.
+While I was talking, I heard a stronger thud in the background, followed by something I couldn’t fully identify. It wasn’t a scream, but it wasn’t just breathing either.
 
-Coming down, it had been flat. Neutral. Just a handle. Now the lever was depressed maybe a quarter of the way down. Like someone on the other side had their hand on it. Not pushing to open. Just holding it. Feeling our footsteps through the metal.
+Before I could process the noise, my phone screen lit up with a system notification. It wasn’t a normal message.
+It came from the same panel where the deposit notifications for **Custody-10** appeared.
 
-I didn't stop. Didn't tell Priya. Kept my eyes forward and kept moving.
+It didn’t say much. Conditions. Time. Confirmation.
+But there was a line I didn’t remember seeing before, something that didn’t sound technical, but personal, like someone had decided to write it that way on purpose.
 
-Then the smell. No warning, nothing — a thick cold sweetness, marigolds, a lot of them, the specific way they smell heaped on a body at a cremation. There is something about that smell that bypasses thinking entirely. Some part of the brain that is much older than the rational part just knows: this smell means the dead were here. The smell lasted maybe four or five steps then vanished completely.
+> **Transfer withheld. Requirements not met.**
+> **Unauthorized interruption detected. Do not interrupt the process.**
 
-Priya stopped.
+I read it twice before accepting that it wasn’t an error.
 
-"You smell that?" she whispered.
+Andrew spoke again.
 
-"Keep walking," I said. Not because I didn't smell it.
+“Please…”
 
-Between the second and third floor she stopped again. "Something touched my shoulder. From behind."
+For a moment, I felt something like panic. Not for him, not entirely, but for me. For the idea that if I opened that door now, nothing I had done would make sense.
+The thought made me feel ashamed almost immediately. Still, it didn’t go away.
 
-Torch back. White wall. Nothing.
+Andrew offered money over the audio, rushed, like that could change something right away.
+I looked at the message again, more to stop listening to his voice than because of what it said. I thought about numbers. I thought about bills. I thought about what would close if I accepted and what would stay open if I didn’t.
 
-"There's nothing there."
+I typed a response. Deleted it. Typed again. Deleted it again.
 
-"Rohan." She used the same level voice she'd used with Arjun on the landing. "I know what I felt."
+“Just a little more,” I told myself.
 
-And then, almost to herself: "Rahu kaal was at sunset. We came in at sunset."
+I accepted.
 
-I didn't have anything to say to that.
+In that moment I knew I was no longer waiting to save him. I was waiting for the process to be completed.
 
-Rahu kaal is the inauspicious daily period that falls under Rahu's influence. On the day of a solar eclipse it's supposed to carry double weight. The old people say that when Rahu kaal and Grahan coincide, the barrier between the living world and whatever is on the other side gets thin. The things held back by daylight and noise and the movement of living people — they feel the double darkness and they drift close. They're drawn to warmth. To the living. The way you can see a distant fire from very far away on a cold plain.
+The confirmation came too fast. Faster than it should have, like the decision had already been anticipated.
+For a second I had the absurd feeling that I wasn’t responding to an offer, but fulfilling something that had already been decided.
 
-I've heard this my whole life. I never believed it.
+I turned off notifications.
 
-Kabir, who had been completely silent against my chest since we entered that building — not a sound, not through the locked door or the dragging or any of it — lifted his head. Turned it slowly to the left. Fixed his eyes on a point on the blank white wall of the stairwell. That total focus that babies sometimes have, that way they look at something with complete attention that makes you wonder what they can perceive that the rest of us learned to stop seeing years ago.
+The silence wasn’t total. The phone kept vibrating very softly on the table, like it wanted to remind me it was still there.
+I turned it face down. The black screen reflected my face for a second. I looked worse than I expected.
 
-He wasn't looking at the wall.
+There were messages I didn’t open. Words that appeared and disappeared without me reading them completely.
+On the audio, the sounds became more muffled. Like something was covering the microphone. Like the space had become smaller.
 
-And then he smiled. Softly. Like he recognized something.
+“You said you’d get me out.”
 
-I know what a reflex smile looks like. I know the neurology.
+That was the last clear sentence I heard.
+After that, there were only noises. Muffled. Irregular. Long pauses between one and the next.
 
-I picked Arjun up without a word, held him against my side, said "move," and Priya moved.
+I looked at the key on the table. I didn’t touch it. It no longer felt like a tool.
+It felt like something that shouldn’t be there, like the metal held part of what happened and touching it would be a way of remembering everything at once.
 
-Those last stairs. We came up like I've run down hospital corridors on a code call — not panicking because panic costs seconds, but every single thing stripped away except get to the door. Priya ran with me. No hesitation, no questions, just matching me step for step the way she always has when it actually matters. This woman I met at a crowded lunch in a too-small flat. This woman who was arguing about politics before she'd touched her food. This woman who I have been wrong at for seven years and who has never once let me go somewhere without her.
+I had one last chance to do something different.
 
-Third floor concourse. We crossed it without stopping. I didn't look at the chairs or the counters or the pamphlet rack or—
+I didn’t respond.
 
-The cup.
+I didn’t open it right away.
 
-The paper cup that had been sitting on the kiosk counter when we came through. The cup that someone had set down and not come back for.
+I stood in front of the door with the key in my hand, breathing the hallway air before deciding.
+The smell came first. It wasn’t strong at first. It was something sour, heavy, that settled in the back of my throat.
 
-It was on the floor. Middle of the concourse. Not fallen, not knocked over — set down, upright, neat. In the direct path between the stairwell door and the gap in the barricades. Placed there. While we were below. Put there to be seen.
+When I finally turned the key and pushed, I saw him.
 
-Priya saw it at the same time I did. Her whole body went rigid next to me.
+Andrew was curled up on the floor. He didn’t lift his head right away. His body barely moved, like each breath took more effort than it should.
+I said his name. I said it once. Then again. It took him a while to look at me.
 
-Then from above the ceiling — from the platform directly overhead, Platform 2 on the fourth floor — footsteps. Not settling creaks. Footsteps. Deliberate and slow, going from one end of the platform to the other. One foot, then the other, then a pause. Back and forth. The walk of someone waiting for a train that is never coming.
+When he did, his eyes passed over my face without stopping.
 
-I didn't look at the cup. I didn't look up. I looked at the gap in the barricades and I moved.
+“Andrew,” I said again.
 
-Priya went first pulling Arjun. I came through last sideways and the metal edge caught my shoulder hard — found the bruise two weeks later, deep purple, couldn't explain it to anyone at work. Didn't feel it at the time.
+He blinked. His mouth moved, but what came out wasn’t a complete answer. A fragment. A repetition.
+Something he had already said before, but without the right tone, like he didn’t know who he was saying it to.
 
-On the lit side of the barricades. The footsteps above still going, back and forth. Then the panels were between us and them.
+The hospital came after. Stretchers. White lights. Sounds I knew too well now. A doctor spoke to me in a hallway. His voice was low, professional.
 
-I looked back through the gap. The concourse: still, silent, the mall yellow across the dusty floor. The cup in the middle of the floor, upright. Nothing there.
+“The damage is permanent.”
 
-Arjun looked through the gap for a long moment. Then he turned to me with the complete seriousness of a small child delivering important information.
+He didn’t use big words. He didn’t make a dramatic pause. He said it like it was just another data point on a long list.
+I nodded. I felt my body react before my head did. A short emptiness in my stomach. Then nothing.
 
-"Papa. The aunty was waving."
+Andrew was transferred. Institutionalized. Visits became part of my routine. Always the same smell of disinfectant. Always the same sounds.
+Sometimes they give me paper and a pencil so he can stay “occupied.” His hands move slowly. His drawings are almost always the same.
+Repeated lines. Closed shapes. Minimal variations of the same pattern, over and over.
 
-Priya made a sound I have never heard from her before or since. She put her hand over her mouth and turned away and for a moment her shoulders were shaking, and I put my hand on her back and she leaned into it, and Kabir — finally, after forty minutes of absolute silence — started crying. Proper, normal, healthy baby crying, the vigorous kind that means nothing is wrong.
+I avoid looking at them too long.
 
-I have heard a lot of sounds in operating theatres at difficult moments. That crying was the best sound I have ever heard.
+The bank transfers appeared as promised. One number. Then another. I watched the debts disappear from the screen.
+I felt relief before letting myself feel anything else. My account in order. My calls silent. My life, finally, stable.
 
-—
+That same night I slept better than I had in weeks. I woke up with the uncomfortable feeling that I had rested because of that.
+It took me longer than usual to get up, like my body had accepted the deal before I had.
 
-The two security guards at Platform 1 watched us come up with the specific expression of people who have seen this before. Dusty shoes. Priya's dupatta pulled off one shoulder. Me still breathing heavy.
+All of this was paid for with that money.
 
-The older one looked past us toward the stairwell. "You went through the gap."
+Now I sit in the same hard chair, listening to the click of the clock, watching how Andrew sometimes says my name and sometimes doesn’t.
+There are days when he looks at me like he recognizes me. There are days when his gaze goes right through me.
 
-"Trying to get to the other side. The ground floor was locked."
+I’m not writing this because I expect anyone to understand me.
 
-"Always locked." He nodded slowly. "That side has been shut since inauguration. Two years."
+I’m writing it because, even though my life is better, every time I close my eyes, I still hear those muffled sounds.
+And because, no matter how hard I try, I can’t pretend I didn’t know exactly what I was doing.
 
-"Why?"
 
-The younger guard found something extremely interesting to look at on the floor. The older one took a while.
+---
 
-"Night security started complaining first," he said. "Sounds. Then some passengers who found the gap, came back looking like you look." Pause. "Authority sent a structural engineer. Then they sent a pandit. Nobody says what the pandit told them. After that they just left it closed and stopped talking about it."
 
-"What sounds?" Priya asked. Her voice was completely steady. I know what that cost her.
+**EDIT:** Some people have asked about my family and Andrew’s. I haven’t answered before because there isn’t much to say that helps explain what happened any better.
 
-He looked at her, then at Arjun, then at me.
+No one wants to take responsibility for the visits. Not because they don’t care, but because being there became too difficult for them.
 
-"Crying. From down below. Guards would go check. Nothing there. Then one of them—" he stopped. "One of them said it wasn't crying. It was a child laughing. In the dark. In an empty building."
+Last week, one of his relatives mentioned the name of the program while we were talking about expenses. He didn’t say it like it was strange. He said it like it was obvious.
 
-He glanced once more at the stairwell before he straightened his uniform and said nothing further. The young guard still hadn't looked up.
+He said **Custody-10**.
 
-We took an auto home. Kids were asleep before ten minutes. Priya sat against me, shoulder to shoulder, watching the city out the window. At some point she put her hand over mine on the seat between us. Neither of us said anything. Didn't need to.
+When I asked how he knew that name, he told me he had seen it on some papers. He didn’t want to show them to me. I didn’t insist.
 
-—
-
-I looked it up afterward. One news article, two years ago, three paragraphs. Eastern concourse suspended pending investigation into structural concerns. That's it. No follow-up. No resolution. Metro website still says coming soon.
-
-I asked an old colleague whose family has been in that part of the city for generations. He went quiet. Then he told me that before the metro was built, that land had history. Accidents, yes, busy highway. But older than that. There'd been a well there, dried up for decades. In older times when someone died with no family, no one to perform the rites — they were sometimes just brought to places like that. Not buried. Just left. No prayers to help them understand they'd died. No rituals to show them which way to go.
-
-They just stayed, he said. They don't know they're supposed to leave.
-
-I've spent years treating the body as a machine. I understand failure modes. I believe in evidence.
-
-And yet. A woman in a widow's saree sat at the bottom of an empty stairwell and hummed to herself in the dark and when my torch flickered she turned her head toward me. My nine-month-old was silent for forty minutes and then smiled at a blank wall. My four-year-old pressed his face into his mother's side and stayed there without being asked. A door handle was depressed by something on the other side. The smell of funeral flowers came out of nowhere in a building where no one had ever been cremated. A cup moved. Someone paced a sealed platform above us back and forth and back and forth.
-
-I don't know what to do with any of that. I really don't.
-
-What I keep coming back to isn't any of those things though. It's this: Priya followed me through that gap against every instinct she had. She was right from the beginning and she came anyway because she wasn't going to let me go without her. She was right about all of it and she was there for all of it and she never once let go.
-
-That's what I keep coming back to.
-
-She was right. We should have taken the zebra crossing.
-
-I'm not telling her that.
+I keep coming because someone has to. And because, even if they don’t say it, I know they’d rather it be me.
