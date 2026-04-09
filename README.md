@@ -1,60 +1,286 @@
-# The Creature in my Basement Keeps Asking for Help (Part 5)
-[Part 4](https://www.reddit.com/r/nosleep/s/O7DT9ZQ3zM)
+# I tried to stay quiet. The rooftop answered anyway.
+[read previous part](https://www.reddit.com/r/nosleep/comments/1qlubyj/the_flood_didnt_just_drown_my_city_it_started/)  
+  
+After I heard my own voice come out of the water, I stopped going near the edge.
 
-Mandata Pharaonis Nigri. The Commands of the Black Pharaoh as I was told. This book has ruined everything. Ever since I tried reading it and saw the images inside, things have gone terribly wrong. The creatures in the smoke await me outside the circular room. I know they do, I can feel them tempting me to leave the safety of my current home. I can not leave this room. 
+I didn’t even sit facing the alley anymore. I kept my back to the wall and my eyes on the rooftop door like it was the mouth of something I couldn’t see.
 
-Those creatures are not all that have happened since I found that book. I'm starting to understand now. I felt it enter my head when I closed the door, sealing myself into this room. I feel it digging into my brain, tearing it apart and creating it again. 
+That night, I didn’t sleep at all.
 
-A continuous sharp pain as I feel it slowly destroying everything that I am and replacing it with knowledge to understand what it means. I felt myself picking up the book, it took control of my arms. I felt myself quickly riffle through the pages before coming to a stop. The images. I'm being forced to view them again, but this time I feel the understanding being rewired into my brain.
+Every time I blinked too long, I felt like I was going to open my eyes and find wet footprints leading across the concrete. Or see the doorknob turning again. Or hear my mother’s humming right behind my ear.
 
-A being with hundreds… thousands… millions of eyes all staring at me through the pages. Reminding me of the eye I saw under the door. 
+But nothing happened.
 
-It moved through my brain before I felt the words come to me.
+Not right away.
 
- "Old One."
+That was the worst part.
 
- I do not know what that meant, but I know if I were to try and speak what my brain told me I would not be able to. It was simply impossible for humans to understand let alone speak the words. The page flipped on its own now.
+The flood had taught me something: it didn’t rush. It waited.
 
-A city. Vast, and indescribable. The architecture couldn't… shouldn't have existed. The very image of that city confused and maddened me.
+Morning came, gray and sick. The air smelled like rust and rotting wood. I forced myself to move because staying still felt like dying slowly. My knees were scraped from the night before, and my palms were raw from gripping the pipe.
 
-I tried looking away, but my eyes seemed to be drawn into the image. I noticed the details. The structures were massive and seemed to be made of a greenish stone. The angles looked wildly sharp and gentle sloping at the same time. I couldn’t understand it when I felt the words get carved into my mind. 
+I checked the rooftop.
 
-"Dreamers Prison." 
+The satellite dish still sat over my mother like a broken lid.
 
-The page flipped again.
+My father’s body was still there, stiff now, his face turned slightly toward the sky like he was trying to listen to something far away. I didn’t have the strength to move him. Every time I looked at him too long, my chest tightened, and my stomach twisted.
 
-A monster. Twisted and grotesque. An amalgamation of tentacles, mouths, and legs of different animal species. Its body is twisted and unholy. The monster seemed to be moving on the page. Attempting to force its way from the pages into our realm of reality.
+I hated myself for that.
 
-I retched witnessing this monstrosity once again. I tried to turn the page quickly, but instead I felt my finger slowly trace the being on the page. The words slammed into my mind. 
+Not the grief.
 
-"All-Mother." 
+The hunger behind it.
 
-The page quickly turned again.
+I tried to focus on survival. That was all I had left.
 
-A void. The page was blank. No, not blank, I know there was an image on the page, but I couldn't see it. I couldn’t… comprehend it? The melody I heard was there again however this time it seemed muted. Almost like something was blocking my hearing.
+I checked the water bottles. Empty.
 
-I awaited the words to appear, but instead I felt fear. This was not a simple fear like when someone sees a spider and is afraid of it. This wasn't even the fear felt by prey when being hunted by a predator. No, this fear was primordial. This was the fear one gets when they realize everything is on the brink of destruction. Not just one person, not one country, not even one planet. Everything was on the edge of the abyss. 
+The rain had stopped.
 
-I watched as the page seemed to shift and an image slowly started to appear. When it was revealed I felt my mind wither away. My brain started to melt before once again being reformed. I watched as the blood now pouring from my eyes and nose mixed with the ink of the primordial element that made this image and swirled into the page. Combining into one terrifying visage. The word finally appeared in my head. 
+No food.
 
-"Father."
+No rescue.
 
-I watched as the book slammed shut and I fell unconscious. When I awoke I couldn't see anything. The blood from my eyes and nose had pooled and dried, locking my eyes shut. In the darkness of my eyelids my mind kept replaying all that I saw. I felt myself quickly fall over the edge of sanity and tumble into the darkened abyss of madness. 
+Just a city full of drowning rooftops and things walking on them.
 
-I managed to get my eyes open. I was still in the circular room, the book was still in my hand. I laid there as I finally broke and began sobbing. Why is this happening to me?
+I sat in the corner near the broken tank, pipe resting across my knees, and listened.
 
-As the tears ran down my face and I could only stare blankly at the wall I heard the whispers once again, but there was a difference. I heard the echo. I understood the true meaning of the creature's words.
+Distant voices floated across the air sometimes. Quick arguments. Screams. Then silence again. A splash from somewhere far away. Metal scraping. A building groaning like an animal dying in slow motion.
 
-“Help me”
+Then something moved on the roof across the alley.
 
-“Come to me”
+I saw it from the corner of my eye.
 
-“Help me”
+A shape.
 
-“Find me”
+Standing where the figure had waved yesterday.
 
-“Help me”
+My body froze.
 
-“Release me!”
+It didn’t wave this time.
 
-I listened to it repeat these words. I don't know what to do. Help me, please. 
+It just stood there, head tilted slightly, like it was watching me the way people watch a stray dog they’re deciding whether to feed or kick.
+
+I didn’t move.
+
+I didn’t breathe properly.
+
+I waited for it to do something human.
+
+It didn’t.
+
+It stayed too still. Even the wind didn’t seem to touch it.
+
+Then, slowly, it raised one hand.
+
+Not a wave.
+
+It pointed.
+
+Directly at me.
+
+My throat went dry.
+
+I gripped the pipe tighter, my fingers aching.
+
+The shape lowered its arm and stepped back.
+
+And disappeared.
+
+No footsteps. No jump. No movement.
+
+It was just… gone.
+
+I sat there shaking, telling myself it was a person playing games. A survivor trying to scare me. Someone bored. Someone cruel.
+
+Anything normal.
+
+Anything that didn’t mean the flood was learning how to hunt.
+
+A few hours passed.
+
+The sun never really showed, but the light changed slightly, like the sky was turning a page.
+
+That’s when the rooftop door creaked.
+
+Not the handle turning.
+
+Not a knock.
+
+Just the door… breathing.
+
+A long, slow creak, like pressure shifting inside the stairwell.
+
+I stood up so fast my legs almost gave out.
+
+I backed away from the door, pipe raised, ready to swing.
+
+The door didn’t open.
+
+But something pressed against it from the other side.
+
+Not hard. Not like an attack.
+
+Just a gentle weight.
+
+Like someone leaning their forehead against the wood.
+
+Then I heard it.
+
+A wet sound.
+
+Like breathing through a throat full of water.
+
+And then a whisper:
+
+“Arav…”
+
+My spine went cold.
+
+The voice wasn’t a man’s this time.
+
+It was my mother’s.
+
+Perfect.
+
+Not a memory. Not a dream.
+
+Her exact tone, the same way she used to say my name when she wanted me to come inside before it got dark.
+
+My eyes stung instantly. My throat tightened.
+
+For half a second, my body moved on its own. A stupid, desperate step toward the door.
+
+Because even after everything… part of me still wanted to believe.
+
+Then the smell hit through the cracks.
+
+Rot.
+
+Salt.
+
+Something old and wrong.
+
+I stopped.
+
+My hands shook so badly the pipe rattled against my teeth when I brought it closer.
+
+The voice on the other side stayed soft.
+
+“Open the door, beta… it’s cold out here.”
+
+I covered my mouth with my free hand so I wouldn’t make a sound.
+
+My mother never called me beta like that when she was calm.
+
+She only said it when she was afraid.
+
+When she was trying not to sound afraid.
+
+The voice repeated, slower now, like it was learning:
+
+“Open. The. Door.”
+
+The pressure against the wood shifted.
+
+The doorknob turned slightly.
+
+Just enough to click.
+
+Then it stopped.
+
+Silence.
+
+Seconds passed.
+
+Then the voice sighed again, wet, heavy, pleased.
+
+And it said something my mother would never say.
+
+“I’m still warm.”
+
+I stumbled back, hard, my shoulder hitting the wall. My stomach flipped, and bile crawled up my throat.
+
+The voice started laughing.
+
+Not loud.
+
+Not even fully human.
+
+Just a soft, broken sound, like water bubbling in a drain.
+
+Then the footsteps began going up the stairwell again.
+
+Not down.
+
+Up.
+
+Closer.
+
+But the door never opened.
+
+It just creaked… and creaked… like something was moving right behind it, rubbing against the wood.
+
+I wanted to run.
+
+There was nowhere to run.
+
+I raised the pipe and screamed, finally, because my body couldn’t hold it in anymore.
+
+“GO AWAY!”
+
+The moment the words left my mouth, everything stopped.
+
+The creaking stopped.
+
+The breathing stopped.
+
+The pressure vanished.
+
+Silence hit so fast my ears rang.
+
+I stood there shaking, listening for any sign it was still there.
+
+Nothing.
+
+No footsteps.
+
+No whispering.
+
+Not even dripping.
+
+Just empty air and the smell of the flood.
+
+I didn’t trust it.
+
+I didn’t trust the quiet.
+
+Because quiet wasn’t safe anymore.
+
+Quiet was what came right before something terrible happened.
+
+That night, I moved as far away from the rooftop door as I could. I sat under the broken tank with the pipe in my lap and my eyes open until they burned.
+
+At some point, I looked across the alley again.
+
+The rooftop opposite mine was empty.
+
+But the floodwater below it wasn’t.
+
+A face floated just under the surface, eyes wide, smiling.
+
+It wasn’t my mother.
+
+It wasn’t my father.
+
+It was me.
+
+And it mouthed the words, slow and clear:
+
+“You answered.”
+
+The face sank beneath the water.
+
+And the city felt like it smiled back.
+
+**If you want the rest, I’ll post it. But after this point… it only gets worse.**
