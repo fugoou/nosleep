@@ -1,221 +1,418 @@
-# I Was Hired To Cat-Sit, But There Was No Cat
-I want to be clear about something before I start, I know how this looks. I know what you're going to think when you read it. You're going to think I'm guilty and I’m making all this shit up. That’s what they all think.
+# I Used to Deliver Meat. Now I'm Delivering Answers.
+[They](https://www.reddit.com/r/nosleep/comments/1qseqkv/i_deliver_meat_i_dont_want_to_anymore/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) told me I was acting directly against medical advice. The papers they made me sign before I left that afternoon made that abundantly clear. I didn’t care, though. The last time I followed a doctor’s advice, it nearly got me killed. 
 
-But I need someone out there to know what actually happened. Maybe a true crime junkie, a journalist, just anyone really. Because I didn't hurt anyone and I don’t want the truth to die with me.
+Not that it was her fault. She’d just wanted me to actually *try* and make friends. She couldn’t have known it would end with me getting attacked by a giant rat-man abomination. If she did, I needed a different therapist.
 
-So here it is. Every detail I can remember.
+I wish I could say I drove home, grabbed my twelve-gauge, and went straight to blow that thing’s head off. But the truth is I didn’t have a shotgun. Or any gun. Even though it would’ve probably come in handy then, they made me nervous. 
 
-My name is Kyle. About eight months ago, I was homeless. I'm not going to dress it up or make excuses for myself. I had drug problems and couldn’t keep a job, so I couch surfed when I could and slept outside when I couldn't. 
+I knew who did, though. I didn’t like involving myself with the cops at the best of times. I’d already interacted with them far too much for my liking about this. But I didn’t like my odds of going back a third time, and I couldn’t just do nothing. And that man… 
 
-I at least still had a phone, a cracked Android that was too old and shit to pawn off. I had on it a Rover account I'd made back when things were better. I still used it to get work. It kept a little money trickling in, but not close to enough to fix my situation. Just enough to eat.
+Some Good Samaritan had driven my truck to the hospital, and the keys were tucked into the pocket of the jeans they admitted me in. Thankfully, they’d washed them. I slipped into the driver’s seat, tried to ignore the way the crusted blood felt underneath me, and headed for the police station. 
 
- I’d usually do dog walking, but if I were lucky, I’d get a pet sitting job and have a place to stay for the night and that night I had a four-hour catsit booked. 
+I warred with myself on the way there, mentally listing all the things that would make me turn around and walk out. Luckily, the lady officer sitting behind the desk didn’t meet any of that criteria. She gave me a curious look, but wasn’t any less polite.
 
-Four hours just to cat sit was odd to me, even then. Cats don’t need that much supervision and can generally be left alone for a full day without any issues, but the owner who’s name was “Jeff” put in their notes that Jasper had major separation anxiety and thus needed someone around to keep him calm. 
+“Good afternoon, how can I help you?”
 
-It sounded to me like the typical overzealous millennial pet parenting you come across all the time on the app, so I didn’t give it another thought. It was four paid hours indoors with heat, running water, and couch to sit on. It sounds pathetic but I was genuinely looking forward to it. The area the apartment was in however, I was not happy about.
+I tried to come up with an elegant way to get my problem across, but I just ended up staring at her for way too long.
 
-The building was located in the kind of place where you stop flinching at police sirens because they never really stop. It made me feel unsafe just standing there, even as a 6’3” homeless guy. I stood outside the apartment and knocked and anxiously waited to be let inside. After a moment, I knocked again.
+“I think someone is danger.”
 
-No answer.
+She took a sip from her to-go cup of coffee. 
 
-My phone buzzed. It was a message through the Rover app from Jeff.
+“You’re going to have to give me a little more than that. Can I get an address?”
 
-"Door's unlocked. Go ahead :)"
+I gave her the address, and her face soured. Her voice held that same mix of disgust and disinterest as the first cop I spoke to. 
 
-I hesitated a second. How did he know I was there? I then noticed the ring camera attached to the door. I gave it a sheepish wave and then turned the knob. To my shock, it was open. I couldn’t imagine leaving my door unlocked in a place like this. 
+“Kid, that house is condemned. No one lives there. I worked on the case myself. Missing persons.”
 
-As soon as I stepped inside, the smell hit me.
+“I figured as much, but look. Maybe no one is supposed to live there, but I’m telling you, someone is. I saw him when it happened. And I think he’s in danger.”
 
-It was rot and bleach fighting each other, and neither one was winning. I actually sniffed my jacket and shirt on instinct. When you've been on the street so long, you get used to assuming the bad smell is coming from you. 
+She leaned forward just a little, like she was finally getting to the good part of the story.
 
-I told myself my nose would adjust. It never did.
+“When what happened?”
 
-The apartment was dim and cluttered in the way of a place that had been lived in for years without ever really being reorganized. Shoes by the door in uneven pairs. A half-folded blanket draped over the couch. The walls were covered in framed photographs of European vacations, birthday parties, and camping trips by the lake. In every single one, there was a smiling young couple. A man and a woman who looked like they belonged somewhere nicer than this shithole. But times were hard. I understood that better than anyone.
+I turned around and lifted up my shirt. I heard her stand quickly, probably reaching for her holster just in case I was about to try something. But then she stopped. The stitches had held up nicely, but there were still lines of blood dried into the bandages, in the shape of four long slashes.
 
-It took me a minute to notice the camera.
+“I think there’s a wild animal holed up in that house. It attacked me. The doctors said it must’ve been a cougar. As crazy as it sounds, I think it may have someone cornered in that house. I swear, I saw someone when it got me.”
 
-It was sitting on a shelf in the living room, half-hidden between a stack of books and a row of Funko Pops. Small, old-fashioned looking, with a little red standby light. Pointed directly at the couch.
+That was the kind of insanity a person just might believe. I knew if I told her what really happened, I’d end up back at the hospital or worse. 
 
-It was a cat cam.
+She scratched her head and sighed. 
 
-"Well," I muttered at it. "Hello there."
+“And you’re SURE about this, kid?”
 
-My phone buzzed.
+I nodded. She pushed her chair under the desk.
 
-"Hi! So glad you're here! Not many people want to take this job. It's a rough area! But the best part of cat sitting is you never have to leave the house :)"
+“Alright, what the hell. Let me go get my partner for this one.”
 
-Sirens passed outside as if to punctuate his point. I instinctively started looking for the cat.
+Her name was Officer O’Neil, and within fifteen minutes, I was following her cruiser to that house. I expected it to feel a little less scary in the daylight, but the minute we pulled up outside, the dread washed over me again. It loomed like a haunted castle on a hill, looking larger than life.
 
-Another buzz came. "Cat's name is Jasper. He hides from new people. Don't take it personally."
+“We usually let animal control handle this kind of stuff,” her deputy, a short and squat man named Mitchell said to me, “but if there really is someone’s life in danger, we don’t have any time to waste.”
 
-It has separation anxiety and yet it hides from me? I guess I am a stranger, so fair enough I thought. I took a seat on the couch and waited for my next instructions.
+They busted through the front door with guns drawn, and I stayed outside at their insistence. I hadn’t mentioned it to them for obvious reasons, but I desperately hoped Alex’s body was still there. Something to convince them to bring the calvary.
 
-"Make yourself comfortable. BUT NOT TOO COMFORTABLE!"
+The pair of them came out a little too quick for my liking, weapons holstered. The pale looks on their faces told me they’d seen *something*, though. 
 
-I raised my eyebrows at that. But I let it go. I was a stranger in their home. I didn't have a lot of room to be offended.
+“Did you find anything?” I asked, already knowing more or less of the answer. They walked up to me, and Mitchell’s voice lacked the confidence it had before.
 
-"Last and certainly not least, DO NOT GO IN MY BEDROOM OR USE THE BATHROOM. The gas station down the street will let you use theirs if you don't look too homeless so you better buy a pack of gum or something if you gotta go lol. No offense. I can factor that into your pay."
+“No big cat, but yeah, something definitely happened here recently.”
 
-I stared at the screen in disbelief, "I can't use the bathroom?"
+O’Neil nodded.
 
-Almost instantly my phone buzzed, "I have a thing about other people's fluids being where I bathe."
+“Weird smell, and the furniture is thrown around a bit. There’s a lot of reasonable explanations for those kinds of things, but not for the bloodstains. That being said, there’s nobody there as far as we can see. Not much else we can do but cordon it off and get animal control out on Monday.”
 
-I put the phone down and shrugged it off. I didn't have to go that bad anyway.
+“We’ll make a police report and open an investigation on it,” Mitchell added.
 
-I got up and used the kitchen sink to brush. The soap dispenser was empty so I used my own bar, scraping the grime out from under my fingernails. I was halfway through when my phone buzzed.
+I knew then that this had been a mistake. They’d been more helpful than the last guy, sure. Polite, even. But they weren’t about to *do* much of anything about it, other than some paperwork. Neither was animal control, and even if they did, it wouldn’t be fast enough.
 
-"Wow, you sure brought a lot for four hours. Making yourself feel more at HOME?"
+I didn’t say any of that, though. I just nodded, gave them a statement for the police report, and thanked them for their time. I was pulling out of the cul-de-sac before they even found their crime scene tape. I was definitely speeding, but they were preoccupied.
 
-The catcam's red light blinked at me from across the room.
+I thought myself in angry circles on the way home, trying to figure out a reasonable backup plan and coming up short. 
 
-I kept scrubbing.
+I climbed out of the driver’s seat, just in time to see it, a big brown truck rumbling out of the parking lot, headlights beaming out into the fading light of dusk. The universe was mocking me. 
 
-"Shoes off!"
+I saw red, pulsing behind my eyes and gripping my brain in a stranglehold. I wheeled around and kicked my front tire. Then I kicked it again. I kicked it until I was panting and my foot was sore. My back had begun to burn, and I had to double over to catch my breath. 
 
-I looked up at the camera. I forced a smile and took my shoes off. It felt strange to do it for an audience but what was I going to say?
+I’d like to say it made me feel better. But my pulse was just as high when I made it back into my apartment. 
 
-"Thank you! Comfy now? ;)"
+I went straight to the bathroom, slipping off my shirt and assessing the damage. It wasn’t easy cleaning up the oozing blood and changing bandages by myself, but I managed. After the gruesome death of my latest almost-friend, I’d decided that being alone was just something I’d have to deal with. 
 
-I didn't answer. I turned on the TV and started waiting out the clock.
+Once it was all done, I took my place in front of the toilet. I waited for the sharp tang of bile in the back of my throat, to feel my muscles spasm. But nothing. I just stared at the water, hands gripping the edges. 
 
-After about three hours, I realized I still hadn't actually seen the cat yet.
+“Nooo, no. Don’t make me,” I begged, this time with the opposite meaning. It wasn’t the lack of puking that upset me. Not at all. If it would make it stop, I’d pull out my own stomach. No, it was the reason behind it. 
 
-That was a problem. If I was going to get paid to catsit, I should probably be able to confirm there was a cat.
+In the back of my mind, I’d already made the decision. I was going back to the house, even without some grand plan. I hadn’t come up with a single good option, but doing nothing was the worst option of all. There was someone in that house, someone who was just as much of a victim as I was. Someone who was crying out for help, someone who I’d seen. Someone who’d asked me to wait. Sure, it was far from ideal. But there’s comfort in certainty. Even if you’re certain you’re going to get hurt. Or die. 
 
-I checked under the couch. Behind the TV stand. The kitchen, where empty cleaning bottles lay scattered across the floor like they'd been swept there and forgotten. No cat.
+I lied to myself, though. As I changed clothes and dug my baseball bat out of the closet. I told myself that I knew to be prepared for anything. That I wouldn’t be caught off guard again, because I didn’t have any expectations. 
 
-"Jasper?" I called. "Here, kitty kitty."
+The streets were quiet. I didn’t hit a single red light, something rare in town. Something wanted me to make it there, and despite the way it made me feel, I did. 
 
-Nothing.
+Another day I reached the house just as the sun was just beginning to set. Another cold, dark night on its way. The new yellow tape tied across the front porch railing fought against the wind, and I reached over and grabbed my Louisville slugger. 
 
-I texted the owner, "Can't find Jasper. Is he… real? lol"
+The door hung open again, if only slightly. In the time since the officers and I had come here, something had put deep scratches into the side of the wood.
 
-The response was instant, same as always. *"*He's real. Just sneaky. Try under the couch, the closet, or the TV stand."
+“Not enough rat poison in the goddamn world.”
 
-I'd already checked those. I checked again, but there was still nothing.
+I held my breath as I walked toward the door, and I had to wonder why none of the other nearby houses had seen anything or done anything. Officer O’Neill said she’d worked a missing persons case here. How long ago was that? How long had this place been a den of death? 
 
-Then I opened the closet. It slid back with a dry scrape. Old clothes. Stacked boxes…  And a knife.
+I pushed the door further open with my bat. When I wasn’t immediately ambushed, I took a cautious step inside, taking in the damage. They weren’t kidding about the place looking wrong. Wallpaper was torn and hanging in long strips, furniture was knocked over, and a deep rotting smell so bad it was almost visible in the air. 
 
-It was big. Heavy. Clean in a way that felt too deliberate. I picked it up without thinking, felt the weight of it, and set it back down.
+I followed the deep rips in the carpet, keeping my back to the wall and my eyes scanning every perceived point of entry. 
 
-On the floor near my feet was a collar tag. Jasper's name on one side. I picked it up.
+I realized I’d slipped past the kitchen doorway a second too late, and my shoulders jumped to my neck as a sharp sound came from behind me. When I realized that it wasn’t the war cry of a monster, but instead a yipping dog, I turned around. 
 
-There was a dark smear on it. I told myself it was rust. Cat food. Anything but what it really was.
+I stared at him, like the monster in my mirror made flesh. The man I’d seen before was wrapped in a jacket that was two sizes two big, and he’d tucked his blond hair away into a black beanie. A small bundle of matted white and gray fur wriggled in his thin arms, its tongue wagging out. 
 
-My phone buzzed: "Found his collar tag I see."
+I let out a sigh, catching up on from the breath-holding I’d been doing. His bloodshot eyes flicked down toward the table, and he must’ve thought I was sighing at him.
 
-I wasn't near the catcam.
+“You must think I’m an awful person.”
 
-I stood very still for a moment.
+I took a step toward the only other chair at the table. 
 
-*"*GREAT! You're on his trail. His collar must've slipped off again. He's lost a lot of weight lately. He should be nearby!"
+“No.”
 
-I looked at the tag again. Then at the knife. I brought both closer to my face without meaning to.
+He looked back up at me. 
 
-They smelled of that same chemical rot that hung in the air. The smell that was at its worst near the bathroom door adjacent to the bedroom. Both were closed when I got there and hadn’t been opened so the cat shouldn’t be hiding in either of them, but that smell… that smell was too strong to ignore.
+“I’m sorry about your friend. He was your friend, right? Your name… the uniform. I saw it on his phone.”
 
-I approached the bathroom door covering my nose as I did.
+I probably should’ve said something along the lines of “it’s not your fault,” or “me too” or “fuck you.” I wanted to believe none of this was a trap. I wanted to live in the certainty I felt when we’d met for the first time. 
 
-When I reached for the doorknob, my phone buzzed instantly. "Remember what I said. NO BATHROOM."
+I shrugged. “No. Not really. We didn’t get the chance.”
 
-I stepped back and texted him, "Look, I can't find Jasper anywhere. You sure he isn’t hiding in either of those rooms?"
+It was the truth, and yet I immediately felt bad for saying it. It clearly didn’t make him feel better either. He hung his head and scratched his small dog behind the ears. 
 
-"Yes, I made sure of it before I left. Now keep looking."
+It felt like the strangest thing, and yet not strange at all— two people having a conversation in a haunted house, haunted by something very real. 
 
-I took a deep breath and did just that. I checked every corner AGAIN. Behind every shelf AGAIN. I checked everywhere AGAIN… except the bedroom and bathroom. 
+For a moment, neither of us said anything. I took the time to really examine this guy. He was covered in scratches, both scarred and newly scabbed. He had a perpetual shiver, even with the layers he was wearing, and his face was drawn with what I could only guess was stress and fatigue. All the nights during Christmas I came home and fell straight into bed without eating or showering, they didn’t hold a candle to the tired I saw on him. Despite all that, the beard I’d seen him with before was gone, replaced by the stubble of a roughly shaven face. Whatever this was… he’d done his best to clean up for it. The thought pulled the faintest smile out of me. 
 
-I sat back down on the couch, exhausted. I took a long drink from my water bottle and prepared to be out of there soon. My four hours were almost up.
+“What’s your name?”
 
-Then I got another message, "Thirsty from all that hard work?"
+He looked back up at me, a bit surprised.
 
-I looked straight at the catcam and took an exaggerated, obnoxious gulp. Then I stood up and walked right up to the camera until my face filled whatever frame it had.
+“It’s… it’s Hunter, I uh… I’m sorry I dragged you into this.”
 
-"All right," I said into the camera. "I'm done. Your cat can be alone for a few hours. I'm leaving."
+I ran my fingers along the edge of the bat in my lap.
 
-I slung my backpack over one shoulder and turned for the door. That's when I saw the curtains moving.
+“Don’t be. I dragged myself into this. What exactly… *is* this, though? If I can ask that?”
 
-Not swaying but being pulled inward with the wind. They pulled back just enough to show me the dark gap where the glass should have been and night air was now pouring through. The distant wail of a siren set me into a panic as I realized how much I fucked up.
+Hunter paused, eyes wide, like he was waiting for something terrible to happen. I glanced around us, and though I couldn’t see the source of his fear, I knew it was around. 
 
-I crossed the room and shoved the window shut, fumbling the lock until it clicked. My hands were shaking as I pulled out my phone.
+After looking like he was about to take off running for long enough, his shoulders sagged and he nodded.
 
-"The window was open. I swear I didn't open it. I think Jasper might have gotten out."
+“I don’t have all the answers. A lot of the ones I have don’t really make sense. If you hate me when you know what I know, that’s okay. Just… do me one last favor and listen until the end.” 
 
-I waited for the instant reply like before, but none came.
+His words made my heart ache. He was maybe a year younger than me, but he still looked like he’d lived a lifetime longer than I had. And not the good kind. 
 
-I stood there staring at my phone, thumb hovering, and then I heard it.
+“I don’t think I’m going to hate you. But go on.” 
 
-*"Meow."*
+He took a deep breath and ran his hand over the head of the dog in his lap. It licked at his fingers, and he chuckled a little before beginning.
 
-From deeper in the apartment… From behind the bedroom door.
+Hunter had been living on the streets before coming here, squatting in various empty places. One night, about a year ago, the weather turned to a blizzard and he got desperate. He’d snuck into the house, avoiding the lady who lived there and slipping into the crawlspace.
 
-"Jasper?" I called softly.
+Hunter’s eyes were pleading.
 
-Another meow answered. But something about it made the hair on my arms stand up. It was too slow and stretched out at the end. Every instinct told me to leave, but to do so, I had to walk past the bedroom door.
+“I’m not a creep. Honest. All I did was steal a little from the fridge. I left her alone, until it was too late.” 
 
-I slowly walked toward the exit.  As I passed the bathroom, the smell hit me again and this time I wasn't trying to ignore it. This time I let myself actually smell it and let my instincts acknowledge what I was trying so hard not to.
+‘Too late’ referred to when the rat monster showed up. It didn’t attack May, the lady living in the house, at first. It bided its time and taunted Hunter. He knew she’d never believe a man who came out of her walls, so he tried to scare her out of her house, poltergeist style. It almost worked.
 
-The chemically clean knife… the dirty collar….  The smell… I could be stupid, but I wasn’t that stupid.
+“I finally told her, in the end. I told her to run. But I wasn’t fast enough,” his lower lip began to tremble. Remembering the state Alex’s body had been in, I didn’t have to ask what that meant. 
 
-"Meow." It was closer now. Almost right behind the bedroom door.
+“You did what you could.”
 
-My phone buzzed. "You know what, now that I think of it. Jasper may have been shut in behind the bedroom door…You should go check before you leave. (:"
+Was it true? It sounded like it. It didn’t seem like he had any reason to lie. But whether or not it was true, it was what he needed to hear. He straightened just a little. 
 
-The bedroom doorknob shook a little, as if something was trying to nudge it open…like a cat.
+“Not enough. That… thing. It’s going to keep going. It’ll keep killing until either it’s dead, or everyone else is. Do you hear what I’m saying? It wants *everyone dead*. And I’m not even sure it can die.”
 
-I slowly reach my hand out, but then from behind the door I hear another, much deeper, "MEOW." 
+I wasn’t sure if it was a sudden burst of optimism, or I just couldn’t comprehend the severity of his words. But either way, a smile started to form on my face.
 
-That’s not a cat.
+“Well, we’ll just have to find out, won’t we? If it wants everybody dead, there’s nothing to lose.”
 
-I backed away from the bedroom and instead turned towards to the bathroom door.
+Hunter bit his lip and shook his head, not meeting my eyes.
 
-I got a text as I did, "CHECK THE BEDROOM! CHECK THE BEDROOM! CHECK THE BEDROOM!"
+“I don’t think there will be a ‘we’ much longer. I think it’ll be just you. That’s why we’re talking right now. It *let* this happen. I don’t know why. Maybe it needs someone to know. Or it's just sadistic like that. Doesn’t matter. My days are numbered.”
 
-I already knew what was going on, so when I opened the door, I didn't scream. I wanted to. But I didn't.
+I gripped the bat tighter, bile suddenly rising to the back of my throat.
 
-I had finally found Jasper…  and what looked like a woman. Both of them were in pieces. 
+“How… how do you know that? Why do you sound so sure?”
 
-My phone buzzed, "Don't even think about calling the cops."
+Hunter spoke carefully, like he was defusing a bomb with his words. Dread crept over my shoulder. 
 
-My hands were shaking so badly I could barely type. "You're a sick fuck."
+“Because we’ve had an audience this entire time. And right now, I really think you should run.”
 
-"You tell anyone and they'll arrest you. Your DNA's everywhere. You touched the murder weapon. You're the homeless guy in the apartment. Who will they believe?"
+I couldn’t tell what was worse, the screeching the creature made, or the sound of its splintered nails on the kitchen tile. I turned just in time to see it lunge toward Hunter, and four years of high school baseball came back to me in a single moment of pure muscle memory. 
 
-I typed back, "They'll see the messages. It's your apartment. It's your girlfriend in there."
+For one glorious moment, all there was was the massive CRACK echoing through the empty hous. Then the rat shook it off, stood from the floor, and let out a war cry much angrier than the last. If that was even possible. 
 
-"Who said this is my apartment? Did you even count the limbs? (;"
+“Fuck, man! I told you to run!”
 
-I looked back and to my horror, I noticed the extra arms and legs among the viscera.
+It had a new focus now: the man who had just hit a home run against its face. I told myself that anything was better than watching it make a feast out of another person I cared about. But it was hard when I was running for my life, and every single object in the house made it a personal mission to get in my way. 
 
-As I looked on in horror, the bedroom door creaked open behind me.
+I ducked the corner, dipping out of sight for a moment, but that was long enough. A hand reached out and grabbed me, yanking me hard into a small gap in the wall. 
 
-I didn't dare look back as I ran.
+Hunter put a hand over my mouth as the massive rat abomination blew past, still hissing and huffing with rage. We stayed there, frozen, as it slowly realized that we’d both gotten away. The tantrum that followed was nothing short of skin-crawling. The guttural growls and screeches began as it tore apart the house, probably still trying to find us somewhere. 
 
-I tore through the apartment door, heart hammering, and threw myself out into the hallway. The stairwell was just a few steps away when I felt a strong shove come from behind.
+As it got closer, Hunter gripped my hand. 
 
-I lost my footing completely. I don't remember the fall very well. Just concrete steps and my head hitting something hard. 
+“Follow me.” 
 
-When I came back, there were red and blue lights flashing through the stairwell windows. Someone was dragging me to my feet. I was being handcuffed. I tried to explain but the words weren't coming out right. My phone was gone. My ID was gone.
+I didn’t question it. I just shuffled after him, trying to ignore how close the walls were. He slipped through a gap to the floor above, one I just barely fit through. The space he settled us into was barely big enough for one person, let alone two and a dog. 
 
-They'd found the bodies. They'd found the knife. And there I was, unconscious at the bottom of the stairs, a homeless guy with no alibi, fleeing the scene of a double homicide.
+It was quiet, at first. We could barely hear it over the sound of claws digging into drywall. But when it rose in volume, Hunter held his face in his hands. The rasp of his name echoed up to us, missing that human cadence. It was less a word and more just noise. But it didn’t stop.
 
-The story wrote itself.
+“Make it stop! I can’t take it anymore!” Hunter whisper-yelled, grabbing the side of his head and the dog in his lap whined. 
 
-I told them about the Rover messages, but the accounts no longer existed. I told them about the ring and catcam, but no such devices were recovered from the scene.
+I knew the exhaustion and desperation on his face all too well. Waking up from a violent nightmare or coming out of a puke session, wanting so badly not to be alone. To have someone— anyone to talk to.
 
-I told them about the person in the bedroom, the one who'd been making those sounds, the one who'd pushed me. They told me I should confess for a lighter sentence.
+“Hey. Hey, listen to me. Can I ask you something?”
 
-I was exhausted, hurt, and facing the death penalty … but I was innocent. I knew I was and I knew that the real killer was walking free, so I decided, rather foolishly, to keep fighting.
+Hunter nodded, still staring off into space. 
 
-I'm writing this from a cell. I don't have much time left as they’ll be bringing me my last meal here soon. It’s baby back ribs, mashed potatoes with gravy, and honey biscuits just like Momma used to make.
+“What was with all the meat? Because I gotta know how you pulled that off.”
 
-I know that whoever did this planned it perfectly and covered every angle. And with my execution, the last piece of evidence of their guilt dies. But maybe, just maybe, if they ever try to pin it on someone else like they did to me, my story can help save a life.  
+I watched his eyes refocus, and he looked at me.
 
-If you're reading this, I'm not asking you to try and save me. It's too late for that.
+“I found an emergency credit card in the attic. Meat was the only thing I could think of that might have made any sort of difference or distraction. I’m glad you noticed when you did, I was beginning to worry it would max out or get closed for fraud.”
 
-I just need someone to know the truth.
+“Wow. That’s actually kind of genius.”
 
-My name is Kyle and I didn't kill anyone.
+The scratching had slowed and the outside had gone quiet. I didn’t let myself believe it was over; I just enjoyed the brief moment to breathe. 
 
-I love you Momma, I’m coming home to see you very soon. 
+“I’m sorry it wasn’t good enough. People still got hurt. May still… she’s still dead.” 
 
+“You did something. You have to realize that’s a lot more than most people would’ve done. I can’t even say I would’ve gotten this far. I’d be lying.”
+
+Hunter’s voice softened, and the dusty air suddenly felt just a little easier to breathe.
+
+“But you still showed up. After I saw you that first time, I never thought you’d *come back.*”
+
+I reached out and scratched behind the little dog’s ears. I could hear the thump of her tail wagging against his coat, and for a moment, that tiny space in the wall, the fear for our lives, it was all distant. 
+
+“What kind of monster would that make me, if I didn’t?”
+
+A howl tore through the wall toward us, the desperate scream of a woman. I hadn’t recognized it, but Hunter did enough recognizing for the both of us. His body locked up and he let out a yelp. When it happened again, he buried his face in my shoulder. Wrapping my arms around him was unconscious. I’d been a hugger since I was little, and above that was the desire to shield him from the horrors he’d had to endure for too long. 
+
+I did whatever I could to drown out the screams. At one point, I’d started singing the Pina Colada song. Eventually, my efforts paid off, and my voice was the last. Then it was quiet.
+
+“I’ll distract it. You need to go,” he said finally, his voice thin and brittle. 
+
+“What? It’s going to try and kill you!”
+
+Hunter pulled his arms around me tighter for a moment, then let go. I couldn’t remember when he’d put them around me, and they were already gone. 
+
+“I don’t care anymore. At least one of us will make it out. If we both try to get out of here, even if we make it, it’s going to follow us. More people will end up dead. Just... take her. Please.”
+
+Hunter passed his little dog to me, and I held her close. Her little fluffy eyebrows almost looked furrowed, like she too understood the severity of the situation. 
+
+He stood as much as he could in the little space, and motioned to the large vent behind us. 
+
+“I appreciate your grand slam. But don’t try to be the hero again. Get yourself and my fucking dog out of here.”
+
+With that, he slipped through the cracks. I backed up as much as I could and busted out the vent with my foot, taking out a good portion of the wall with it. Things were already breaking downstairs, and this time I knew it wasn’t that *thing*, because I could hear him swearing and shouting insults. I took the window, landing in a snow drift that unfortunately ended in the AC condenser. I limped as fast as I could to my truck, feeling blood soaking into the back of my jacket as I held my precious cargo against my chest. I took one last look at the house, and sped off. 
+
+The sun was beginning to lighten the sky as I drove back across town. I parked in the Petsmart parking lot and fell into an exhausted doze until they opened an hour later. 
+
+I didn’t call anyone. I didn’t do anything, really. Instead, I went back on my word. Typing that now, even after everything, still makes me feel sick. It feels like cleaning up the shards of a window you broke. No matter what you decide to do after, you still made that choice. You still threw that ball, and you still broke that window. 
+
+All I did was buy pet supplies and sneak the little dog, Tuesday, by the name on her collar, into my no-pets apartment. I did as much damage control as I could with my stitches, and whatever food I’d numbly eaten that day all came up by the end of the night. I couldn’t remember what exactly it was, but it all came out fucking pink in the end. Tuesday sat by my side while I heaved and shivered, leaning her weight against my leg and licking the air. It helped, a little. 
+
+Sunday night faded into Monday morning, and I knew I wasn’t getting out of work another day, even with a line of half-busted, oozing stitches up my back. I took my two hours of sleep on the bathroom floor and began to get ready to head out. 
+
+Tuesday watched me as I rinsed the sour taste from my mouth. I tried to pretend I didn’t notice her soulful stare. I just slipped past her, and left without eating breakfast.
+
+The lot was lonely. My coworkers milled about, people I’d barely spoken to other than a passing greeting. I didn’t let myself stop to think about the obvious missing piece to my morning, or how anxious and alone I felt. I’d decided that I was done thinking, period. 
+
+I ran the route that day on autopilot. I went through the motions and said the lines when I needed to. Time seemed to pull like taffy, slow then fast then slow then fast. Two boxes greeted with the last stop on my route, both the usual big, white boxes. The kind that stored dry ice. And meat. 
+
+The box and I were locked in a staring contest, and it was winning. The fog was clearing, and I couldn’t seem to answer the one burning question: why hadn’t I come back before now? 
+
+I slid back into the driver’s seat, and said the only words of war I had left. 
+
+“Fuck it.”
+
+The snow had stopped that morning, but the temperature had kept dropping, leaving the piles by the road as I drove back to the house ugly, hard, and crusted with frost. The setting sun still washed it all in orange anyway. 
+
+I lit a cigarette, leaving it tucked tight in my teeth as I pulled out the first box. That day, the delivery wasn’t happening. I dug my nails into the tape and began to tear the box open, a cloud of water vapor misting from the hole. I dragged out the other box and took it with me as I angrily threw cuts of meat across the snowy yard. If it wanted a meal that bad, it could have it. I ignored the footprints and made my way to the porch, ripping open the second box and throwing clumps of ground meat all over the weathered wood. 
+
+*You’re doing all this for nothing. It’s too late.*
+
+My inner voice was harsh, and the thought stung, but I told myself it wasn’t true. I had to believe there was still a chance, even if there wasn’t. And in any case, it was better than what I was doing before. 
+
+*Do you even have a plan? Or is making this mess the most you’ve got?*
+
+The internal monologue was louder now. I took a deep breath and pulled out another handful of meat. I didn’t need a plan. I told myself that the anger was enough.
+
+*Do you honestly think you have any chance against the thing that I am?*
+
+My intrusive thoughts had never shown self-awareness before. And the way it sounded… something wasn’t right. 
+
+I turned and saw why. 
+
+It crawled across the yard toward me, its massive body held low to the ground. Blood was crusted along its snout, more than before. Its face was more red now than that oily black. I took a step back, more out of shock than anything. 
+
+As the sun slipped behind the houses, the monster climbed the porch stairs and rose to its full height. Its voice no longer had the benefit of my thoughts, choppier and echoing up from its cavernous throat, like it had a speaker inside. Its mouth never moved.
+
+“No… more… easy… fixes. I prefer you… running. Screaming.”
+
+I reached into the box and grabbed the first thing within my grasp. 
+
+“I’m not screaming for you, you fucker!”
+
+As it got too close for comfort, I threw the slab of bacon right into its wild eyes. It wasn’t doing any real damage, but it gave me enough of an opening. I slammed my hand twice against the front window, hard enough to crack it, before dropping the box and just barely leaping off the porch, avoiding a killing blow.
+
+With no other ideas, I took off for the back of the house, bursting through the gate with enough speed to snap the old hinges. The monster wasn’t far behind, and the gate split into two, half flying into the backyard.
+
+I ran for the back door, forcing through it, too. 
+
+The inside didn’t even look like a house anymore— more like the kinds of pictures they show in true crime documentaries. The lights were pulled free and left to hang by exposed wires. The walls were full of long gouges, framed by splintered wood and crumbled drywall. The carpet was soaked into an ugly brown and bones were scattered across every surface. The smell alone twisted my stomach. 
+
+I raced into the living room, jumping over the couch, now split in half down the middle. I hit the remains of the coffee table hard as the giant rat let out a primordial roar. It lunged, but overshot, its clawed hands anchoring into the floor. I hissed in pain as I got to my feet, trying desperately to figure out something to end this.
+
+The next thing I knew, I was eating brick. It happened too fast for me to notice until after, the massive worm of a skinless rat tail swinging out and sending me crashing into the fireplace. Blood drooled out of my mouth and nose, and judging by the warmth on my back, if I made it out of this, I’d be lucky if they didn’t nail everything closed this time. 
+
+And maybe I didn’t deserve to make it out. As I crawled along the floor, as the rat rose and blocked off my path of escape, I wondered if I even should. If dying, or even going into the walls and taking Hunter’s place, if I didn’t bleed out, would be what I earned for not going and getting help. 
+
+I laid my head down and closed my eyes, ready to accept whatever happened next. The closet door behind me flew open and out jumped Hunter, chunk of dry ice in hand. The sizzling crack it made when he broke it against the monster’s skull will stick with me forever. That, and the howl of pain it made. 
+
+“RUN! FOR THE LOVE OF GOD, RUN!”
+
+Adrenaline rushed through me, and I scrambled to my feet. I wiped my nose and blood smeared across my face.
+
+“HEY!”
+
+The creature's wails turned into snarls as it focused on me through frothing eyes. 
+
+“If you like me running, then you’d better fucking catch me!”
+
+I didn’t wait to see if my lure had worked. I just ran. I rammed into the door as hard as I could, shattering the glass as it flew against and banged into the outside wall. 
+
+The house was isolated, the only one at the end of a cul-de-sac. But I still couldn’t understand how nobody had heard anything this entire time. Or maybe they had. Maybe those houses were empty too. I couldn’t choose between which was worse, ignorance or massacre. Either way, help wasn’t coming. It was us, or nothing. 
+
+I didn’t look back as I went. The fear kept me upright until I made it into the road. The rat finally met its mark, body crashing into me like a boulder. I hit the street hard and everything went fuzzy. 
+
+The world melted in my vision as I tried to fight my way out of its grip. I was bitten. I was scratched. My brain began to block it out by the time I could see the red of my own muscle and the white of my own bone. I think it wanted to take its time, to make me suffer, and that’s the only reason I survived.
+
+Through all the pain and the desperate attempts still to get free, I felt it. The vibration against the pavement, the hum of a starting engine. A three-thousand pound engine. 
+
+I dug my nails into the asphalt and punched my foot as hard as I could into the rat’s jaw. It didn’t do much, but it was enough. I dragged myself to the other side of the street. I knew what was coming before I even saw it. And even through all of it, all the blood and agony and despair, I still didn’t hesitate for a second.
+
+“SORRY WE MISSED YOU!”
+
+The front end of the UPS truck collided with the rat’s body, just as it had begun to stand. Hunter at the wheel, I watched him roll the body under the tires, a look of pure rage on his face. When he reversed, I swung into the open door. I couldn’t remember when or how I’d gotten to my feet, but it didn’t matter. 
+
+He was yelling incoherently as he went full speed again, not giving the thing anymore chances to get up. If I could’ve formed the thoughts to count, I would say he ran and reversed over it at least sixteen times. He didn’t stop until the only thing left was a pile of red mush. Nothing moved. Not even a twitch. He looked at me, and I looked at him. There was an unspoken question in his wide eyes and trembling lips. *Is it over*?
+
+My mouth was pasty and dry, but I still forced out the word. 
+
+“Roadkill is… too nice of a word… for what that is..” 
+
+He stared at me, then a laugh exploded from him. I leaned on the seat and began to laugh too, even though it made my chest hurt. Even though a bloody handprint immediately began soaking into the fabric. We laughed together, the desperate, relieved, almost hysterical kind. Levity really is the best option. 
+
+I think he pulled me in for the kiss, but I’m still not totally sure. I don’t think I’ll ask. Sometimes there’s comfort in not knowing everything. I kept myself up as long as I could, gladly accepting it, until my legs gave out and my knees hit the metal floor. My head roared, and that’s where my already-blurry memory stopped for a while.
+
+Everything was white when I opened my eyes, and for a second, I thought I’d definitely kicked it. But then I heard the steady *beep-beep-beep* by my side. Then came the pain.
+
+“Don’t move too much,” came the voice next to me, “they said they gave you the heavy duty stuff this time. And they just changed your IV.”
+
+I looked over and saw Hunter in the hospital chair next to my bed. It dwarfed his skinny frame.
+
+“What… happened?”
+
+My throat was so dry, it felt like gargling nails when I talked. There was a cast on my leg, and my wrist was wrapped tightly with bandages. There was still old blood and betadine everywhere. 
+
+“I took you here. You’ve had three different surgeries in the last twenty-four hours, but the doctors say you’re gonna be fine.” 
+
+“Hospital security tried to get me to leave. I know how it looked. They told me they’d call the cops and I told them to go ahead. I think the only reason they believed the ‘animal attack’ thing when they showed up was because of how torn up you are. That and how much blood and fur they found.”
+
+I nodded, and even that made my body ache.
+
+“They said something about your family being here soon. Figured I’d stay ‘til then.”
+
+My vision was beginning to sharpen. I could see the subtle look of hopelessness on his face. 
+
+“You stayed.” 
+
+Hunter met my eyes and laughed.
+
+“Of course I did. If it weren’t for you, I’d still be stuck there. Besides… it’s not like I really have anywhere else to go now.”
+
+I shook my head. 
+
+“No. You at least deserve a place to sleep. And I happen to have one of those.”
+
+Hunter gave me a cautious smile.
+
+“Are you sure?”
+
+“Positive. No strings attached. Unless you want them.”
+
+Whatever pain medicine they’d refresh started to kick in. I felt a little loopy, but the most aware I’d been since I woke up.
+
+“I’m sorry, you know. For not calling the cops. Not bringing the Calvary. I was just…”
+
+Hunter stood up and looked me in the eyes. His face was serious, and a little sad.
+
+“Don’t ever apologize for being afraid.”
+
+I studied his face for a second, and then I nodded. He sat back down. When the shift nurse changed, she was nice enough to let Hunter take a shower. Other than that, he stayed in that chair. 
+
+They discharged me from the hospital three days later, and the first thing I did was call and quit my job. They’d been ready to fire me for the damage to the vehicle, even if it wasn’t my own fault. So it worked out in the end. My sister had already basically lined up an IT position for me with her company.
+
+My nightmares never got better. They’ve actually gotten a lot worse— shadowy figures outside my window and swarms of rats tearing me apart —so bad that I wake up screaming more than I don’t. But it’s nice not to be alone when I do. It’s nice not to see that monster in the mirror when I roll out of bed. It’s nice that my stomach has decided to stay in place, rather than try to climb out of my body every other night. 
+
+The day before I’d been discharged, I sent my parents and sister on a quest to get me fast food. I hadn’t had a good burger in longer than I could remember. But mostly, I just wanted a moment alone with my rescuer. I could see that he had something bothering him.
+
+“What’s on your mind? You’ve had that look all day. Like you need to talk about something.”
+
+Hunter looked away and his eyes got misty.
+
+“I need to ask you for a favor. And you can say no. I won’t hold it against you.” 
+
+I sat up as much as the stiff stitches would allow.
+
+“Sure, man. Anything. As long as it doesn’t involve rats.”
+
+He chuckled a little, half-hearted, and told me about May’s sister. 
+
+And that’s where I sit, writing this. A few states away, in my truck outside a small, blue house. California Dreamin’ is playing quietly on the radio. Tuesday is in my lap, and Hunter went in not too long ago, clutching a broken photo frame with a look of determination in his eyes. I’ll go in eventually, and I’ll talk to her with him. But I figured he needed the moment alone first. 
+
+For now, I’m content to sit here with a little dog, watching all the ice and snow melt in the early spring sun.
