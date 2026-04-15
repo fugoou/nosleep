@@ -1,178 +1,148 @@
-# I found a dog caged in an abandoned circus. When I opened the cage, something came after me.
-As I lock the building in the center of the frame, I hear a whimpering. 
+# Snow Blind
+I hold no expectation that this could ever or will ever make it from my little laptop to the internet. I set up star link last fall on the suggestion of my sister so we could chat from time to time. Since our parents passed, she has been my only connection to the outside world and might be my only hope of making it from this cabin. So as I write this for her, I figure that it can't hurt my situation to post this here. So to those reading, if you feel compelled to help... just make sure you don't get yourself killed.
 
-I lower my camera. 
+If you have never glanced upon snow-speckled hills, pockmarked by trees littered with long-fallen leaves, then you would never know how bright it is. Snow blindness was—and is—a problem on the cold, windy days here. The sun bounces off the stark whiteness of the world and catches your eyes. Air, long since stripped of any moisture, burns the back of your throat. Many cough, and if you live where I live, you know you shouldn’t. It only irritates your throat worse.
 
-That’s impossible. 
+The sun dips early in the evening, as if to show that snow not only brightens the day but lights the night as well. Moonbeams cast shadows with shadows as crisp as day. Deer dance between the trees, chasing one another. The hard outlines between everything and the snow at night, makes winter my favorite season. There are no gray areas when the world turns black and white.
 
-Above the front door, there are two words painted in rainbow colors: “ANIMAL ACTORS.” But this circus is abandoned. Five years abandoned. So any animal left in there *should* be dead. 
+Our house sits near the edge of a seventy-two-acre plot along the Appalachian range. You might be fooled if I told you it was somewhere else—and forgiven for believing me. We’re about as close to Canada as you can get without crossing a border. I say all of this so that you might better understand the decisions I make as I tell you this. If you don’t understand what the cold is—or what it can do—then don’t pretend to.
 
-By the door, there’s a window. 
+The main currency is, as always, time.
 
-I approach. 
+How long can you keep moving?
 
-I reach down to my belt and unclick my flashlight. I shine it through the glass. Against the back wall—there’s a cage. It’s empty. I scan left, passing over dozens of *more* empty cages...until I light up a pair of eyes. 
+How long can you stay outside before your brain slows?
 
-I freeze.
+Before you lose your dexterity and can’t even light your lighter?
 
-There’s a Golden Retriever trapped inside. Its tail wags, thumping the sides of the cage.
+These are decisions taken for granted elsewhere. Out here, they’re the only ones that matter.
 
-I take a breath. Exhale. “Sorry, buddy.” I click the light off and head back to the truck. 
+Three weeks ago, I started seeing lights above the trees. They began low, but by the end of the night they reached the top of the canopy, moving from one limb to another. There aren’t many people who live here. There is, however, a snowmobile trail that wraps around the base of my land, passing small cabins built for shelter.
 
-As an urban explorer, I have a code. I do not alter the environment in any way, shape, or form. I document it. And that includes its wildlife. So that dog is not my problem.
+I watched the lights with my golden retriever, Cooper, as the wood stove cracked behind me. First one, then two—sometimes as many as five—moving through the treetops.
 
-My truck windows gleam with stars. I unlock it. Climb in. Pull the door shut. I set my camera in the passenger seat and can’t help but smile. 
+“What do you think they are?” I asked him.
 
-Tonight’s footage will produce high-performing content. People *like* abandoned videos. But they *love* abandoned circus videos. Thank you, Stephen King. 
+He gave me the look that meant I was asking too much.
 
-I crank the engine and drive down the hill toward the gated entrance. Gravel crunches under my tires. As the gate grows closer, the sound of the dog’s whimpering runs through my mind. *Not my problem. Not my problem.* 
+I had to go into town for fuel. I figured it might be worth making it a two-day trip. I could pull a sled with my snowshoes and cut through the trees. I wouldn’t take the snowmobile—I wanted to see the lights. I could leave in the evening, stay at the motel, and drag my supplies back in the morning. 
 
-But—when I’m almost to the gate—I squeeze the brakes. For a few seconds, I sit still. Considering. Then I glance in the rearview mirror. 
+I left as the sun had just begun its nightly ritual of casting long shadows through the trees. I live on a hill—not a mountain—but one you can see from one end of the property to the other. I marched onward with enthusiasm, Cooper padding ahead of me, stopping to inspect trees for reasons known only to him.
 
-The road and the surrounding trees glow red with my brake lights. Back up the hill, circus tents darken the night sky. Before I think it through, I’m turning the wheel. The truck whips around. I drive back up the hill. 
+At the edge of the property, he stopped.
 
-“This is stupid,” I say, grabbing my camera. “Like, actually stupid.” I hop out the truck. 
+He stared down the trail.
 
-First I try the front door. It’s locked. So I hike around the side of the building to get to the back. Weeds sprout up so tall they brush my knees. When I turn the corner, I spot a back door, buried between two overgrown thorn bushes. Wonderful.
+There’s little doubt he can hear snowmobiles miles before I do. But as I turned left toward town, he began to growl in a way he had never done before. Low and with a frantic menace that spun me back around as i was sure it had to be coming from a much larger animal. His hackles rose, he back peddled looking up. I did as well and I blinked tears out of my eyes as I tried to make out the outlines against the still setting sun. Clumps of leaves lay in tree branches and some shifted in the wind. Squirrel nests and some branches that just never noticed the season changed. I tugged his leash, and he snapped out of it, just spooked by the movement clearly but every few steps he looked back.
 
-I step in sideways. Hundreds of thorns prickle across my skin. Once I’m within arm’s reach, I stuff my hand between two branches and grip the door handle. I twist and give it a push.  
+So did I.
 
-*Rrrrrrrrrrr…*
+There were no lights yet. The sun had only just begun its descent.
 
-The door squeals open. Into darkness. 
+Every step felt heavy.
 
-I click on my light. Shine it in. There’s a narrow hallway. Compared to the other buildings, it’s bare. White walls, steel doors. Corporate. At the end of the hall, I see the front door. 
+Like being a kid doing something you know you’re not supposed to.
 
-When I step in, my boots bang the tile and echo off the walls.  
+I thought about turning back then. Not because I was afraid, but because the math no longer worked. The trail felt unfamiliar to me. Trees closer as if it was closing in. I told myself it was the light—how the snow bends it, stretches it, lies about space. I’d lived here long enough to know better than to trust my eyes in winter. Still, I kept walking. Stopping felt worse than being wrong.
 
-I wander halfway down and, behind a closed door, there are footsteps. Someone is pacing around. Maybe a squatter. *Usually* they mind their own business. But not always. I need to hurry this up. 
+Snowmobiles sat idle at the trailhead. Not unusual—people often parked them there and walked down to the still-open stream to fish for trout. There were more than usual, but that alone didn’t explain the way they were parked. Some sat half on the trail. Others were simply abandoned where they’d stopped. Keys still hung in the ignitions.
 
-I near the front door. To the right, there’s an open doorway. I enter. I shine my light across the room to the dog’s cage. Its eyes glisten. 
+The wind pressed against my back. Its slender fingers crept up my spine and settled at the base of my neck.
 
-I cross the room, navigating through cluttered rows of cages. When I’m within a few feet, the dog skitters backward and slams the back of its cage, whimpering.
+I turned to see, nothing. The trail was empty and quiet. Another breeze started to water my eyes and I turned back into the town.
 
-“Woah, woah. Shhh.” I glance down. It’s a boy. “Easy, boy. Easy.”
+Town should have been warm. Small. Cozy. A main street with a bakery, hardware store, laundromat, and motel.
 
-He peers up at me. Completely terrified. Trembling. This breaks my heart because this is a learned emotion. Animals don’t fear people without being taught to fear people. Clearly, whoever has him locked in here is abusing him. 
+It wasn’t.
 
-I sink to my knees. “Not a people person, huh?”
+Cars sat abandoned, half-buried as if the winter itself had claimed them. Snow drifts covered the streets announcing the plows had not come in at least a week.
 
-He lets out a small whimper. 
+I grabbed Cooper by the collar and turned him away.
 
-“Me neither. That’s why I do *this* for a living.” I glance toward the window. Outside, a Ferris wheel bobs loosely in the wind. “But listen. Let’s make a deal. I’m gonna unlock this cage and take you to a shelter, under one condition. Don’t bite me. Deal?”
+“Come on, Coop. We’ve got work to do.”
 
-He licks his lips. 
+The gas station was worse. Where there should have been a cluster of snowmobiles and people fueling up, there were only the skeletal frames of the pumps. Burned out.
 
-“Alright then.” I reach for the lock. He flinches. I slide the pin sideways until it clears the latch. Then I pull the door open. I scoot back and stick out my hand for him to check me out. “Alright. I won’t bite either. Come on.” 
+I felt panic rise—but forced it down. We still needed fuel. The motel would have backup generators. Reserve tanks. Maybe even a maintenance snowmobile. With any luck, someone to explain what the hell had happened.
 
-The dog steps forward, head hunched, and emerges from the cage. His eyes are locked onto mine. He sticks his nose several inches away from my fingers. Sniffs. And his lips curl back into a snarl.  
+The motel doors were choked with snow but opened freely enough.
 
-“Hey. I wanna help. You can trust me.”
+Inside was a campsite. Tents. Fire pits. No people.
 
-He leans forward. His head brushes up against my hand. I slide my fingers behind his ear. Give him a couple scratches. Slowly, his eyes relax. 
+The air was stale and warm in pockets, like bodies had been packed too close for too long. Sleeping bags lay unrolled and abandoned. A child’s mitten sat on the counter, stiff with old snow. Someone had stacked shoes neatly by the door, as if they meant to come back.
 
-“Well. Glad it’s settled. Okay, let’s g—”
+Above the counter, scrawled in coal or blood, were four words:
 
-Down the hall, a door creaks open, and the dog darts past my legs. I turn. Under the window, there’s an office desk. He slides behind it.
+"They’re in the trees"
 
-*Stupid. Stupid*. *Stupid.* I *knew* I shouldn’t have come. What do I do? I don’t know this person’s intentions. Should I run, or hide? 
+Whatever had happened here hadn’t been sudden. It had been waited for.
 
-*Hide, damnit. Hide. Now.* 
+“Come on, Coop,” I said, gripping his collar. “We’re going back.”
 
-I creep over to the desk. I drop to my hands and knees and crawl in next to the dog. A metal panel covers the front of the desk, concealing us. But there’s a little gap where it doesn’t completely touch the ground.
+I had a sat phone at home. I could call for help. I didn’t know who. I didn’t know what I would say. I only knew I needed to leave.
 
-I crane my neck down. Peek through. 
+The sun was low when we reached the treeline again. The wind battered my face, and I pulled my scarf over my nose. I hadn’t gone half a mile when the trees began to move.
 
-The room is dark. 
+I don’t know how long they’d been moving before I noticed.
 
-Moonlight trickles in from the window, but it’s so faint, I barely see. 
+A thin, pale, branchless trunk pulled itself from the snow and came down again—silent—ten feet closer to the trail.
 
-But…I hear something. 
+I looked up.
 
-A repetitive squeak. 
+It wasn’t a tree.
 
-Pulsing. In a fast rhythm. It’s getting closer. 
+It was one of four limbs belonging to a pale, spindly thing. Its spider-like appendages ended in what I could only describe as a distorted man. Small black eyes tracked the canopy.
 
-Closer. 
+It hadn’t noticed me.
 
-Now it’s outside the door and—
+I crouched behind the snowmobiles, moving slowly, never taking my eyes off it. It was watching the trail ahead—waiting.
 
-It’s stopped. 
+Deer came into view.
 
-Silence hangs in the air. The dog breathes. Trembles. 
+A leg rose from the snow and came down through one of them. It didn’t bend. It lifted the animal into the trees, pinning it in the branches until it went limp. The limb slid free, careful, deliberate.
 
-Then a sharp—*ding! ding!*—screams through the dark. 
+The creature fed.
 
-A bell. 
+That’s when I understood.
 
-Like one you’d hear…on a children’s bicycle. 
+As the last light started to lose its grip on the world I saw that what I had mistaken as leaves, squirrel nests and hold-outs from a warmer time were anything but.
 
-Is someone…riding a bike? I should use my camera’s night vision to see. Slowly—quietly—I set my camera in front of the gap. Click it on. And hit *record.* 
+Bits of winter gear. Pieces of people. Hanging in the canopy like berries waiting to be plucked.
 
-Footsteps shuffle through the doorway.
+As it fed, its abdomen began to glow—bright as a star.
 
-They pause. 
+Another shape stepped from the trees.
 
-Someone mumbles. While the words are nonsensical, I hear that the voice sounds both high and low. Like a child and a full-grown man speaking in unison. 
+Then another.
 
-Quick footsteps scuff across the floor. They approach the dog’s cage and hesitate. 
+I didn’t breathe. My fingers dug into Cooper’s collar through my gloves. Begging him not to make a sound. We moved together, slow and careful, stepping where the snow looked softest. I stopped watching them and watched the ground instead.
 
-There’s more mumbling. They turn, shuffle toward us, and stop. 
+Their legs could cross in one step what would take me ten. As I rounded the group of them I felt the burning in my lungs begging for air.
 
-Right in front of the desk.
+Without thinking I sucked in a breath as quietly as possible, long and deep letting the cold air burned the back of my throat all the way down.
 
-My heart slams in my chest. I feel a *click-click, click-click* in my throat. On my camera, there’s a viewfinder. I can peek in to monitor. I lean down. Center my eye over the viewfinder. 
+I coughed.
 
-A pair of big red shoes stand there, bulging near the toes. Baggy polka-dotted pants hang over them. 
+The sound burst from me before I could stop it.
 
-Then—over the desk—something crackles. I peer up. 
+They froze.
 
-The head of a clown stares out the window. 
+Nothing moved. Not the trees. Not the snow. Even the wind seemed to pull back, as if it didn’t want to be noticed. The first creature locked eyes with me. Small black insect like jewels glittered in the creatures white face now stained with gore.The light from the other creatures dimmed. One by one, each turned towards me and let their light go out, the forest went dark.
 
-Green tufts of hair sprout from the sides of its head. Cracking greasepaint is smeared across its face and down its neck. A button nose is hooked on. And…its body is still in front of the desk. 
+I ran.
 
-Meaning its head is being stretched out by an unnaturally long neck. 
+I didn’t look back. I made sure Cooper stayed ahead of me. I climbed the hill until my lungs burned and my legs failed. I slammed the door and collapsed inside the cabin.
 
-Its head snaps left. Then right. It mumbles something else with a spike of anger. Then…its head begins tilting down. 
+I grabbed my sat phone from the third drawer down at my desk and held the power button. The amount of relief I felt collapsing through the doorway was palpable. The dread I felt watching the sat phone blink its dead battery sign was equal. I have no fuel to run the generator, I have  two cords of wood left to heat my house and a weeks worth of food.
 
-Down toward us. 
+The only thing I have that does have power is this laptop and the solar panel I have set up to the starlink. I fear that too will soon be covered in snow and Ill lose my last connection to the world.
 
-I quit breathing. 
+As I write this, I know this very well could be the last thing that remains of me. The trees around the house have begun to shift. Eventually, I’ll have to step outside.
 
-The eyes scan down from the window. Down the wall. Down several more inches—
+So I say again as a warning to anyone that danes to play hero and try to come and get me out of here.
 
-Then the head retracts back inside its body. It turns and shuffles out of the room. 
+If you have never glanced upon snow-speckled hills, pockmarked by trees littered with long-fallen leaves, then you would never know how bright it is. Snow blindness was—and is—a real problem. It makes them harder to spot during the day.
 
-The front door bangs open. 
+Air, long since stripped of any moisture, burns the back of your throat. Many cough—and if you live where I live, you know you shouldn’t.
 
-For several minutes, I sit still. Frozen in fear. Deliberating on when to make a break for it. 
-
-When I do, that sprint back to the truck is one of the most horrifying experiences of my life. The paranoia, the complete terror that I could encounter that creature at any time, still sends ice through my veins. 
-
-But, by some miracle, we made it. 
-
-I loaded the dog in the backseat, then hopped in and floored it.  
-
-\*\*\*
-
-The next morning, I drove the dog to the pound. I pulled into the lot, killed the engine, and we sat there with the engine ticking. I glanced at him through the rearview mirror. He glanced up at me. Ultimately, I think we both felt the same way. 
-
-I took him to the vet instead. Rocky and I are now roommates. 
-
-Then after a week, I mustered the courage to watch the footage. I ejected the SD card and popped it in my computer. 
-
-QuickTime launched. 
-
-I hit play.
-
-The first thing I heard was the clown’s voice. And…it was perplexing. Whatever language the clown was speaking sounded both foreign and yet familiar. 
-
-I rewound. 
-
-Hit play again. 
-
-And something jumped out at me. The clown’s voice almost sounded backwards. Or rather—*reversed*. 
-
-I exported the audio into a DAW. Reversed it. Then played it back. And what that clown muttered, only several feet above us, still haunts me to this day. It still pricks at the back of my brain. Still sends chills down my spine. 
-
-While the clown searched for us out the window—where it easily could have caught us—one of the main phrases it uttered was, “*WHEN I FIND YOU, I WILL EAT YOU DOWN TO THE BONE. UGHHHH… I CAN SMELL YOUR FUCKING LIVER!!!!”*
+They might hear you.
