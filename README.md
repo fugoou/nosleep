@@ -1,99 +1,98 @@
-# The news channel gave us a list of symptoms to look out for someone infected with The Dreads (Part 1)
-For He will deliver you from the snare of the fowler and from the deadly pestilence
+# After animal shows were banned, the circus found a disturbing alternative.
+Dust in my lungs. Small, reluctant steps and mushed voices and carnival music making teeth and chests vibrate. I looked up at the red painted lanterns and then ahead at the tent shaped like a bird cage. Heat from so much skin moving and clothes of all colors and people and people and people *pushing* to the entrance, then the moon disappeared under the red and white cloth and everything turned orange.
 
-I’m not even sure where to begin with this. The evening is settling and I’ve finally found myself  a place to collect my thoughts.
+Inside, I sat on a bench after my ticket got torn by the painted woman who smiled. Voices vibrated and rose over any other sound, and my breath rushed back into me hotter than I'd left it. Crowded, so much anticipation.
 
-I suppose when something horrible happens that changes the trajectory of your life, you tend to recall that event, that moment where it all started, with perfect memory. That perfect memory for me starts with Dane Brown.
+Why?
 
-You see, Dane was a star baseball player in the small town right down the road from ours. He’d just completed his junior year of high school and had already gotten attention from some of the largest colleges around the state. He was tall, athletic, and, from what I’d heard, had no shortage of attention from the ladies. 
+Well.
 
-But tragedy doesn’t care about success. Tragedy is indifferent to potential.
+I guess we were all curious about what they'd do. After they banned the live animal shows, for safety reasons, to go against human cruelty. The poor elephant balancing on a ball for the entirety of its life was now free to sit in a corner and stare into the distance, dreaming of whips and dark cages. Talking parrots had been discarded and thrown out like used toys, and lions - set free, yes, but who would accept them? Set free to surrender their lives to others who still knew how to bite.
 
-From what I’d read in the newspaper at work that morning, and from the droves of tired old crows who frequented the bar and grill I cooked at, that thing, that moment where the trajectory shifted, had unfolded in a chaos so great it was laughable in its absurdity. Three dead at Danes hands, written off as just another kid going off the deep end. Among the rotary of school shootings it truly was listless to the media shortly thereafter. 
+The circus rose up from the ground one day and claimed to have come up with an exciting show. And I wouldn't have come if it wasn't for my daughter Moira. She was staying with me this weekend and she'd already begun to call her mother's house "home" and my house "dad's", so I wanted to do something fun with her, remind her that her home is bigger than she thinks and there's room for me in her heart, too.
 
-But, the thing is, it wasn’t a shooting. When news had broke out on television that he had opened fire on three elderly men in a tire shop outside of Mohawk, everyone was scratching their heads. No interview from the parents was provided, no video or photos or anything. 
+So we sat next to each other in the sweaty, humid air and waited for the lights to dim and the ringmaster to appear. I remember thinking that he looked a little sad in his cheap costume and dirty shoes.
 
-Finally, the truth was revealed. 
+I don't recall the beginning of the show. It all feels like a dream - you don't remember what built up to its final moments, when the memory of it started to feel real. Acrobats and magicians and clowns. Contortionists. Final act. Anticipation.
 
-Dane beat the men to death. No gunshot wound, or any wound for that matter, was found on his body even after they’d found him dead in a ditch less than a quarter mile down the road. It was like he’d gone on a rampage until his body exhausted itself of even the barest means to keep itself alive.
+Anticipation.
 
-I mean, sure, a young, strong, athletic kid being able to kill three old men with his bare hands isn’t that farfetched, right? Well, according to Gary (a regular at the Blue Duck Tavern I worked at) who called the incident in to police, the bodies were beyond any recognition. 
+"And now, ladies and gentlemen, children and taller children, we have arrived to the final moments of our show!" howled the ringmaster, his head barely holding his enormous, tilted hat. "As you know very well, we have decided to let our beloved animals and greatest friends to rest for a while and they're all very, *very* happy now as they returned to their homes. Don't worry, they got paid for their work," he laughed and winked.
 
-“Not possible”, he’d snarl, as he gnashed down on his usual order of scrambled eggs over biscuits and gravy, “ain’t no god damn way a normal human being could do that to another man!”, and that was usually the most I could ever get out of him. But, as time went on, more details would emerge. Arms snapped backwards, heads so comically twisted that they resembled a corkscrew, noses torn clean from the face, just to mention a few things.
+"I shall invite our Handler, Celestia, to present to you our newest additions to the team! What's better than animals, you say?"
 
-Now I’m not trying to feed into the whole fake news bullshit, but why would they lie about such a thing? Well, as times gone on I suppose the answer is becoming more clear. Not only that but the county coroner would resign no less than three days after the news of what happened had broke. Bizarre. 
+Behind him, a tiny woman dressed in velvet. "Well, we asked out best scientists to come up with a solution. You'll be surprised by what the human mind can do. Does anyone know what an animatronic is?"
 
-Eventually the shock of Danes horrible acts would pass, weeks went by without incident and the tranquility of small town living had returned. However, normalcy would soon be changed forever.
+Several hands raised. Some responses about video games.
 
-As I read the newspaper, I found an obituary for the coroner, just weeks after what had happened at the Guzzman Tire Shop. It didn’t mention anything of how he’d died but I let curiosity get the best of me. I started asking around, messaging people (some I hadn’t talked to in years) and asking some of the old folk who frequented my establishment. 
+"Well, with the help of our genius friend Elora, we have created our very own animatronics. They're incredible and, the best part - robots. Robots are obedient and they're never lazy. Who wants to meet our first friend?"
 
-Suicide, they’d said. Jumped off a parking deck.
+A bunch of high pitched "meee"s in the audience.
 
-I was shocked to say the least. Surely a coroner of all people would have the stability of mind to happen upon even the worst of scenes and not allow it to trouble their mind to that extent. However, at the time, I didn’t pursue it any further and just continued on with my usual business. 
+"Say hello to our monkey animatronic, Senticarne! Senti, the stage is yours!"
 
-I’d come to find out he met his demise in a way that wasn’t unlike poor Dane. But I’ll save that story for later down the road.
+The purple curtains pulled back to reveal a life-sized gorilla robot who excitedly entered the stage and circled Celestia, waving to the audience. It rose on two legs, beat its chest with its fists and then clapped.
 
-I didn’t personally encounter the Dreads until another week or so after the coroner met his maker. 
+"Senti is our first gorilla animatronic. Do a pirouette, Senti! Show them how nice your fur is! Isn't that so real?"
 
-“I just feel like something ain’t right”, Gary kept telling me, “it’s like I’m scared, like I could drop dead at any moment”, he looked up at me with blue eyes that looked fresher than they had in years. I was speechless for a moment in his gaze, awestruck by a sharpness that should’ve been long gone in his old age. Everything he’d described to me sounded like the symptoms of a  heart attack, but he was  a stubborn old bastard and, despite my plea to the contrary, had continued coming in every morning to fill his face with the Usual. 
+Senticarne did a comical pirouette and acted out an awkward laugh as a response to the compliment. She then pretended to arrange the small bow on top of her head and blew a kiss to the audience. I heard some children laugh.
 
-It was a normal day, just like any other really, but I suppose that’s what most people say just before the hideous things of life find them. I was getting breakfast ready for the Tavern, running around the hot kitchen like a madman to have everything ready in time. The first couple of tickets began rolling in and the day seemed to be going as smoothly as I could’ve hoped. 
+The movements were insanely fluid. I wasn't convinced they were robots - probably some humans in animal suits. The suits were oddly realistic - I assumed they'd used real fur and leather, but I could even make out the shape of the muscles underneath and wasn't able to spot any zipper.
 
-I could hear the old men out in the dining room arguing, which wasn’t unusual, I figured somebody had brought up politics and they’d eventually tire themselves out before long. Suddenly, the muffled arguing turned into wailing screams and what sounded like someone throwing an entire drum set down a flight of stairs. 
+They had Senticarne do a comical playback to some cabaret song. At some point, she turned to us and we briefly made eye contact. I don't know how to explain this, but I *did* feel like I was looking into the eyes of an animal, not a human being.
 
-Truthfully, even then I wasn’t nearly as concerned as I should’ve been, as I’ve had to throw out my fair share of drunken bargoers or rude patrons from the Tavern. 
+My impression of the state of these "animatronics" shattered with the arrival of the next performer, Dolores, a small monkey who flipped and jumped through hoops. That was something no human could do - even the movements were oddly realistic. *Were they STILL using animals?*
 
-I walked through the swinging doors and began to holler but found that my voice had been caught in my throat. In the midst of the carnage stood Gary, his massive, awkward frame that had become bent with age had ironed out. 
+The horse followed - I don't remember its name. It couldn't have been a human in a suit because the eyes did not match. It couldn't have been an animal, either, because the horse walked into the arena onto its hind legs and waved. Everybody sat in silence, mouth open, staring at what we believed to be the best and most realistic animatronic we'd ever seen.
 
-The place was silent.
+The lion was the last to perform. Umbra, they called him. He tangoed with Celestia and spun her around, then got on all fours and roared so loud that it threw off the rhythm of my heart. I glanced at Moira - she was completely in awe with the show. I had to admit, it was something truly spectacular. Truly authentic and original. I remembered thinking how expensive the tickets were going to be for the next shows. That, if they could get rid of the sickly sweet smell. Must have been the substance they used to curate the fur with.
 
-Bill, another regular, his head was lying on a table, caved in from being repeatedly smashed into it. I couldn’t believe how quickly the blood ran from his head and pooled at his limp feet. 
+The final trick involved juggling on a monocycle. Someone whistled really loudly, and the lion's eyes instantly locked onto that one person. I'd never seen robots with such advanced... observing techniques.
 
-Eric, a man who’d just started coming in every Tuesday with his wife, Michelle (who preferred to be called Shelly) had his head flopped backwards, like he’d been strangled similarly to when Homer strangles Bart. His throat looked about two sizes too small for his head as his eyes jutted out like a pug with a particularly heavy dose of inbreeding. 
+A baby's cry pierced through the music, then the whistle came again, louder, provocative.
 
-Michelle, poor fuckin’ Michelle… I’m not even sure if I have the words to describe the state that Gary left her in. It was like he’d stuffed his fat old hands in her mouth and simply torn the top of her head off. Ironically, if that was anything near the carnage that Dane had left, then I’m not sure a coroner was really necessary. 
+The juggling clubs froze in the air, falling one by one.
 
-Garys massive shoulders heaved up and down so quickly it was like he was vibrating. The tall, old man, who no longer moved as such, turned to face me. The veins in his throat were so prominent that a paper cut would surely sever his jugular. His pupils were so large it was like they had completely overtaken the iris. 
+Umbra stood perfectly still on the monocycle. I'd never seen a robot look... confused.
 
-He took a step towards me. 
+Animal hypnosis? No, that would still be animal labor.
 
-I was frozen.  
-   
-Then another, then another, then another until he’d closed the distance between us by about half. He dropped to all fours at once and began to run at me like a wild, rabid dog. 
+"Umbra, the clubs," Celestia commanded, her voice light, but harsh.
 
-By some sort of miracle, he collapsed just inches away from me. His liver spotted hand struggled towards my foot before falling with a meaty thud. In that moment, shortly after thoroughly shitting my britches, I ran out of the Tavern and haven’t been back there since. 
+The lion didn't move. The whistling came again - the guy who'd done it must have realized it triggered the robot. Its chest heaved, and the mechanical, rhythmic breathing we had watched for the last ten minutes suddenly turned jagged, wet and panicked.
 
-I returned to my apartment (a duplex on the poorer side of town) and promptly locked and bolted the door behind me. It would be weeks before I stepped out into the sunshine again and, Hell, even now I still haven’t taken the time to unpack the trauma of the horror I had witnessed that Tuesday morning. 
+The lion slowly pressed its paws to the sides of its massive head, joints bent with agonizing, human articulation. The sickly sweet smell in the tent intensified, a stench of formaldehyde, heavy anesthetics and rot.
 
-I kept my eyes glued to the television which had become nothing more than a vessel for the news station at this point. 
+A low, guttural noise rumbled from its throat. Sounded just like a man sobbing through a mouth full of blood.
 
-Things escalated quickly.
+Everybody went silent. Everybody but Celestia, who laughed and said "Congrats, Umbra, your very first heckler! That's the life of a showman, darling! Threw you off for a while, no?" She grinned and pulled out a sleek, black baton that crackled with blue electricity.
 
-At first they’d attempted to call what happened at the Tavern a failed robbery. But more incidents around town had prompted them to finally come out with the truth. They didn’t know. Nobody knew. 
+Why would you need that for a robot? Or for a human?
 
-All they knew was that somehow whatever was taking over these peoples bodies was contagious, but how it was contagious was uncertain. Some tried to paint it like a sort of zombie virus, you have to be bitten to get infected, but that was impossible, because they never found any wounds on the infected individuals. 
+The sight of the baton threw the lion into a panic. It let out an ear-piercing shriek and clawed frantically at its own face. A sickening, wet rip echoed through the silent tent as the mane tore away from the jawline. Beneath the synthetic muscle, there was no wiring.
 
-Some said it’s in the water, others have said it’s simply by an infected person making eye contact with you. Eventually, the news folk put up a bulletin of symptoms and things to look out for. 
+There were thick, black surgical staples biting into raw, inflamed human skin.
 
-1. A feeling of impending doom  
-2. Any changes in the iris or pupil  
-3. Sudden aggression or hostility  
-4. Racing thoughts   
-5. Heavy perspiration
+My hand flew to Moira's eyes as I pulled her practically into me. My arms resisted her protests to let her go. I scanned the tent for the nearest exit, but somehow I couldn't move.
 
-Those symptoms continued to crawl along the news ticker, never changing despite the various stories or weather they’d show while not covering the disease. 
+A collective gasp sucked the air out of the tent. Through the gaping tear in the lion's cheek, I saw a human jaw, violently dislocated and wired forward to fit the elongated snout. It was a man. God help us, a surgically mutilated man trapped inside the rotting corpse of an animal. I remembered the horse and its eyes, too real and too far away to be human, and I refused to think about how they'd gotten into that position.
 
-Today, however, I decided to head back outside. 
+Blind panic took over the creature. Celestia lunged forward with the baton, but the human-lion moved with desperate, adrenaline-fueled speed. The heavy claws caught Celestia across the face, and her jaw sheared off entirely in a spray of bright crimson, her head snapping back at an impossible angle as she collapsed into the dirt.
 
-As I laid in bed, something that had become routine over the previous couple of weeks, I stole a glance at the television while I doomscrolled on my phone. 
+Blood hit the first row. Screams erupted, waves over waves of panic and terror. I lifted Moira up and shoved her toward the narrow, crowded aisle. Umbra jumped into the bleachers, his monstrous, altered legs propelling him thirty feet through the air, landing on the man who had whistled and caving his chest in with a sickening crunch. The creature slowed down, driven mad by the pain of his own existence.
 
-“The Dreads”, is what the news station had coined it. I’m not sure why such an insignificant thing prompted me to throw on pants and shoes and go running around for my car keys. Perhaps it was knowing my usual anxiety would send me spiraling into a wild state of hypochondria, I had to get out and try to get this shit off my mind. 
+His jaw clamped over the man's neck and tore sideways, and a fountain of arterial blood sprayed into the air.
 
-I unlocked the door and hesitated for a moment before pushing my way into the darkening outdoors. The neighborhood was of otherworldly stillness. I surveyed my old Outback, hoping the donut I had thrown on and neglected to fix wouldn’t decide to blow on me while I was too far from home.
+People were trampling each other, slipping on the slick, blood soaked bleachers. I held Moira tightly and brutally shoved people away to escape, to reach the orange exit. The sickly sweet smell of preservatives was gone, entirely replaced by the smell of copper and voided bowels.
 
-I pulled into the street and made my way down the road which would get me out of town the quickest. Not a soul outside, which wasn’t completely unusual considering the sun had slipped beneath the horizon, but not even another car seemed to be on the road. 
+We spilled out into the cool night air, and the last thing I heard over the frantic carnival music was the creature's hoarse roar, which I now realize, as I am telling the story, had a distinct cadence. *IIIW EEEE.*
 
-The donut on my car squalled as I drove perilously down the highway, hoping perhaps that the disease hadn’t made its way into the neighboring city. However, as I neared the county line, there it was. 
+*Kill me.*
 
-A tall, wire fence had been rectified outside of the town, and the closer I got to it, I could make out two heavily armed guards standing on either side of the road ahead.
+I don't remember how we made it home. I patched up a story to tell Moira, since she hadn't seen much. I explained a fire had broken up and the robot had its face melted, and I didn't want her to see that.
 
+She didn't believe me.
+
+A fire *did* start. It wiped out the circus that night, along with its robots and performers, but I think that was just a cover-up. I don't know where they went. No one has heard anything about them since.
+
+I keep thinking about the little monkey. About the tiny bones shoved into that rotting corpse, and about the fact that no adult could fit into that small of a body. When I think about Dolores, I hope the fire got to her. I hope she's not performing [anymore.](https://www.reddit.com/user/EmmaWatsonButDumber/)
