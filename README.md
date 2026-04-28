@@ -1,322 +1,168 @@
-# My Missing Brother’s Phone Knows More About Me Than I Do
-Francis is my older brother. Ever since he moved out, we barely talked. Anytime I tried checking in, he just said, “I’m fine.” I don’t think I’ve seen him in three or four years, ever since Mom died. I told the police the same thing when they contacted me.
+# The Yellow (Pt. 3)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1s301hp/the_yellow_pt_1/) [Part 2](https://www.reddit.com/r/nosleep/comments/1s7iwjs/the_yellow_pt_2/)  
+Two weeks passed, and there was nothing worth writing about. Life blurred together — work, sleep, taking care of Kaylene. Somewhere in that stretch, a question started nagging at me:
 
-No one had seen Francis in weeks.
-He stopped showing up for work, didn’t answer his phone, and his apartment looked untouched. Like he’d just… vanished.
+**“They must’ve asked for help at some point. There’s no way the outside world doesn’t know.”**
 
-I took a few days off work, hoping maybe I’d notice something others didn’t. I mean, I’m his brother. If anyone could pick up on something, it should be me.
-But there was nothing. Francis had evaporated.
+So I went looking for Sheriff Tucker. As usual, his old Oldsmobile Delta 88 was parked near the town entrance. I walked up to him.
 
-The cops had already been through his place multiple times. They checked everything, even the security cameras around the building, but found absolutely nothing.
-The neighbors said he was quiet, friendly, a normal guy. Never brought people over, never caused trouble. Sometimes his son visited, otherwise he was usually alone.
+**Me:** “Hey, do you know if help was ever sent to this town?”
 
-So there I was, sitting on his couch, exhausted, tense, and anxious.
+**Sheriff Tucker:** “Umm… no, I don’t know exactly. I’ve only been here twenty‑eight years. If you really want that question answered, go to the Chief.”
 
-I stared at the family photos lined up on the walls and shelves. Most were of him and his son, but a few were from when we were kids.
+**Me:** “The Chief?”
 
+**Sheriff Tucker:** “Yeah. Chief Stone. He’s been here longer than I have. He oughta know.”
 
-“Where did you even get this uncomfortable couch, Francis…?” I muttered with a half-smile.
+**Me:** “Alright then. See you later.”
 
+**Sheriff Tucker:** “Sure. You too.”
 
-When I shifted one of the cushions, something clunked onto the floor.
+So that was a bust. Now I had to talk to their Chief — Chief Stone, apparently. I jogged to the station to see if he was in.
 
-A phone.
+At the front desk, the receptionist pointed me toward an office.
 
-I’d never seen that brand before. Small, gray, with a basic touchscreen. Maybe it was Francis’s? It was completely dead, so I plugged it in and waited, hoping, praying, that maybe this was the clue I’d been looking for.
+**Front Desk:** “If you’re looking for Chief Stone, he’s over there.”
 
-But when it finally powered on, my heart sank.
+Alright then.
 
-The phone was empty.
-No apps, no messages, no contacts, nothing anyone actually uses.
-Just two icons: Gallery and Notes.
-And when I opened the gallery… I honestly thought it was a sick joke.
-It was filled, stuffed, with photos and videos. Hundreds of them. But that wasn’t even the worst part.
+*Knock knock knock.*
 
-I opened one.
+**Chief Stone:** “Come in.”
 
-The angle of the footage… It looked like I was seeing through someone’s eyes.
+I stepped inside.
 
-It had been recorded inside this apartment.
-Someone entered through the front door and slammed it shut behind them, like they were in a hurry. Somewhere in the background, a phone rang.
-Then a man shouted, irritated and afraid:
+**Me:** “Hey, Chief Stone.”
 
+**Chief Stone:** “Just call me Lawston. What do you want? There’s no reason you’d come to me without something important.”
 
-“Leave me alone!”
+**Me:** “I was wondering if…”
 
+**Chief Stone:** “If what?”
 
-The voice was familiar.
-Horribly, unmistakably familiar. It was Francis.
+**Me:** “If help was ever sent here.”
 
+He paused. Only five seconds — but the room felt completely silent, like the air itself stopped moving.
 
-I don’t know… I don’t know what that phone was.
+His expression shifted from mild annoyance to something heavier. He stared down at his half‑finished cup of coffee before looking back up at me.
 
-I sat there for minutes, maybe longer just staring at those videos.
-Every single one of them looked like I was seeing through Francis’s eyes. As if he had recorded them himself… but from angles and moments where I knew he wasn’t holding a camera.
+**Chief Stone:** “We did request help. But it’s a long story.”
 
-The last video was only a few seconds long. Francis was sitting on the same couch I was sitting on now. Holding the same phone I had just found.
+**Me:** “I have all day.”
 
-He typed something… then tossed it onto the cushion beside him.
+**Chief Stone:** “If you say so.”
 
-I didn’t think much of it. It didn’t seem helpful. But as I scrolled backward through the videos, older and older, something cold crawled up my spine.
+And wow. This town has been through a lot.
 
-One recording showed Francis and his ex-wife, Bacy, screaming at each other. Really screaming, red-faced, inches apart. The angle made it clear I was seeing through Francis’s eyes again.
-Except… the apartment they were in?
+He told me he was born here sixty‑four years ago. When he was ten, the town sent a letter asking for help. The military responded — tanks, troops, helicopters, night after night. It looked like they were hunting a serial terrorist.
 
-It was their old apartment. The one they moved out of at least six years ago. The one completely renovated and occupied by strangers now.
+But when The Yellow came, hundreds of soldiers vanished. Gunfire echoed in the distance, only to stop abruptly. Tanks were found empty. Helicopters fell out of the sky. After a few more companies were lost, the military stopped coming.
 
-So how the hell was there footage from inside it?
+Then they erased the town.
 
+They wiped it off maps. The missing soldiers were written off as accidents or encounters with dangerous individuals. The town was treated like it never existed — until, eventually, people really did forget.
 
-Who recorded this? How did it end up on this phone?
+Lawston was twelve when the support ended.
 
-I kept scrolling, even though every part of me screamed to stop. My stomach churned. My hands shook.
+**Chief Stone:** “That’s the whole story, essentially. Is that all you wanted?”
 
-Another video: Francis driving. He parked near an elementary school and turned around.
-A little boy sat in the back seat. Ryan.
+**Me:** “Yeah. That’s all. I’m… sorry you had to go through all that.”
 
+**Chief Stone:** “No need to apologize. There’s nothing you could’ve done. Now I need to get back to work.”
 
-“Ready, Ryan?” Francis asked on the recording. “It’s your big day!”
+**Me:** “Of course, Lawston. Talk to you later, I guess.”
 
+**Chief Stone:** “Yeah. Sure.”
 
-Ryan is sixteen now. But in the video he was barely seven. His tiny backpack looked bigger than he was.
+So not only did they suffer through The Yellow — they were abandoned and erased by their own country. I doubt anyone would help even today. Even with all their advancements, they’d be just as helpless as us.
 
-How was any of this possible?
+A couple months passed after that. Naturally, everything blurred together except for the moments that actually caught my attention. I bought a car — a 1970 Ford Galaxie 500 — definitely an improvement. Marcus is getting married soon to a woman named Laura, which should be interesting. I hadn’t seen Fawna around much, so I figured I’d check on her tomorrow. Oh, and Charrie finally got Kaylene to laugh. That was a good moment.
 
-My throat tightened. My fingers went numb. But the fear didn’t stop me, if anything, it pushed me further.
+As night fell, that familiar unsettling Yellow glow crept in. I followed the usual routine: light every candle, cover the windows — the curtains are just a personal preference — and then we went to bed.
 
-I scrolled until I hit a video I wish I’d never opened.
+Something woke me up later. I tried to fall back asleep, but it wasn’t happening. I got out of bed and headed downstairs… and saw my mom.
 
-Again, Francis’s point of view.
-He was standing in a sunlit backyard, surrounded by boys around his age. Crumbling dirt under their shoes. Baseball bats in the grass. Summer heat shimmering in the air.
+Which was strange. They hadn’t mimicked my mom since I first got here.
 
-A much smaller kid approached him.
+When it noticed me, it spoke in her voice.
 
+**Not‑Mom:** “C’mere, sweetheart. I’d like to see your face up close one last time before I go.”
 
-“Francis, can I play too?” the boy asked, voice thin and hopeful.
+*Go?* I thought. That wasn’t something they said. They always came back.
 
+I almost asked what it meant, but stopped myself. Apparently that didn’t matter, because it answered anyway.
 
-“No!” Francis snapped. “You’re too small, Kevin. Go home.”
+**Not‑Mom:** “Oh, you don’t know, do you? You’ll know soon enough.”
 
+Then it turned and walked back into the darkness.
 
-I froze.
+What do I not know? What is it talking about? What does “soon enough” mean?
 
-I slammed my thumb onto the stop button.
-Kevin.
-That’s my name.
+After that, it went back to the usual routine — trying to lure me into the dark while pretending to be my sister. I checked every candle again, then went upstairs and eventually fell asleep.
 
-That moment… that exact moment… I remembered it.
-The smell of dust. The sting of embarrassment. The way Francis glared at me. The way I ran home, fighting tears. It was one of those childhood memories that stays with you forever, whether you want it or not.
+When I woke up, Charrie and Kaylene were already downstairs watching TV. I drank my coffee and, like I promised myself, went to check on Fawna. I knocked on her door, but no answer. It was early — 5:20 in the morning — so that was on me. Not everyone wakes up at the crack of dawn.
 
-But how the hell was it on video?
+I went back home and watched old cartoons with Kaylene for a few hours before trying again. I walked over and knocked.
 
-Who filmed it? How could it exist from his point of view? And why was it on a phone nobody had ever seen before?
-
-My vision blurred. I felt like I might collapse.
-
-I wasn’t just seeing Francis’s past anymore.
-I was seeing mine. And I had no idea how it got there.
-
-
-I stood in the bathroom, gripping the sink with both hands.
-Cold water dripped down my chin, but it didn’t help. It didn’t clear my head, didn’t calm me.
-Nothing did.
-
-Something was very, very wrong.
-
-These videos, if they even were videos, simply couldn’t exist. They showed moments that absolutely could not have been recorded on Francis’s phone. Half the time he didn’t even have a camera with him. So what the hell was I looking at?
-
-That’s when I heard the buzzing. 
-The phone I’d left in the living room started vibrating, the sound echoing sharply against the bathroom tiles. I practically sprinted to grab it.
-
-Unknown Caller.
-I didn’t hesitate.
-
-
-“Hello?” I answered immediately.
-
-
-There was no reply.
-Just a high-pitched, painful screech, like a satellite transmission twisted through static.
-I hadn’t heard anything like that since the old analog relay days, when the line would suddenly scream for no reason.
-
-
-“Jesus Christ—” I yanked the phone away from my ear.
-
-
-The sound stabbed straight into my skull.
-
-But beneath the screeching… there was something else.
-A voice. Faint, broken, distant, like someone trying to shout through a tank of water.
-
-
-“Kev… lis… ten… don’t… not… now…” The voice crackled. “Kev… I’m… sorry…”
-
-
-Everything inside me froze solid.
-It was Francis.
-
-
-“FRANCIS?!” I shouted into the phone. “Where are you?! What happened?! Talk to me!”
-
-
-The screeching swallowed my voice. There was no answer. Just that warped, droning noise.
-
-
-“FRANCIS! For fuck’s sake, where ARE you?!” I screamed again.
-
+“Fawna? Are you home? Are you awake?”
 
 Nothing.
 
-Then the call abruptly dropped.
+An hour passed. Still nothing.
 
-I stood in the dim living room, breathing hard. The phone shook in my hand. My chest burned. My mouth was dry. Should I call the police? What the hell would I even say at two in the morning?
+Then a thought hit me: *Could she have fallen victim?* She lived alone. Years of loneliness can wear you down. Maybe she finally listened to one of the voices.
 
+I checked around her house for any sign of her, but found nothing. Eventually I gave up — there wasn’t much else I could do.
 
-“Yeah, hi, my brother, who’s currently on a missing persons list, just called me from a phone that isn’t his, the same phone full of impossible videos that shouldn’t even exist.”
+The next day, a car pulled into her driveway and Fawna stepped out. I rushed over to ask what happened. Turns out she’d been struggling with some depression and stayed with a friend for a while. That explained why I hadn’t seen her.
 
+I was just glad she was safe.
 
-It sounded insane. Absolutely insane.
-My thoughts spun out of control.
 
-Where was Francis? What was happening? What the hell had I seen in those videos?
 
-And then… it hit me. Like a bolt straight through my skull.
+Nearly a week later, the mail finally came in. It only arrives once a month here, and on those days the post office turns into the equivalent of Black Friday. It reminded me of when we lived in that cheap apartment — bills that don’t matter anymore, piles of advertisements, the usual junk.
 
-I didn’t remember how I got here.
-I just stood there, the phone’s glow lighting up my hand, and it hit me harder than anything else that night:
+And then… a letter.
 
-I didn’t know when I arrived. I didn’t remember driving here.
-Did I park? Walk? Take the bus? I couldn’t remember pressing the buzzer. Or unlocking the door.
+From my dad.
 
-I remembered nothing.
-Except the fact that I was here.
+I hesitated. I hadn’t talked to him in a long time, but maybe it was an update, or something normal for once. I opened it, and this is what it said:
 
+—------------------------------------------------------------------------
 
-I sat on the couch, trying to gather my thoughts.
-But I couldn’t.
+**“Dear Josh — 6/8/2018**
 
-I felt disoriented, like I wasn’t fully there, like I was floating somewhere behind my own eyes.
+Hello Josh, I hope you’re doing well. I also hope I’m not inconveniencing you. But just some news.
 
-The phone rested beside me.
-I kept glancing at it, hoping it would ring again. Hoping it would be Francis.
+Your mom has passed from her heart problems. She was hoping to see you one last time, but I guess the fact that you’re getting this later means it’s too late to say goodbye. We’ve already held her funeral and buried her.
 
-Nothing.
-Meanwhile, I kept trying to remember how I got to his apartment in the first place. Nothing came to mind. It was like someone had erased that part of my brain with a swipe.
+Sorry you had to hear it from a piece of paper, but I thought I should let you know what happened.
 
+I hope everything is okay there, and I’m proud that you were able to better yourself.
 
-Then the phone buzzed violently beside me.
-I grabbed it, expecting another call, maybe Francis.
-But it was just a notification.
+Hope I’m able to talk to you soon.
 
+Love,
 
-> “Upload complete. Requesting new data.”
+Dad”\*\*
 
+—----------------------------------------------------------------------------
 
-I froze.
+My heart sank as I read it.
 
-What had it uploaded? What system even used messages like this? What “new data” did it want?
+And then it hit me.
 
-I checked through the phone again, still nothing but Gallery and Notes.
-The same empty shell as before.
+That’s what the Yellow Outsider meant — when it took the form of my mother and said it wanted to see my face “one last time before I go.” But how did it know? The letter was dated the day before the Yellow Event. A day before she died.
 
-But when I opened the gallery, something new caught my eye.
+Does it know things from hundreds of miles away?
 
-New videos.
+That… that shouldn’t be possible.
 
-Videos that definitely hadn’t been there a few minutes earlier.
-At first, I didn’t even want to open them. But curiosity, or fear, pushed me forward. Maybe the worst possible kind of curiosity.
-I tapped the first one.
+I showed the letter to Charrie, and she broke down. My mom had helped her become a better person when she was struggling with her own parents. Seeing her cry made something twist in my stomach.
 
-The inside of a car filled the screen. And once again, I was seeing everything through someone’s eyes. The “camera”, if this even was a camera, tilted slowly toward the driver seat.
+Not only was I not there for my mom…
 
+They knew beforehand.
 
-“Where are you, Francis?” a voice sighed.
+And now I can’t stop wondering — and dreading — what else they know. Or what they could know.
 
-
-My voice.
-
-On the video, the driver’s door opened. Someone stepped out. Looked up at a tall apartment building.
-
-Then the glass entrance door reflected the figure approaching it.
-
-Me.
-My face. My jacket. My posture. My movements.
-
-Walking into the building. Pressing the elevator button. Looking up directly at the lens, or at myself. I couldn’t tell anymore.
-
-The phone slipped from my hand, clattering onto the floor, but the video kept playing.
-I heard the elevator chime.
-The doors sliding open. The hum of it rising.
-
-My head pounded. The room spun. My stomach twisted itself into knots.
-
-That was my memory. My actions. A moment from my own life. A moment I had absolutely no memory of.
-
-
-Not even a flicker.
-
-The entire room faded into nothing. All I could think about was my own reflection in that glass door.
-The video knew something I didn’t. Or…It had kept something that had been taken from me.
-
-
-I paced back and forth through the apartment, breathing hard.
-What the hell was happening? What was this? Something horrific, something impossible… and I couldn’t tell what was real anymore and what wasn’t.
-
-The nausea. The confusion. They clung to me like a weight I couldn’t shake off.
-I froze mid-step. The same thought cut through my mind like a blade: I don’t remember how long I’ve been here.
-
-I didn’t remember when I’d arrived, when I started searching for Francis… or how long I’d been trying to piece everything together.
-
-Suddenly the phone buzzed again on the couch.
-I walked over, picked it up.
-Same notification as before:
-
-
-> “Upload complete. Requesting new data.”
-
-
-I stared at the screen.
-What the hell kind of system message was this? Before I could think any further, the phone rang in my hand.
-
-I flinched so hard I almost dropped it.
-
-Unknown Caller. Again.
-I waited a second… then answered.
-
-
-“Hello?” I asked, my voice raw. I prayed it would be Francis.
-
-
-At first, there was only that screech.
-The same sharp, metallic, ear-splitting satellite noise that stabbed straight through my skull.
-Then a voice broke through. Crackling, distant, like it was traveling through miles of water.
-
-
-“Don’t… do it…” it rasped. “Go… leave… run…”
-
-
-It was Francis.
-
-And then the line went dead. Only the screeching remained… and then even that stopped.
-I stood there in the dim living room, the phone cold in my hand, its blue light washing over my fingers.
-
-His words echoed in my head.
-
-Run.
-
-The thought made everything feel even worse.
-Then I realized something, something I had been avoiding, pushing away, refusing to acknowledge: I didn’t even remember where I was.
-
-I knew I had come to find Francis.
-But the street? The neighborhood? The city?
-
-Nothing. Blank.
-
-And in that moment, deep inside, everything clicked. The picture came together in a way I didn’t want it to.
-
-The question wasn’t what was happening.
-
-It was how much of me had already been taken.
-Only one thought remained. One terrible, unavoidable question:
-
-If I destroy the phone… what happens to Francis?
