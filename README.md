@@ -1,168 +1,158 @@
-# The Yellow (Pt. 3)
-[Part 1](https://www.reddit.com/r/nosleep/comments/1s301hp/the_yellow_pt_1/) [Part 2](https://www.reddit.com/r/nosleep/comments/1s7iwjs/the_yellow_pt_2/)  
-Two weeks passed, and there was nothing worth writing about. Life blurred together — work, sleep, taking care of Kaylene. Somewhere in that stretch, a question started nagging at me:
+# My older brother, who ate my dog 10 years ago, wants to reconnect.
+I’m typing this out on my phone while sitting in the freezing cold, so bear with me if this seems rushed, but I need to give some context.
 
-**“They must’ve asked for help at some point. There’s no way the outside world doesn’t know.”**
+I always had the sense that something was off about my older brother, Mark. I have all these memories about him from when I was little, and I’ve had trouble discerning whether they were real or imagined.
 
-So I went looking for Sheriff Tucker. As usual, his old Oldsmobile Delta 88 was parked near the town entrance. I walked up to him.
+My earliest memory. I was with my brother while he cut up a squirrel in our backyard. I must have been no more than 4, since we still lived in the rental house. I guess that would have made him about 11. I actually saw him do this a few more times after the first.
 
-**Me:** “Hey, do you know if help was ever sent to this town?”
+He’d snatch them up, grab a knife out of his pocket, and slice them open. He’d start at the collarbone, cut down the belly, and stop right at the bottom of the abdomen. He would tell me that he was just unzipping their jackets. That the gummy, wet, pink stuff beneath the fur was their regular skin, and that they only shrieked and squirmed because it was cold. It was silly enough to make me laugh.
 
-**Sheriff Tucker:** “Umm… no, I don’t know exactly. I’ve only been here twenty‑eight years. If you really want that question answered, go to the Chief.”
+Of course, Mom didn’t laugh when I finally told her about it. Mark stopped showing me his squirrels after that.
 
-**Me:** “The Chief?”
+Things got weirder after we moved to our permanent house. There were times that I stumbled upon him in the middle of the night. I’d find him sitting on the floor outside the study, reading these big old textbooks that Dad had saved from his doctoral program in microbiology.
 
-**Sheriff Tucker:** “Yeah. Chief Stone. He’s been here longer than I have. He oughta know.”
+I guess that wasn’t necessarily all that weird, but still worth mentioning.
 
-**Me:** “Alright then. See you later.”
+Although he stopped publicly killing animals, I’d still find cut-up squirrels, raccoons, and lizards around the property. They’d be missing organs; sometimes different stringy pieces would be splayed out all over the ground. There were a few with their brains all gone.
 
-**Sheriff Tucker:** “Sure. You too.”
+My parents knew something was off about him and had him see doctors because of it. Mark, from ages 10-18, was a revolving door of psychologists, psychiatrists, behavioral specialists, CPS workers, and anything else that they could throw at the wall. 
 
-So that was a bust. Now I had to talk to their Chief — Chief Stone, apparently. I jogged to the station to see if he was in.
+I guess nothing stuck.
 
-At the front desk, the receptionist pointed me toward an office.
+I say that because, as the title suggests, when Mark was 18, he ate my dog.
 
-**Front Desk:** “If you’re looking for Chief Stone, he’s over there.”
+My parents bought me a 2-year-old yorkie named Scarlet for my 10th birthday. I had a blast taking care of her. She loved sleeping in her little pink doggy bed at the end of the hallway between our two bedroom doors.
 
-Alright then.
+I woke up one night after a nightmare. A scream jolted me awake. I sat up and listened, hearing a wet crushing sound from underneath my door. It sounded like mac and cheese. I walked over and put my ear over the door with a cupped hand. Two sets of breathing: one heavy and deep, the other shallow and ragged. My heart thudded as I twisted the handle and peeked through.
 
-*Knock knock knock.*
+Mark was crouched over the dog bed. A pool of blood was forming underneath, wetting his bare feet. He was tinkering with something dark red, although I couldn’t see what it was. Looking down, I saw Scarlet’s face sideways in the bed. Her eyes were glazed over and she was panting lightly. 
 
-**Chief Stone:** “Come in.”
+I gasped. He turned towards me, quickly shoving a piece of pink flesh into his mouth with a wet, jittery hand. He chewed, staring at me with unblinking eyes. There was blood streaked across his face and staining his teeth. 
 
-I stepped inside.
+I burst through the door and sprinted down the hall away from him as fast as I could. The image of him was burned in my mind; not just him eating the dog, not just those eyes. It was his hand. 
 
-**Me:** “Hey, Chief Stone.”
+I swear to God, it had 6 fingers. Any of the rest of that stuff could be explained by a psycho kid, but not that. That was something else. He had transformed.
 
-**Chief Stone:** “Just call me Lawston. What do you want? There’s no reason you’d come to me without something important.”
+I ran to my parents’ bedroom and got their attention.
 
-**Me:** “I was wondering if…”
+There was a lot of screaming that night. I hid in my parents’ room while they dealt with him.
 
-**Chief Stone:** “If what?”
+He was gone by morning. All I knew was that they decided to kick him out. It was the last straw, and since he was 18, they had no responsibility to house him. I didn’t see him for 10 years after that.
 
-**Me:** “If help was ever sent here.”
+He reached out to me a few months ago.
 
-He paused. Only five seconds — but the room felt completely silent, like the air itself stopped moving.
+I’m 21, in the middle of my degree, and he’s 28, living further from home in Louisiana, working at a tire shop. 
 
-His expression shifted from mild annoyance to something heavier. He stared down at his half‑finished cup of coffee before looking back up at me.
+He found me through Facebook and asked if I wanted to go with him on a cross-country train from New Orleans to Chicago. He said he’d pay for it just so we could finally get together and catch up after so long. It was only right. We were brothers, after all.
 
-**Chief Stone:** “We did request help. But it’s a long story.”
+As much as the idea of spending two nights in a train car with him intimidated me, he was right. It *had* been so long. He *was* my brother. At the time, I hadn’t thought about any of those memories in so long that I wasn’t even sure any of them were real. Besides, it sounded fun. I always wanted to go to Chicago.
 
-**Me:** “I have all day.”
+Meeting him at the New Orleans station felt unreal. 
 
-**Chief Stone:** “If you say so.”
+He looked like me, but distorted in a funhouse mirror. His face was painted with wrinkles and a tired smile. His skin was paper white, and his hair was dark and shaggy. He was quite a bit taller than me and really skinny. When I hugged him, it felt like I could break his ribs if I squeezed just a little too hard.
 
-And wow. This town has been through a lot.
+With that being said, he actually was pretty lively. He was excited to see me and had lots to say about his life since moving out. He had stayed at a friend's apartment until he landed an odd job and stuck it out until he could afford his own place. He went through a good number of positions, the tire shop being his most recent. 
 
-He told me he was born here sixty‑four years ago. When he was ten, the town sent a letter asking for help. The military responded — tanks, troops, helicopters, night after night. It looked like they were hunting a serial terrorist.
+I wanted to ask him about the elephant in the room. Scarlet. I was too scared.
 
-But when The Yellow came, hundreds of soldiers vanished. Gunfire echoed in the distance, only to stop abruptly. Tanks were found empty. Helicopters fell out of the sky. After a few more companies were lost, the military stopped coming.
+He told me he was excited to see all the little towns we’d pass through while travelling up Mississippi and Tennessee. All the interesting people, buildings, nature, and the like. 
 
-Then they erased the town.
+We soon boarded the train, handed off our luggage, and crammed through a tight set of stairs to the second floor. We ended up in a tiny compartment with two inward-facing seats with a window and a small folding table between. A bed could fold down from the ceiling, and the seats could roll down into a second bed. All in all, it wasn’t that comfortable, but we had a nice view.
 
-They wiped it off maps. The missing soldiers were written off as accidents or encounters with dangerous individuals. The town was treated like it never existed — until, eventually, people really did forget.
+The initial ride was nice. We sat, watching the swampy marshes of Louisiana transform into the warm longleaf pine forests of Mississippi, dotted with ferns and short palmettos. I couldn’t help but notice that he was fidgeting with his fingernails on one hand. The nailbeds were deep and flaky. He hid it under the table when he realized I was watching.
 
-Lawston was twelve when the support ended.
+When it came time for dinner, passengers were called into the dining car for their reserved slots. When we came in, we were seated at a booth on one side, with a young couple on the other.
 
-**Chief Stone:** “That’s the whole story, essentially. Is that all you wanted?”
+Neither of us are very social, so it was a little awkward eating with strangers at first. They introduced themselves as Kate and Jim, and said they were taking the train to Chicago for their honeymoon. They thought it was real sweet what we were doing– a brother bonding trip across the country. 
 
-**Me:** “Yeah. That’s all. I’m… sorry you had to go through all that.”
+When we settled in for the night, I took the top bunk and Mark took the bottom, at his own request. Although I had trouble because of the constant shaking and noises of the train, I eventually fell asleep.
 
-**Chief Stone:** “No need to apologize. There’s nothing you could’ve done. Now I need to get back to work.”
+I woke up to the sound of him opening the sliding door and leaving the room. Light from the hall pierced my squinting eyes. I tried to ignore it, but he kept coming in and out repeatedly for a long while. When he finally left the room the last time, no light came in. 
 
-**Me:** “Of course, Lawston. Talk to you later, I guess.”
+I checked my watch. 4:12 AM.
 
-**Chief Stone:** “Yeah. Sure.”
+I shifted the blinds covering the window facing the hall. The lights outside the room were off. They were supposed to always be on. After a while, he still hadn’t come back. 
 
-So not only did they suffer through The Yellow — they were abandoned and erased by their own country. I doubt anyone would help even today. Even with all their advancements, they’d be just as helpless as us.
+I checked my watch again. 4:50 AM.
 
-A couple months passed after that. Naturally, everything blurred together except for the moments that actually caught my attention. I bought a car — a 1970 Ford Galaxie 500 — definitely an improvement. Marcus is getting married soon to a woman named Laura, which should be interesting. I hadn’t seen Fawna around much, so I figured I’d check on her tomorrow. Oh, and Charrie finally got Kaylene to laugh. That was a good moment.
+Deciding that I should check the bathroom to see if he was okay, I crawled down to the bottom bunk and snuck out into the dark hallway. The space was desolate; I could see nothing but the faint glow of an emergency light in the stairwell, and I could only hear the grinding railway beneath me.
 
-As night fell, that familiar unsettling Yellow glow crept in. I followed the usual routine: light every candle, cover the windows — the curtains are just a personal preference — and then we went to bed.
+Tiptoeing to the bathroom, I found it empty. I continued forward into the next train car.
 
-Something woke me up later. I tried to fall back asleep, but it wasn’t happening. I got out of bed and headed downstairs… and saw my mom.
+It was the dining car, also completely devoid of people. It was pitch black inside. I could only see with the flashlight on my phone. I moved forward into another passenger car. All black again.
 
-Which was strange. They hadn’t mimicked my mom since I first got here.
+The next was the observation car. It was a big, open room with windows lining all the walls and parts of the ceiling. No light came from the outside, and there was no sign of Mark. When I was about halfway down the aisle, I saw something in the small window of the door ahead that led to the next train car.
 
-When it noticed me, it spoke in her voice.
+A pair of wide eyes in the dark were peeking at me, only visible in the flashlights' pitiful cone of light.
 
-**Not‑Mom:** “C’mere, sweetheart. I’d like to see your face up close one last time before I go.”
+About 5 meters ahead of me, just on the other side of the door. Suddenly, the sound of the train faded. I got tunnel vision. All I could see was the thing staring back at me. 
 
-*Go?* I thought. That wasn’t something they said. They always came back.
+A fight-or-flight reflex coursed through my veins. My heart was thudding loudly in my chest. My brain was screaming at me to turn around and run.
 
-I almost asked what it meant, but stopped myself. Apparently that didn’t matter, because it answered anyway.
+So I did.
 
-**Not‑Mom:** “Oh, you don’t know, do you? You’ll know soon enough.”
+I was sweating when I made it back to the room, my fingers tingling. I climbed into the top bunk and tried and failed to calm myself and sleep.
 
-Then it turned and walked back into the darkness.
+Suddenly, I awoke to the sound of Mark entering the room. It was bright. I didn’t even remember falling asleep. My forehead was still sweaty.
 
-What do I not know? What is it talking about? What does “soon enough” mean?
+“Get up. It's already 9 am, and you missed the last stop in Mississippi. We just started moving again,” he said, banging the underside of my bunk.
 
-After that, it went back to the usual routine — trying to lure me into the dark while pretending to be my sister. I checked every candle again, then went upstairs and eventually fell asleep.
+I swung my head over the side to look down at him. “You went out in the station?”
 
-When I woke up, Charrie and Kaylene were already downstairs watching TV. I drank my coffee and, like I promised myself, went to check on Fawna. I knocked on her door, but no answer. It was early — 5:20 in the morning — so that was on me. Not everyone wakes up at the crack of dawn.
+He looked up at me as he took off his denim jacket. “Yeah, I checked it out. Just walked around a little.” The right sleeve had a dark red stain smeared over the cuff.
 
-I went back home and watched old cartoons with Kaylene for a few hours before trying again. I walked over and knocked.
+I gulped, my throat dry. “What’s on your sleeve?”
 
-“Fawna? Are you home? Are you awake?”
+He looked at it and paused before answering. “Oh, just a stain from dinner last night.” He folded it up and tossed it under his chair. “Anyways, come with me, it's time for our breakfast reservation.”
 
-Nothing.
+As we sat and waited at our booth, the same couple from the day before appeared. As they passed, Jim gave us a glare and looked away without a word, grabbing Kate by the shoulder. She avoided eye contact completely.
 
-An hour passed. Still nothing.
+Mark told me about a stop he wanted to get out at later that evening, a place called Slaughter. A little town with a few hundred people. We joked about it for a bit. I agreed to get out and look around with him when the time came. 
 
-Then a thought hit me: *Could she have fallen victim?* She lived alone. Years of loneliness can wear you down. Maybe she finally listened to one of the voices.
+After breakfast, I took a nap while Mark sat in the observation car. When it came time for lunch at 2 pm, Mark sat it out to go shower instead. I went to the dining car alone. I saw Jim walk down the aisle, and I stopped him before he passed my booth.
 
-I checked around her house for any sign of her, but found nothing. Eventually I gave up — there wasn’t much else I could do.
+“Hey, you here for lunch? Wanna sit here?” I motioned to the seat across from me.
 
-The next day, a car pulled into her driveway and Fawna stepped out. I rushed over to ask what happened. Turns out she’d been struggling with some depression and stayed with a friend for a while. That explained why I hadn’t seen her.
+His brow furrowed as he turned to me. “You think this is some kind of fucking joke?”
 
-I was just glad she was safe.
+“Wh-what? I don’t understand,” I said, baffled by his comment.
 
+“Your older brother. His sick shit. I’m tired of it. Y’all scared my wife,” he said, pointing at me and back towards the passenger car.
 
+“What happened? I don’t know what you’re talking about.”
 
-Nearly a week later, the mail finally came in. It only arrives once a month here, and on those days the post office turns into the equivalent of Black Friday. It reminded me of when we lived in that cheap apartment — bills that don’t matter anymore, piles of advertisements, the usual junk.
+“Oh, I’ll tell you what happened.” He sat down at the booth across from me. “I woke up to Kate screaming her ass off at 4 in the morning. Your brother was staring at her through the window of our room.” 
 
-And then… a letter.
+My blood ran cold. “Seriously? I didn’t know that.”
 
-From my dad.
+Jim grimaced. “He left real quick once I sat up. She says he must have been there a long time, just watching. She wanted to keep the blinds partly open to let a little light in. He watched through there.”
 
-I hesitated. I hadn’t talked to him in a long time, but maybe it was an update, or something normal for once. I opened it, and this is what it said:
+“You know, the lights went out for a while last night,” I said, nervously fiddling with my fork.
 
-—------------------------------------------------------------------------
+“That’s the thing. I noticed when the lights went out, about an hour before she saw him in the window. Those lights came on just a minute after he left. Real convenient, huh?”
 
-**“Dear Josh — 6/8/2018**
+I cleared my throat. “Listen, that is weird. I’m sorry, I had no idea. I’ll talk to him.”
 
-Hello Josh, I hope you’re doing well. I also hope I’m not inconveniencing you. But just some news.
+“You better.” He stood up and stormed away.
 
-Your mom has passed from her heart problems. She was hoping to see you one last time, but I guess the fact that you’re getting this later means it’s too late to say goodbye. We’ve already held her funeral and buried her.
+Mark denied it. Said he had no clue what the guy was talking about. That he must have been crazy. I tried to ignore the situation. The train ride would end by morning anyway.
 
-Sorry you had to hear it from a piece of paper, but I thought I should let you know what happened.
+In the early evening, when the intercom announced the 5-minute stop in Slaughter, Mark grabbed me and urged me to put my shoes and jacket on. We stepped off the train into the cold, fading light of the dead rail town. 
 
-I hope everything is okay there, and I’m proud that you were able to better yourself.
+He walked off towards the one tiny building that made up the station and told me to wait. I was left kicking my feet at the dusty concrete. I heard shouting and looked over. Jim was arguing with one of the rail workers about not being able to find his wife. He was pissed.
 
-Hope I’m able to talk to you soon.
+I checked my watch. The train was due to start back up in just a minute. Mark was still gone. I rushed over to the station building and walked in, expecting to see him.
 
-Love,
+He was nowhere in the waiting room. I asked the worker at the desk if they had seen anyone. They said no one had come through in the past hour.
 
-Dad”\*\*
+I heard the rail worker outside shout. When I came out, they motioned to get back on the train. It was due to leave in a few seconds. I told him I was still waiting on my brother, and he said the train was on a tight schedule and would leave regardless. After a few seconds of arguing, he backed away from me towards the train.
 
-—----------------------------------------------------------------------------
+I clenched my jaw as I watched Jim and the other passengers on their smoke breaks get on. The worker looked at me with a shrug. I looked back towards the desolate town before me. I turned back and shrugged at him. He closed the door.
 
-My heart sank as I read it.
+I watched as the train started moving. In just a few seconds, it was gone.
 
-And then it hit me.
+The town, at least the area right by the station, is littered with boarded-up old businesses and trash. There's no one in sight. It's about 30 degrees.
 
-That’s what the Yellow Outsider meant — when it took the form of my mother and said it wanted to see my face “one last time before I go.” But how did it know? The letter was dated the day before the Yellow Event. A day before she died.
+I’ve been sitting here on this cold metal bench writing this all out. It's dark now, and I’m still trying to think of what I’m going to do to find Mark. He won’t pick up the phone.
 
-Does it know things from hundreds of miles away?
-
-That… that shouldn’t be possible.
-
-I showed the letter to Charrie, and she broke down. My mom had helped her become a better person when she was struggling with her own parents. Seeing her cry made something twist in my stomach.
-
-Not only was I not there for my mom…
-
-They knew beforehand.
-
-And now I can’t stop wondering — and dreading — what else they know. Or what they could know.
-
+I guess I’ll update this when I find him. Let me know if you have any ideas.
