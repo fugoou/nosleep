@@ -1,158 +1,326 @@
-# My older brother, who ate my dog 10 years ago, wants to reconnect.
-I’m typing this out on my phone while sitting in the freezing cold, so bear with me if this seems rushed, but I need to give some context.
+# Daryl
+“Babe, get back in the car, we have a long way to go.”
 
-I always had the sense that something was off about my older brother, Mark. I have all these memories about him from when I was little, and I’ve had trouble discerning whether they were real or imagined.
+My husband was always so punctual, but I couldn't get enough of this view. We had been driving for around four hours, with two more to go today, but I said I needed to stretch my legs. Which was true, but I wanted to see the lake while we were nearby. It was a beautiful, serene blue, and after this point, it would be nothing but plains, forests, and farmland for the next two days. I watched leaves drift softly onto the surface, trout corralling in the depths, and large herons, diving deep into the water, and rising out with their prize, plucking and swallowing the fish in a single, methodical gulp. I collected myself, and got back in the car. 
 
-My earliest memory. I was with my brother while he cut up a squirrel in our backyard. I must have been no more than 4, since we still lived in the rental house. I guess that would have made him about 11. I actually saw him do this a few more times after the first.
+“Are you so excited to see my mother, Jerry?” I said, snidely, clicking in my passenger's side seat belt. 
 
-He’d snatch them up, grab a knife out of his pocket, and slice them open. He’d start at the collarbone, cut down the belly, and stop right at the bottom of the abdomen. He would tell me that he was just unzipping their jackets. That the gummy, wet, pink stuff beneath the fur was their regular skin, and that they only shrieked and squirmed because it was cold. It was silly enough to make me laugh.
+“Ohhh yeah, I'm so looking forward to hearing about whatever she ‘learned’ on Facebook,” he jabbed, pulling out of the parking lot and getting back onto the highway.
 
-Of course, Mom didn’t laugh when I finally told her about it. Mark stopped showing me his squirrels after that.
+I laughed. “You know, it could be worse. My uncle still doesn't believe in vaccines.”
 
-Things got weirder after we moved to our permanent house. There were times that I stumbled upon him in the middle of the night. I’d find him sitting on the floor outside the study, reading these big old textbooks that Dad had saved from his doctoral program in microbiology.
+“Which is why I still find it shocking you had the fortitude to become a doctor of all things, Maryann,” he said. He smiled as he looked at me for a few seconds. “Thank god you didn't pick up any of that stuff.”
 
-I guess that wasn’t necessarily all that weird, but still worth mentioning.
+“Could you imagine? An anti-vaxx pediatrician? That's basically malpractice at that point.”
 
-Although he stopped publicly killing animals, I’d still find cut-up squirrels, raccoons, and lizards around the property. They’d be missing organs; sometimes different stringy pieces would be splayed out all over the ground. There were a few with their brains all gone.
+“Yeah, well, it's wayyyy scarier to have an autistic kid than a dead one.” We both laughed. I don't visit my mother often after I moved out with Jerry; she lives deep within South Dakota's mountainous forests, and because of my fear of flying, driving the six hours there was usually not feasible. The last time we went was to announce Jerry and my marriage, which… went. My mother wasn't thrilled I'd be marrying “one of them Jewish fellas”, and my husband wasn't thrilled by her opinions on Israel, but it was important to both of us to talk to her. My dad hadn't been in my or my mother's lives after I was born; my mom barely even remembers anything about him, so I wanted her at least to be in our lives for the big things. I looked down at my belly, smiled, and looked back out the window. 
 
-My parents knew something was off about him and had him see doctors because of it. Mark, from ages 10-18, was a revolving door of psychologists, psychiatrists, behavioral specialists, CPS workers, and anything else that they could throw at the wall. 
+“Hey, babe,” Jerry said, “your mom is getting up in years, have you considered… you know…?”
 
-I guess nothing stuck.
+“Putting her in a home?” I sighed. 
 
-I say that because, as the title suggests, when Mark was 18, he ate my dog.
+“Listen, I know it's unpleasant to talk about, but…”
 
-My parents bought me a 2-year-old yorkie named Scarlet for my 10th birthday. I had a blast taking care of her. She loved sleeping in her little pink doggy bed at the end of the hallway between our two bedroom doors.
+“No, no, I agree too. A six hour car ride there and back is a bit much only to get berated by her after she falls or something. And the last time I called her, she forgot a lot of stuff about my childhood. I'm worried she'll lose her keys in the fridge.”
 
-I woke up one night after a nightmare. A scream jolted me awake. I sat up and listened, hearing a wet crushing sound from underneath my door. It sounded like mac and cheese. I walked over and put my ear over the door with a cupped hand. Two sets of breathing: one heavy and deep, the other shallow and ragged. My heart thudded as I twisted the handle and peeked through.
+“Ha!” my husband said with a deadpan tone. “Plus, you know, with the kid coming… might be nice to have her close by.”
 
-Mark was crouched over the dog bed. A pool of blood was forming underneath, wetting his bare feet. He was tinkering with something dark red, although I couldn’t see what it was. Looking down, I saw Scarlet’s face sideways in the bed. Her eyes were glazed over and she was panting lightly. 
+“Really?” I guffawed and smiled at my husband. “You want my ‘she-devil’ of a mother close by to you?”
 
-I gasped. He turned towards me, quickly shoving a piece of pink flesh into his mouth with a wet, jittery hand. He chewed, staring at me with unblinking eyes. There was blood streaked across his face and staining his teeth. 
+“Look, I don't like her, but… I want my son to know his grandmother. Family is important to me, Maryann.”
 
-I burst through the door and sprinted down the hall away from him as fast as I could. The image of him was burned in my mind; not just him eating the dog, not just those eyes. It was his hand. 
+“I understand, lovebug.” I looked through the glass of the side window. “You thought of any names yet, babe?”
 
-I swear to God, it had 6 fingers. Any of the rest of that stuff could be explained by a psycho kid, but not that. That was something else. He had transformed.
+“Hmm…” He tapped his index finger against the steering wheel. “Well, my grandfather's names are Leonard and Shelby, but I feel like those don't work in the modern age.”
 
-I ran to my parents’ bedroom and got their attention.
+“Yeah, imagine a kid named Shelby? He'd get picked apart!” We laughed.
 
-There was a lot of screaming that night. I hid in my parents’ room while they dealt with him.
+“That said… I really do like the name Arnold.”
 
-He was gone by morning. All I knew was that they decided to kick him out. It was the last straw, and since he was 18, they had no responsibility to house him. I didn’t see him for 10 years after that.
+“Arnold? Why Arnold?”
 
-He reached out to me a few months ago.
+“I don't know.” He looked wistfully past the steering wheel. “It just… feels right.”
 
-I’m 21, in the middle of my degree, and he’s 28, living further from home in Louisiana, working at a tire shop. 
+I smiled at him. This was something I loved about him… he wasn't always right, but sometimes, his gut was right on the money. I lifted his hand of the gear shift towards my lips, and softly kissed him. He was going to be a great dad.
 
-He found me through Facebook and asked if I wanted to go with him on a cross-country train from New Orleans to Chicago. He said he’d pay for it just so we could finally get together and catch up after so long. It was only right. We were brothers, after all.
+We arrived at my mother's house at around 6:00 at night. We got out of our car, unloaded our suitcases, and went down the gravel road to my family home. We mounted the porch steps, then knocked on the door. “Coming!” we heard echo from deep in the kitchen. 
 
-As much as the idea of spending two nights in a train car with him intimidated me, he was right. It *had* been so long. He *was* my brother. At the time, I hadn’t thought about any of those memories in so long that I wasn’t even sure any of them were real. Besides, it sounded fun. I always wanted to go to Chicago.
+Like a hurricane, my mother pushed the door open. “Get inside, get inside! I can't leave milk on the stove, you know!” 
 
-Meeting him at the New Orleans station felt unreal. 
+“Hey mom.” I hugged her tightly around the waist, before she went to my husband and gave him a soft and quick hug, before diving back into the kitchen.
 
-He looked like me, but distorted in a funhouse mirror. His face was painted with wrinkles and a tired smile. His skin was paper white, and his hair was dark and shaggy. He was quite a bit taller than me and really skinny. When I hugged him, it felt like I could break his ribs if I squeezed just a little too hard.
+“I left out a charcuterie board on the table, help yourself!” she called out. 
 
-With that being said, he actually was pretty lively. He was excited to see me and had lots to say about his life since moving out. He had stayed at a friend's apartment until he landed an odd job and stuck it out until he could afford his own place. He went through a good number of positions, the tire shop being his most recent. 
+We sat down in the living room, which looked the same as from when I was a child; same old couches, same worn crucifix, even an old toy of mine laying on the ground, the only difference was a nice wide screen TV on the wall. There was also a spread that was lovingly set out on the table. There was salami, prosciutto, and three soft looking cheeses, along with a variety of crackers and jams. There was a small plate on the table with a couple crumbs on it as well.
 
-I wanted to ask him about the elephant in the room. Scarlet. I was too scared.
+“Babe, your mom knows we're Kosher, right?”
 
-He told me he was excited to see all the little towns we’d pass through while travelling up Mississippi and Tennessee. All the interesting people, buildings, nature, and the like. 
+“I think?”
 
-We soon boarded the train, handed off our luggage, and crammed through a tight set of stairs to the second floor. We ended up in a tiny compartment with two inward-facing seats with a window and a small folding table between. A bed could fold down from the ceiling, and the seats could roll down into a second bed. All in all, it wasn’t that comfortable, but we had a nice view.
+He sighed. “At this point I really hope her mind is going.”
 
-The initial ride was nice. We sat, watching the swampy marshes of Louisiana transform into the warm longleaf pine forests of Mississippi, dotted with ferns and short palmettos. I couldn’t help but notice that he was fidgeting with his fingernails on one hand. The nailbeds were deep and flaky. He hid it under the table when he realized I was watching.
+I helped myself to the bread and jam while my husband poured himself a glass of wine. We sat on the couch, listening to a combination of Frank Sinatra and FOX News, while my mother panic-cooked in the next room over.
 
-When it came time for dinner, passengers were called into the dining car for their reserved slots. When we came in, we were seated at a booth on one side, with a young couple on the other.
+“Alexa! How many cups in a pint!” she yelled. My husband and I chuckled.
 
-Neither of us are very social, so it was a little awkward eating with strangers at first. They introduced themselves as Kate and Jim, and said they were taking the train to Chicago for their honeymoon. They thought it was real sweet what we were doing– a brother bonding trip across the country. 
+After things had settled in the kitchen, my mother sighed deeply and came into the living room. “You wouldn't believe how tricky custard is to make!” she chuckled to herself as she got a new plate and started to create a amalgamation of delicacies.
 
-When we settled in for the night, I took the top bunk and Mark took the bottom, at his own request. Although I had trouble because of the constant shaking and noises of the train, I eventually fell asleep.
+“Custard?” I laughed. “You didn't need to do that much for us.
 
-I woke up to the sound of him opening the sliding door and leaving the room. Light from the hall pierced my squinting eyes. I tried to ignore it, but he kept coming in and out repeatedly for a long while. When he finally left the room the last time, no light came in. 
+“No, no, I insist!” she laughed sweetly. “It's been so long since I've seen you two, and I wanted something sweet. Also…” she leaned in and smiled. “I have something to tell you two!”
 
-I checked my watch. 4:12 AM.
+Jerry and I looked at each other. “Actually, Jerry and I have news too, Mom.” 
 
-I shifted the blinds covering the window facing the hall. The lights outside the room were off. They were supposed to always be on. After a while, he still hadn’t come back. 
+“Oh! How fun!” She readied another combination for consumption. “Do you wanna go first or should I?” 
 
-I checked my watch again. 4:50 AM.
+Jerry grasped my hand. “I think we should go first, Mrs. Kemp.”
 
-Deciding that I should check the bathroom to see if he was okay, I crawled down to the bottom bunk and snuck out into the dark hallway. The space was desolate; I could see nothing but the faint glow of an emergency light in the stairwell, and I could only hear the grinding railway beneath me.
+I looked up at Jerry and smiled. “Mom, so you know how hard me and Jerry have been worked with the IVF stuff, right?”
 
-Tiptoeing to the bathroom, I found it empty. I continued forward into the next train car.
+She covered her mouth with shock. “Oh my god, Maryann, you don't mean…” 
 
-It was the dining car, also completely devoid of people. It was pitch black inside. I could only see with the flashlight on my phone. I moved forward into another passenger car. All black again.
+I nodded my head silently, tears welling in my eyes. My ran at me and bear hugged me, sobbing uncontrollably. “I didn't think I'd be a grandmother! This is so, so, wonderful!” Jerry stared at her when she released me and sat back on the couch. 
 
-The next was the observation car. It was a big, open room with windows lining all the walls and parts of the ceiling. No light came from the outside, and there was no sign of Mark. When I was about halfway down the aisle, I saw something in the small window of the door ahead that led to the next train car.
+“So, mom, what news do you have?”
 
-A pair of wide eyes in the dark were peeking at me, only visible in the flashlights' pitiful cone of light.
+“You know… I think our news is pretty similar.” She grinned.
 
-About 5 meters ahead of me, just on the other side of the door. Suddenly, the sound of the train faded. I got tunnel vision. All I could see was the thing staring back at me. 
+My husband and I looked at her slackjawed. “You're pregnant?!” I blurted.
 
-A fight-or-flight reflex coursed through my veins. My heart was thudding loudly in my chest. My brain was screaming at me to turn around and run.
+“No, no, gosh, Maryann, I'm 70 years old!” She chuckled to herself. “No, no. But… Daryl, come downstairs!” 
 
-So I did.
+From the second floor, footsteps creaked above us. They passed from above our heads, to the staircase, and from around the corner, we saw him- a small boy, only around five or some years old, with soft, blonde hair, and a crisp bowl cut. He was wearing bunny footie pajamas, and had deep, bright, blue eyes. 
 
-I was sweating when I made it back to the room, my fingers tingling. I climbed into the top bunk and tried and failed to calm myself and sleep.
+“Hi, mama,” he said, as he ran into my mother's arms. “Did I surprise good?”
 
-Suddenly, I awoke to the sound of Mark entering the room. It was bright. I didn’t even remember falling asleep. My forehead was still sweaty.
+“You surprised great, Daryl!” She gave him a soft kiss on the forehead. He giggled sweetly.
 
-“Get up. It's already 9 am, and you missed the last stop in Mississippi. We just started moving again,” he said, banging the underside of my bunk.
+“Hi… Daryl,” I said with a deep confusion. “Who is this, mom?”
 
-I swung my head over the side to look down at him. “You went out in the station?”
+“Oh, my goodness! You wouldn't believe it!” She cradled the boy in her arms. “I was driving alone at night, when on the side of the road, I saw this little guy! And he looked sick, and hungry, and scared, and I knew I had to take care of him!”
 
-He looked up at me as he took off his denim jacket. “Yeah, I checked it out. Just walked around a little.” The right sleeve had a dark red stain smeared over the cuff.
+“Yeah, but like, Sharon,” my husband said. “Who's kid is that?”
 
-I gulped, my throat dry. “What’s on your sleeve?”
+“I don't know,” she said. “I just thought he was abused. He was left on the side of the road, Jerry.”
 
-He looked at it and paused before answering. “Oh, just a stain from dinner last night.” He folded it up and tossed it under his chair. “Anyways, come with me, it's time for our breakfast reservation.”
+“Yes, but you can't take someone's kid. Do the police know?”
 
-As we sat and waited at our booth, the same couple from the day before appeared. As they passed, Jim gave us a glare and looked away without a word, grabbing Kate by the shoulder. She avoided eye contact completely.
+“No, but…”
 
-Mark told me about a stop he wanted to get out at later that evening, a place called Slaughter. A little town with a few hundred people. We joked about it for a bit. I agreed to get out and look around with him when the time came. 
+“I'm hungry,” Daryl yelled. “Mommy, can we eat please? Please?”
 
-After breakfast, I took a nap while Mark sat in the observation car. When it came time for lunch at 2 pm, Mark sat it out to go shower instead. I went to the dining car alone. I saw Jim walk down the aisle, and I stopped him before he passed my booth.
+“Oh, of course, my sweet boy!” She gave him a soft kiss on the forehead, picked him up from her lap, and walked with him into the dining room. My husband and I exchanged a look, and followed them.
 
-“Hey, you here for lunch? Wanna sit here?” I motioned to the seat across from me.
+We sat down at the table. My mother had made salmon with yogurt and dill sauce. It was really quite good, but Daryl was fussy about eating it. He did, however, enjoy the mashed potatoes, covered in butter and gravy.
 
-His brow furrowed as he turned to me. “You think this is some kind of fucking joke?”
+“So, when are you expecting?” My mother smiled warmly at me.
 
-“Wh-what? I don’t understand,” I said, baffled by his comment.
+“Six months?” I looked at Jerry.
 
-“Your older brother. His sick shit. I’m tired of it. Y’all scared my wife,” he said, pointing at me and back towards the passenger car.
+“Yeah. We've been seeing Maryann's regular OB/GYN, and we found a lovely maternal-fetal medicine specialist, just to have a second opinion.”
 
-“What happened? I don’t know what you’re talking about.”
+“Oh! How good of you! Is this specialist a cousin of yours, Jerry?”
 
-“Oh, I’ll tell you what happened.” He sat down at the booth across from me. “I woke up to Kate screaming her ass off at 4 in the morning. Your brother was staring at her through the window of our room.” 
+I grimaced. “No,” he said, “but we've had a couple of friends that have recommended him. They've all said he's been extremely knowledgeable and supportive, and he has been.”
 
-My blood ran cold. “Seriously? I didn’t know that.”
+My mother smiled. “Well that's good.” She took another bite of her salmon. “Are you gonna baptize him?”
 
-Jim grimaced. “He left real quick once I sat up. She says he must have been there a long time, just watching. She wanted to keep the blinds partly open to let a little light in. He watched through there.”
+My husband put down his utensils and frowned, pinching the skin between his eyes. “No, mom, I told you,” I said, “I converted.”
 
-“You know, the lights went out for a while last night,” I said, nervously fiddling with my fork.
+“Well, you know, I want a Catholic grandchild. Kind of greedy to not give me one, Maryann.”
 
-“That’s the thing. I noticed when the lights went out, about an hour before she saw him in the window. Those lights came on just a minute after he left. Real convenient, huh?”
+I faked a smile as my husband took a large chunk out of his fish. “You know, maybe the next one, mom.”
 
-I cleared my throat. “Listen, that is weird. I’m sorry, I had no idea. I’ll talk to him.”
+“Wonderful! Just wonderful!” she smiled sweetly as she got up to check on the oven. 
 
-“You better.” He stood up and stormed away.
+“She really has a way with words,” Jerry grumbled between bites.
 
-Mark denied it. Said he had no clue what the guy was talking about. That he must have been crazy. I tried to ignore the situation. The train ride would end by morning anyway.
+“Shush!” I whispered as I lightly smacked his shoulder. “She doesn't need to hear this.” Daryl started to make airplane noises as he lifted his own spoon into his mouth, sucking the spoon clean of all the potatoes.
 
-In the early evening, when the intercom announced the 5-minute stop in Slaughter, Mark grabbed me and urged me to put my shoes and jacket on. We stepped off the train into the cold, fading light of the dead rail town. 
+“I'm telling you, babe,” he said. “Tomorrow, we probably are going to need to have a more serious conversation.”
 
-He walked off towards the one tiny building that made up the station and told me to wait. I was left kicking my feet at the dusty concrete. I heard shouting and looked over. Jim was arguing with one of the rail workers about not being able to find his wife. He was pissed.
+I sighed. He was more right than ever, especially considering this whole Daryl situation. I looked over at him, distracted currently by a small action figure as he made robot sounds with his mouth and fussed with the arms. 
 
-I checked my watch. The train was due to start back up in just a minute. Mark was still gone. I rushed over to the station building and walked in, expecting to see him.
+My mother came back in the room. “So, do you guys want to watch Gutfeld with me?”
 
-He was nowhere in the waiting room. I asked the worker at the desk if they had seen anyone. They said no one had come through in the past hour.
+“I think I need some sleep, Sharon,” my husband said. “It's been a lot of driving.”
 
-I heard the rail worker outside shout. When I came out, they motioned to get back on the train. It was due to leave in a few seconds. I told him I was still waiting on my brother, and he said the train was on a tight schedule and would leave regardless. After a few seconds of arguing, he backed away from me towards the train.
+“Oh.” She said softly. “That's okay. He's just very funny. And topical.”
 
-I clenched my jaw as I watched Jim and the other passengers on their smoke breaks get on. The worker looked at me with a shrug. I looked back towards the desolate town before me. I turned back and shrugged at him. He closed the door.
+My husband sighed. “You need any help in the kitchen, mom?” I asked as I collected me and my husband's dirty plates. 
 
-I watched as the train started moving. In just a few seconds, it was gone.
+“That would be very helpful! And it'll be nice to talk to my little girl in private,” she said, as she tossed my hair. “Jerry, sweetie, keep an eye on Daryl please.”
 
-The town, at least the area right by the station, is littered with boarded-up old businesses and trash. There's no one in sight. It's about 30 degrees.
+“You got it, Mrs. Kemp,” he said. 
 
-I’ve been sitting here on this cold metal bench writing this all out. It's dark now, and I’m still trying to think of what I’m going to do to find Mark. He won’t pick up the phone.
+I walked inside with my mother. We cleaned in silence for a minute or two, before she said, “I still don't understand what you see in him, Maryann.”
 
-I guess I’ll update this when I find him. Let me know if you have any ideas.
+“He's a good man, mom,” I chuckled. “He makes me happy, and he's been incredibly supportive of my practice.”
+
+“I suppose, deary,” she said. “I guess I still just see my little girl as a Kemp, and not as a… Scholtz.”
+
+I sighed. “He's the man I chose, and the man I love. Be kinder to him, please. For my sake.”
+
+She sighed. “I've been supportive, you just don't…”
+
+“Mommy! Mommy!” Daryl burst into the room. “Mr. Jerry cheated in our game!” 
+
+“I didn't cheat,” my husband followed behind. “How do I cheat with action figures?”
+
+“Well you said you punched my guy! You didn't! You missed! You need to say you missed!”
+
+“Ugh, fine I missed.” He looked at me. I smiled warmly. He was going to be a great father.
+
+“Yay!” Daryl exclaimed. “Now, come here, I want you to use this one next!”
+
+“Oh, I see, okay,” my husband chuckled, and went back out of the room. 
+
+My mom and I finished dishes with a bit of general small talk; work, the house, neighbors, and then, I collected my husband and we ascended to the second floor. As we climbed, I looked at the family photos adorning the wall; pictures of my mom and I at the Grand Canyon, a fifth birthday, and a photo of my graduation from college; I was smiling warmly, my mother on my left, a man who looked like a distant relative on my right. I smiled, recollecting on what brought me here.
+
+I got in the shower for a bit, while my husband read a bit before bed. When I got out, my towel scantily covering my body, my husband smiled with devilish lust. “If we were home,” he said, “I think I'd try to give you twins.”
+
+I giggled as I changed into my pajamas, slowly lowering the towel as my husband made whispered hoots and hollers. We both laughed as I crawled into bed, and I kissed him sweetly.
+
+“So,” my husband got serious, and put down his book, “I think tomorrow might be the day to talk to your mother about the home.”
+
+“What?”
+
+“Look, I know, we only came to talk about the pregnancy, but… she has some five year old child living with her she just… collected off the side of the road. And she didn't think to call the police?”
+
+He was right. My mother was always a kind woman, but this was… a lot. Even for her. “You're right, Jerry, you're right.” I sighed.
+
+“I'll do some searching on my phone tomorrow, and…” he was cut off by three soft knocks on the door. “Who's there?”
+
+“Mr. Jerry…” Daryl sniveled, outside the door, “I can't go to bed.”
+
+Jerry got up and opened the door for Daryl. “Oh, hey kiddo. Is Sharon… I mean mommy awake?”
+
+“No, she went to bed,” he said. “Plus, I want to play more with you.” He looked up at my husband with those big, blue eyes. “Will you play with me, Mr. Jerry?”
+
+My husband turned his head to me, and I gave him a shooing motion and smiled. “Okay, Daryl, I'll play with you.” Daryl grabbed his hand, and the two of them turned the corner to go to his room. I turned my lamp off, and fell asleep.
+
+I woke up to my alarm set for 9:00. I found myself sprawled out on my old bed, my hair frizzled with bedhead. I got up, checked my phone, and brushed my teeth. I used my knuckles to pry the sand from my eye as I walked down the steps. My mom was already awake, watching Daryl play with some of my old toys downstairs in the living room.
+
+“Hey, sweetheart,” my mom said as she gave me a soft hug. No matter how difficult she could be, it was always worth coming by just to hold her after waking up. “Did you sleep well?”
+
+“Yeah. I feel a little groggy, but otherwise.” I looked over at Daryl. I still didn't know what I should do about him. This was definitely a situation where cops should be called. But first, I needed coffee.
+
+I went into the kitchen and grabbed the pot, and poured it into the mug I had made in fifth grade for my mom. I grabbed a plate, and gathered some of the leftover meat and cheese to eat for breakfast. 
+
+“Pew! Pew! Pew!” Daryl echoed from the den. “I'm gonna eat you, Mr. Man! No, no, no, don't eat me! Aahhhh! Aahhhh!”
+
+“You have such a wonderful imagination, Daryl!” my mom cooed.
+
+I walked back into the room and chuckled, combining a small piece of salami and cheese and putting it in my mouth. I felt my belly, and thought how wonderful it would be to be a mother, like how my mom was with me.
+
+“Oh, sweetie! You should know not to eat that; you're pregnant!” She rushed to me and took the plate out of my hand. “I'll make you two pancakes instead of that.”
+
+My mom then busied herself in the kitchen, as I squatted to see what Daryl was playing with. “What are you up to, kiddo?”
+
+“Action figures…” he said, while bashing the commando against the Godzilla, “I think the good guy is losing.”
+
+“Oh? How come the good guy is losing?”
+
+“Good guys don't usually win,” he said without looking up. I grimaced; this kid had clearly been through a lot of trauma. I hope the police could help him find his family, or a grandparent, or someone. I felt sorry for him.
+
+“Pancakes are done!” My mother called. “Bring Daryl in, sweetie!”
+
+“Got it, Mom,” I responded, but Daryl already leapt up to go to the kitchen. “PANCAKES!” he yelled excitedly. 
+
+I sat down at the table, and the three of us began to eat. My mom made them with blueberries; my favorite. I helped myself to that, and a bit of the bacon she had prepared. 
+
+“So, Maryann,” my mother said, “about your pregnancy….”
+
+“Yes?”
+
+“I'm sorry, darling, I'm just worried about you. It's a lot for one woman.”
+
+I scoffed. “What, should I look for a good Catholic man that'll marry an unwed mother?”
+
+“Oh, well, I don't know, dear,” she said. “He doesn't need to be Catholic, just a good, Christian man. Maybe a Lutheran?”
+
+I rolled my eyes. “Like what you did?”
+
+“Maryann Kemp!” she yelled. “You should know how much I struggled to raise you alone! Do not mock me!” She calmed down. “Which is why I think you should consider marriage. At some point. Hopefully soon?”
+
+“Mom, I have my own practice. I'm sure that raising my son won't bankrupt me.”
+
+“I wouldn't be so sure… some parents might think you were one of them DEI's.”
+
+I groaned. “Not everyone is getting their brains rotted by FOX News and AM radio.”
+
+“Still, if I was a new mother, I don't know if I'd trust you with Daryl.” She looked at his soft face, midbite with his pancakes. “He's just so precious to me.”
+
+“Mom, he's not yours.”
+
+She stood up. “Take that back, little girl.”
+
+“That's not your child, mom. You need to get the authorities involved, or something. You can't just own what's basically a kidnapped child.”
+
+“Well, if you feel so strongly about that, Mrs. Kemp, you can leave!”
+
+“Mom, you're 70 years old!” I cried out. “You're not in any position to take care of this child!”
+
+Daryl stopped eating and looked up. He fixed his beautiful blue eyes on my mother. 
+
+“Well, you know what Missy, I don't think you're in any place to talk!” she screamed. “You blacked out and got pregnant, I didn't know my daughter could be such a whore!”
+
+“You know what, Mom! Fuck you!” I said as I stormed off and went to my room. I cried childish tears into my pillow; despite being forty myself, that sounds brought me back to feeling like I was just a little girl. After crying into my pillow, I drifted off into a dreamless sleep.
+
+When I awoke, it was the middle of the afternoon. Pregnancy brain had me all kinds of messed up; I think I had been crying before I went to sleep. It didn't matter though; I'm sure I was just dreaming of one of my more unfortunate patients at my practice. Three soft knocks came from the outside of the room. 
+
+“Ms. Maryann, can I come in?” Daryl asked sweetly. 
+
+“Of course, kiddo.” He opened the door, and threw himself into my arms. “Hehe, hiya, Ms. Maryann!” he giggled.
+
+Daryl was a good kid. I had adopted him when I had gone to this house and he had been living in it, alone. This house belonged to some distant relatives of mine; I think they had moved or died because they aren't here now. I had come back to collect some of my old belongings. 
+
+I grabbed Daryl's hand, and walked him down the stairs; I saw pictures of me and the two unknown relatives… I must have been very young. It makes sense they left their house to me, though, because the only pictures in the house were of this couple and I. They must have really valued me.
+
+“So, Daryl, are you hungry for dinner?”
+
+“No, Ms. Maryann; I'm full!”
+
+“So those pancakes you had were good, huh, kiddo?”
+
+“They were the best! You're the best mommy!”
+
+“I'm so glad!” I gave him a light kiss on the forehead. He was such a cute kid. “So, are you ready to go back to my house?”
+
+“Yeah! Yeah! Yeah!” He shouted excitedly. 
+
+“Okay, Daryl, grab your things, and meet me by the car.” I grabbed my suitcase and put my things in it. There was also a man's suitcase in my room, packed with collared shirts and a nice vest. I guess my relatives were going somewhere before they passed. I emptied it out, and started to load it with childhood memories. 
+
+I packed it into the back of the car, before realizing I'd need a car seat. I saw one in the back of another car on the property, and fitted it in the back of mine. 
+
+“I'm here, mommy!” Daryl said, running towards me at full speed.
+
+“Ooh, ooh, sweetie, be careful, your brother is in here!” I laughed.
+
+“My… brother?” Daryl asked. His face straightened, his azure eyes placed a piercing gaze onto my womb.
+
+I laughed. “Of course, silly! I have so much work to do when I get back. I need to paint his room, I have to…”
+
+“Mommy,” Daryl asked. “Can I play with the baby?”
+
+“Oh. Uh, sure, Daryl.” I said. He placed his tiny, childlike hands on my belly.
+
+We got into the car. I strapped him into his car seat, and I got into the front, and fixed my mirrors.
+
+We drove for a good while, he playing with his action figures, I humming quietly along the barren road. 
+
+After fifteen or so minutes, my son looked into the rear view mirror. His beautiful, sapphire eyes glowing softly. “Mommy?”
+
+“Yes, my love?” I looked back at him.
+
+“What's my name?”
+
+“Oh, silly, it's…” I couldn't remember. I couldn't remember my child's name. That I had birthed, that I had loved, that I had adored, what was his name? What was his name? Oh god, what is wrong with me, was I a failing mother? Had work become too stressful? But then, in a moment of clarity, I said it.
+
+“Your name is Arnold.” I said.
+
+“Okay,” Arnold said. “Thank you mommy!”
+
+“Of course, my love.” I don't know if that was his name. I genuinely couldn't remember it. But… 
+
+…it felt right.
