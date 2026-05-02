@@ -1,66 +1,22 @@
-# I don't know when the kid next door sleeps. I don't think he does.
-I don't even know if this is worth posting but it's been bothering me for weeks and I need to put it somewhere.
+# Eyeless Mr Carter
+I was 10, maybe 12, when this took place. School had just ended for Thanksgiving, and surprisingly, despite the weather reports, the track record for Fall weather, and the words of my own parents, a cold snap had set in over the town and made itself at home. My friend John and I were ecstatic. I was going to be staying over at his house, and as cold as it had gotten, there would be snow on Christmas for sure! John and I were having the time of our lives as we grabbed our bikes from the bike rack outside the school and rode them down the small hill the school sat upon and on towards the town square. 
 
-I moved into my house about eight months ago. Normal street, normal neighborhood, the kind of place where nothing ever really happens. My neighbors the Harmons have a kid named Marcus. He's eight.
+We rode past the barbershop, the soda store, and the many other stores we didn’t care about as kids. There was the department store, the general store, the grocery store, the car shop, the Chinese restaurant, the OTHER department store that used to be a hardware store where a man got badly hurt in an accident, the other general store where people were protesting, and the town hall. 
 
-First time I noticed him he was just standing at his bedroom window watching me bring in groceries. I waved. He didn't wave back. Okay, weird kid, whatever, I forgot about it.
+Then we rode into the neighborhood. We weaved through curved streets and rows of houses until we stopped at an old house on the corner of “Potemkin Ave” and “Johnson St”. It was a large Victorian house. The windows were cracked, and the walls were covered in vines and mildew. We knew whose house it was. Eyeless Mr. Carter. We had heard playground stories about him. None of them were good. I heard from my classmate, Rob, that Mr. Carter was a vampire that feasted on the blood of children, that he looked like Nosferatu, and that he could leap as high as the fence in my yard (I had the biggest fence in town, you see). John and I never believed a word of that, but looking at that old Victorian house inspired us with two things: a need to explore and the need for plunder. John gave me a look and said, “Imagine all the cool stuff that’s in there!” 
 
-Except it kept happening.
+Now, usually, we weren’t the kind of kids to sneak into someone’s house, but there was something about that mansion-esque house that drew us in like a magnet. Too small to be a mansion, but fancier than any home we’d seen before. Clearly Victorian, but with a Grotesque/gothic flair that made it look very spooky and very expensive. So, we put our bikes down and slowly walked towards the house, and right as we got to the ornate concrete steps, we heard a honk from behind us that made us jump with a shout. We spun around to see my father in his old Ford “dually” truck. He made a sharp motion with his hands for us to get in. We tossed our bikes in the truck bed and hopped in the back seat. My father looked back at us in the mirror and said, “What the hell were you thinking?” Which, despite being a question, always meant, “Never do that again!” I looked at the floor, ashamed. My dad let out a sigh and said, “Look, I get you have a sense of adventure, but trespassing is trespassing, you could get arrested, AND that house is condemned! It’s rotting from the inside out.” I decided now would be the perfect time to ask him what happened to Old Man Carter.
 
-Every single day. Morning, afternoon, evening. Always the same window, always standing completely still, just watching whatever I was doing outside. Sometimes I'd catch him watching me through my own window if I left the blinds open. Just standing there with his hands at his sides and his face close to the glass.
+You’ll remember I mentioned that the 2nd department store is where someone had a bad accident. Well, that was Mr. Carter, and it wasn’t an accident. According to my dad, who heard the story from Mr. Carter’s interview in the newspaper 20 years ago, Mr. Carter’s car broke down, so he took it to the car shop, but the car shop was out of the parts he needed, so he went to the hardware store. The clerk there told him the parts were in the back, but he’d have to get them himself because the clerk was busy. Mr. Carter was a prideful, affluent man and hated this peasant work, but with no other choice, he went to the back and found four guys waiting for him. 
 
-I mentioned it to his mom once. She laughed and said he was just curious. I let it go.
+At the time, Mr. Carter was on trial for kidnapping a child. He was supposed to be in jail, but Mr. Carter was a wealthy man, so he paid his bail and bought the best lawyer in the state. Everyone knew he’d get off with just a slap on the wrist. So, these four men decided to take justice into their own hands. My father told me they got into a scuffle, they held him down, grabbed a pair of pliers, and ripped his eyes out. The clerk heard the screaming and looked in the back to see an Eyeless Mr. Carter, a bloody pair of pliers, and his bloody eyeballs on the ground. He called 911, and an ambulance arrived to take Mr. Carter to St. Basil Hospital. The case against Mr. Carter was dropped due to a lack of evidence. Mr. Carter threatened to take the men who blinded him to court, but he forgot about that once his case was dropped. And where is Mr. Carter today? No one knows. Most people think he skipped town. Others say he died in a car crash. But the consensus is that he’s no longer here. God, how I wish they were right. 
 
-The part I can't explain is the nights.
+After my dad dropped me and John off at his house, we played, ate dinner, watched action movies like Robocop and Terminator 2, and then we went off to bed. But we couldn’t sleep. Have you ever been in a situation where you need to sleep, but your mind and body are still wide awake, like you could get up, do jumping jacks, and read a whole novel with no change in energy? That was us. John shot up from his bed and said, “You know what, neither of us can sleep, so let’s do one last cool thing for the day!” I was terrified by what he said next: “Let’s sneak out to Mr. Carter’s house!” I vehemently denied his request, but between his constant pestering and my complete lack of exhaustion, I relented. We snuck out his window into the yard, grabbed our bikes, and rode them down to the Victorian house of Eyeless Mr. Carter.
 
-I work from home and I stay up late a lot. Two, three, four in the morning sometimes. A few weeks ago I was at my desk around 2am and I glanced over at their house without thinking.
+We stopped at the side of the house and left our bikes by a cellar door, which was noticeably unlocked, but we had no intention of going to the basement. We made our way to the front and up the large, ornate steps to the door. Much like the cellar door, this, too, was unlocked. We snuck inside and turned on our flashlight. The inside was surprisingly clean. That is to say, it wasn’t completely trashed with rotten floorboards and collapsed walls. The wooden floors and walls were well-preserved and strong; everything was just caked in dust and a bit of grime. We wandered from the entryway to the living room, full of green carpet, velvet green couches, an expensive (for the time) TV set, and wooden tables of ornate shapes. And there in the corner was a cabinet with a shiny gold label that said “Private”; this looked to be our prize. We crept our way over to the small cabinet and crouched down to try to open it. We jiggled the door, but it was locked. We looked all over the door and found a keyhole in the top right corner. We looked under the cabinet, and sure as day, there was a key! I grabbed it and handed it to John, who put it in the keyhole and then…
 
-Marcus was at the window.
+There was a sound like a metal bat hitting a baseball. John shrieked, and I turned to look at him. I saw him grab the back of his head as we quickly spun around. What we saw, I will never forget. It was Eyeless Mr. Carter in the flesh. He was a lanky old man in his 70s in a silk white button-up shirt covered in mystery stains and black dress pants. He had long, black hair and the skin complexion of a dried sponge painted a sickly, greenish beige. His wrinkly fingers were covered in jeweled gold rings and tipped with long yellow fingernails that clutched a cane with an ornate, golden ball handle. He looked at us with a horrific smile of crooked, yellow teeth lined with cavities. And those eyes, or lack thereof. Lidless, empty sockets, filled with some kind of yellow resin, like candle wax. We all stood there for about three seconds before Eyeless Mr. Carter bared his rotting teeth like a snarling beast and readied to swing his cane again. He swung, but John managed to duck just as the cane swooped over his head. We then stood up and booked it for the front door, but he caught us both by our shirt collars and threw us back. We scrambled to our feet and ran in the opposite direction. We would’ve run for the door, but he was blocking the way. We ran through the halls as fast as we could. We heard Mr. Carter chase us. Those heavy, thudding footsteps were seemingly always a few feet behind us. I could hear him giggling to himself as he pretended to pant. He was mocking us. We ran and ran! I heard Mr. Carter cackle like a hyena. No, not like a hyena, a hyena laughs to communicate with its comrades. Mr. Carter was cackling because he genuinely took pleasure in chasing us like rats. 
 
-Standing in the dark. Watching my house.
+Then we saw something that could help us, the basement! We ran down the steps, flung open the door, and slammed it shut behind us! As we locked the door, we realized something: the smell. It smelled like a dead animal in there. And that’s when we saw it, across the room was a pile of rusty chains, atop which I saw a single skull as big as my own. The accusations were true. Mr. Carter did stalk children. He did kidnap a kid. And I was standing 8 feet from the undeniable evidence of his guilt. At that moment, we heard the door behind us rattle and shake with primal fury. We remembered the cellar door. Scanning the room around us, we came to the horrible reality that the door was behind that awful pile of chains and bones. We could hear the basement door creaking under Mr. Carter’s weight as he attempted to break it open. Nauseous with fear, we climbed over the dead child. I can still hear the sickening crunch when a femur buckled under my foot. Once we were over, we bolted out of the cellar door and into the liberating darkness of the outside. We picked up our bikes and rode off home.
 
-I told myself he snuck out of bed and his parents didn't know. Kids do that. I closed my blinds.
-
-But then I started checking.
-
-3am. He's there.
-
-1:30am. There.
-
-4am on a random Tuesday. There.
-
-Every single time. Didn't matter what time it was. I'd look over and he'd already be looking back.
-
-I genuinely don't know when this kid sleeps.
-
-Last week I saw him sitting outside on his front step in the morning which almost never happens. I stopped to talk to him. Don't really know why, I think I just wanted to see what he'd say.
-
-I said hey Marcus, how's it going. He said fine.
-
-Then he said you were up really late last night.
-
-I said yeah I have trouble sleeping sometimes.
-
-He nodded and then said you kept going to the kitchen and standing in the hallway and then you went out to your back porch for a while before you came back in.
-
-I just stared at him.
-
-I told him I was at my desk the whole night. I never went to the kitchen. I never stood in the hallway. And I definitely did not go to my back porch because it was freezing and I had no reason to.
-
-He looked at me with this completely flat expression and said yeah you did, I saw you.
-
-My back porch faces the complete opposite direction from his window.
-
-There is literally no way he could have seen it from his room.
-
-I didn't say anything. I just took my trash out and went inside.
-
-That was a week ago and I keep turning it over in my head and nothing makes sense.
-
-Last night I set my phone up to record the hallway while I slept.
-
-I haven't watched it yet.
-
-Honestly I'm not sure I want to.
-
-will update if I do
+That night, we slept maybe five or six hours, at least five. The next day was uneventful. We ate breakfast at the Waffle House, I went back home, ate lunch, read a book, ate dinner, and went to bed. All in all, a slightly above-average day ruined by that midnight adventure in that godforsaken house. If only I had cherished it more, because that was the last time I saw John. He went missing the day after. I tried telling my parents and his parents what had happened that fateful night and what obviously had transpired, but they said I was being hysterical. The police, however, took my concerns more seriously. They searched Mr. Carter’s house and found no trace of him or John. But they did find the pile of chains and the child's skeleton in the basement. The police said I must’ve been so traumatized by the sight of the corpse that I imagined Mr. Carter. But I knew the truth. The truth that visited me in the night. The truth of John’s fate. The truth of seeing Eyeless Mr. Carter out my window, in my backyard, among the trees. Staring into my soul with those wax-covered, empty sockets. I still see him sometimes in the shadow of my closet, peeking ever so slightly so that I may see him. Even without eyes, he is always watching.
