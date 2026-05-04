@@ -1,52 +1,504 @@
-# Secrets about Dennis and Carlos
-Hey. I'm sure your wondering why I am sharing this. Well... To tell you the truth. I think there is something going on. I live in Los Angeles. Halloween is usual finally to get sweets or partying. But I'm always cautious about this day. I read stories about creepy things happening on Halloween.
+# My Older Brother Works at a Radio Station… He’s Been Missing Ever Since
+I didn’t go to the police right away.
 
-I seen the post about the Halloween massacre. You know? The one about the teacher Ms. Blossom being a vampire? 
+People always ask that first, like it’s the obvious thing. Like there’s a clean order to these kinds of situations—step one, step two, step three. But it didn’t feel like that at the time. It didn’t feel like something the police could fix.
 
-[Here](https://www.reddit.com/r/nosleep/comments/qivhq6/this_halloween_was_a_night_to_remember/)
+It felt… wrong in a quieter way.
 
-I'm actually a student from the same school. I Know who shared that story since it wasn't Dennis or Carlos. And I won't say who I am.
+Like something had already happened long before anyone noticed he was gone.
 
-Dennis and Carlos are an unusual duo in my opinion. Dennis is cold, heartless, horrible luck with the ladies, fat, ugly(mostly people opinion and his own) and doesn't give a damn about ruining people's lives. Carlos on the other hand is a kind, mannered, thoughtful, helpful, passion kind of guy. So knowing about the story really tore my opinion about Carlos.
+My brother, Daichi, wasn’t the type to disappear.
 
-The cheerleader beauty, Brenda, always badmouth me. She was really the mean girl. Toyed with my feelings. Hell! Set me up in a blind date with a homeless man! WTF! And the only good thing she says about me is my dick size. Stated "it" doesn't deserve to be part of me. Why am I telling you about her? Well. Let me tell you why.
+He wasn’t reckless. He didn’t get into fights. He didn’t have debts or problems that I knew of. If anything, he was predictable to a fault. Same routine, same habits, same late-night job at that radio station nobody really listened to unless they couldn’t sleep.
 
-Brenda apparently avoids Dennis a lot. In the first of the semester, she ruined him. Dennis was the laughing stock. However, after that week. Brenda was scared. Dennis must've said something to Brenda that made her shut up. Then we heard about her being hospitalized for aggressive rape assault. We believed Dennis was the one who did it. But that turned out to be false as the the group who were the real culprits were arrested the following week. Brenda was still a bitch but avoided Dennis from that point on.
+He liked it that way.
 
-Here is where Carlos comes in. Brenda was more neutral with Carlos. She didn't try anything with Carlos because she was aware of him being friends with Dennis. Plus, Carlos was a good guy. I think Brenda has a little crush on him. Unsure. But she considered Carlos a friend. Well... That was until she avoided him as well. Brenda's friends question why she was avoiding Carlos. Brenda did not respond to their questions. They even asked Carlos if he did anything to Brenda. Carlos denied hurting Brenda and swore it to god. They believed him because he never seemed to be the type of person to hurt anyone. (Before I learned about it)
+Said the night shift suited him better. Said people were more honest when they were tired.
 
-Three months before the Halloween massacre. I thought I was alone in the hallway and really needed to use the restroom. The boys bathroom was locked which was such bullshit. But the girls restroom was unlock. Also, bullshit. So I made sure no one was around before going in. I took a dump and finished up. It was then someone entered. I was fucked! I lift my feet up, making it seem no one was in the stall. After three minutes, that's when I heard Brenda voice. She was mumbling something until I heard the mirror crack.
+I used to think he just meant callers opening up about their lives.
 
-"Dennis! I hate you so much! Why won't you just die! Ugh! Ms. Blossom couldn't keep you away. Who are you? What are you?" Brenda kept saying.
+Now I’m not so sure.
 
-Eventually, I heard her looking through her bag.
+The last normal conversation we had was three weeks ago.
 
-"Carlos. I couldn't believe you. I though you were a nice guy. But to learn that you and Dennis help each other. I can't stand it." Brenda said.
+I remember it because it wasn’t important.
 
-Brenda began to chant something. I was listening. I play a lot of games. So I assumed she was doing witchcraft. After a minute, Brenda scream as punched the wall. Boy! I wished she left after that. But nope! My ass just had to fart.
+That’s the part that keeps replaying in my head—not some dramatic goodbye, not anything meaningful. Just something small and forgettable that somehow became the last thing.
 
-"Who's there?" Brenda asks.
+He was standing in the kitchen, leaning against the counter, scrolling through his phone. I asked him if he wanted me to save him some dinner.
 
-Welp! I pulled my pants up. Flushed the toilet and walked out of the stall. Brenda looked at me with disgusted but was surprised she didn't slap me. I noticed two black voodoo dolls on the sink.
+He didn’t answer right away.
 
-"What are those?" I asked, knowing the answer.
+That wasn’t unusual. He had a habit of getting distracted mid-conversation.
 
-"Voodoo dolls." Brenda respond.
+But then he said, “Have you ever heard someone say your name… when no one’s there?”
 
-"Well. Not to make it seem wrong but why are they black?" I asked.
+I remember laughing a little.
 
-"They weren't always black. They become black after I fail to curse who the voodoo dolls represent." Brenda says as she threw them away.
+“Like what, ghosts?” I said.
 
-"Who?" I questioned.
+He didn’t laugh back.
 
-"Dennis and Carlos." Brenda responded.
+“Not like that,” he said. “I mean… it sounds exactly like someone you know. Same voice. Same way of talking.”
 
-"Why them?" I asked.
+I shrugged. “Probably just your brain messing with you. You work nights. That stuff happens.”
 
-Brenda left the restroom after that. I quickly washed my hands and left the restroom. Surprise! Brenda was waiting for me. Brenda began to explain she was a witch. Telling me about Ms. Blossom being a Vampire. That she stays out of Ms. Blossom way as long the teacher stays out of her way. I don't know why Brenda was telling me this. But she did say she won't curse me as long I kept my mouth shut. So I did. Brenda and I began to meet up in secret. Talking about the numerous incidents that transpired. The creepy janitor. The monster in the boys locker room. The werewolves that mate at the football field. Ms. Blossom. The alien girl in my homeroom. The succubus I encountered during my time in the hospital. The mummy that Brenda met in her basement. The spirits of the haunted house across the street where Brenda lives. But why share these stories? Because each one of them, Dennis or Carlos or both were there. Brenda avoided Dennis because he predicted the rape event and was right. Brenda said Dennis gave off a dark "aura". The reason why she avoided Carlos was because she saw him at the woods where evil spirits roam around. She was going to save him until she told me why she stayed put. Apparently, a two-headed shadow dragon appeared and began to eat the evil spirits. Brenda watched the whole thing. She even stated that the strongest evil spirit was teared apart as if it was nothing.
+He nodded slowly, like he wanted to agree, but couldn’t quite convince himself.
 
-And it brings us to Halloween. After what happened with Ms. Blossom and the vampires. Brenda and I met up. We talked about it. She said that she went to visit the survivor. Casted a spell to make him talk. And told her everything. Brenda said that Dennis and Carlos weren't at the party yet were consider one of the three survivors. Me and Brenda concluded that Dennis and Carlos are supernatural killers. Even till now, we have no idea what those shadow things are. Adding to that, a mysterious symbol. Dennis and Carlos became my enemies after the creepy janitor. Brenda and I are a team.
+“…yeah,” he said. “Probably.”
 
-Her enemy of my enemy.
+Then he grabbed his jacket and left for work.
 
-Dennis. Carlos. I know one day you will read this. Just know this. Brenda and I will kill you both. We will expose the truth. We will reveal your secrets. Whatever this "True Darkness" is? We will find out.
+That was the last time I saw him in person.
+
+He didn’t come home the next morning.
+
+At first, I didn’t think much of it.
+
+Sometimes he stayed late. Sometimes he crashed at the station if things got busy or if he was too tired to drive. It wasn’t common, but it wasn’t impossible either.
+
+By the afternoon, I sent him a message.
+
+No reply.
+
+By evening, I called him.
+
+Straight to voicemail.
+
+That’s when something started to feel off—not panic, not yet, just… a small shift. Like noticing a sound in a room that wasn’t there before.
+
+By the second day, that feeling got worse.
+
+By the third, I went to the station.
+
+The building looked exactly how I remembered it, but being there alone made it feel different.
+
+It sat too far from everything else, like it had been placed there and then forgotten. The kind of place you’d drive past without realizing, unless you were looking for it.
+
+The sign outside flickered weakly. Not completely broken, just… struggling.
+
+I stood there for a while before going in.
+
+I don’t know why. Something about the place made me hesitate.
+
+Like I was about to walk into something I wouldn’t understand.
+
+The manager was already at the front desk when I entered.
+
+He looked tired. Not just in the usual way—there was something heavier about it, like he hadn’t been sleeping properly.
+
+“You’re Daichi’s brother,” he said.
+
+It wasn’t a question.
+
+“Yeah. I’ve been trying to reach him. Is he here?”
+
+There was a pause.
+
+Just a second.
+
+But it was enough.
+
+“…he hasn’t been in for three days,” the manager said.
+
+I stared at him.
+
+“That doesn’t make sense. He had a shift.”
+
+“He was here,” he said. “That night. He was on air.”
+
+“And then?”
+
+The manager glanced toward the hallway behind him.
+
+“…and then he wasn’t.”
+
+I didn’t like that answer.
+
+Not because it didn’t make sense—but because it felt like he wasn’t even trying to make it make sense.
+
+“What do you mean he wasn’t?” I asked. “Did he leave? Did someone see him go?”
+
+“No,” he said quietly. “That’s the problem.”
+
+He showed me the studio.
+
+Nothing looked out of place.
+
+That was the worst part.
+
+If something violent had happened, if there had been signs of a struggle, at least that would have been something real. Something I could understand.
+
+But everything looked… paused.
+
+Like a moment that never finished.
+
+His headphones were still on the desk. His chair slightly pushed back. A coffee cup half-full, like he had planned to come back to it.
+
+There was no sign that anything had gone wrong.
+
+Only the fact that he wasn’t there.
+
+“I want to hear what happened,” I said.
+
+The manager didn’t move.
+
+“…you don’t,” he said.
+
+“I do.”
+
+He looked at me for a long time, then sighed.
+
+“…fine.”
+
+The recording started normally.
+
+Music. Faint background noise. Then Daichi’s voice, steady and familiar.
+
+“Good evening. You’re listening to Night Signal.”
+
+Hearing him again hit harder than I expected.
+
+It didn’t feel like a recording. It felt like he was just in the next room.
+
+“…we have a story sent in tonight,” he said. “From an anonymous listener.”
+
+That made me frown.
+
+He didn’t like anonymous submissions. He told me that more than once.
+
+But he kept going.
+
+“…they asked me to read it exactly as written.”
+
+The story itself wasn’t anything special at first.
+
+A person receiving phone calls at the same time every night. No one speaking. Just breathing.
+
+I remember thinking it sounded like something you’d read online late at night when you couldn’t sleep.
+
+Then the tone shifted.
+
+“…on the seventh night,” Daichi read, “…the caller finally spoke.”
+
+His voice dropped slightly.
+
+“…it said, ‘You’ve been listening for so long… why won’t you answer?’”
+
+Something about the way he said it felt off.
+
+Not dramatic. Not exaggerated.
+
+Just… too natural.
+
+The story ended with the person answering the call and realizing the voice on the other end was their own.
+
+Daichi let out a small laugh.
+
+“…that was unsettling,” he said.
+
+But it didn’t sound like he meant it.
+
+Then he said something that made my stomach drop.
+
+“…we have one more story tonight.”
+
+That wasn’t planned.
+
+I knew it wasn’t.
+
+“This one also comes from an anonymous sender,” he said.
+
+There was a pause before he continued.
+
+Long enough to notice.
+
+“…they didn’t leave a message. Just a file.”
+
+His voice changed after that.
+
+Not completely, but enough that I noticed it immediately.
+
+Like he was focusing on something else while reading.
+
+Or listening to something I couldn’t hear.
+
+“…there was a radio host,” he read.
+
+I felt my chest tighten.
+
+“…who read stories sent to him late at night.”
+
+The audio began to distort slightly.
+
+“…one day, he received a story that wasn’t meant to be heard.”
+
+There was a faint sound behind his voice.
+
+I didn’t catch it at first.
+
+Then I realized.
+
+Breathing.
+
+“…but he read it anyway,” Daichi continued.
+
+“…and something listened back.”
+
+I glanced at the manager.
+
+He didn’t react.
+
+Like he had already heard this too many times.
+
+“…after that night, the host began receiving more stories,” Daichi said.
+
+The breathing got louder.
+
+“…each one stranger than the last.”
+
+The audio crackled.
+
+For a moment, it sounded like there were two voices speaking at once.
+
+“…until the stories stopped being stories…”
+
+The breathing was right next to the microphone now.
+
+“…and became instructions.”
+
+The recording cut.
+
+I waited.
+
+Nothing.
+
+“That’s it?” I asked.
+
+The manager shook his head.
+
+“There’s one more part,” he said.
+
+Then he played it.
+
+Static filled the room.
+
+Not light static. Thick, heavy, like something pressing against the speakers.
+
+Then—
+
+“…hello?”
+
+I felt something in my chest tighten.
+
+That voice didn’t belong there.
+
+“…are you still listening?”
+
+It sounded close.
+
+Too close.
+
+“…you’ve been listening so well.”
+
+The manager stopped the recording.
+
+Just like that.
+
+“We don’t play that part anymore,” he said.
+
+I didn’t argue.
+
+I didn’t need to.
+
+I had already heard enough.
+
+That night, I went to Daichi’s apartment.
+
+I don’t know what I expected to find.
+
+Something obvious, maybe.
+
+A note. A message. Anything that explained where he went.
+
+But the apartment looked normal.
+
+Too normal.
+
+I searched anyway.
+
+Drawers, shelves, under the bed.
+
+Nothing.
+
+Then I checked the old radio by his bed.
+
+He always kept it unplugged.
+
+I noticed that before, but I never thought much about it.
+
+This time, I turned it over.
+
+And that’s when I found the USB taped underneath it.
+
+I just stood there for a while, holding it.
+
+I don’t know why.
+
+Part of me already knew I shouldn’t plug it in.
+
+But I did.
+
+The files were all audio recordings.
+
+His voice.
+
+The first one sounded tired.
+
+“…I don’t know where they’re coming from,” he said.
+
+There was a pause.
+
+“…they don’t show up in the system. No sender. No time stamp.”
+
+A quiet breath.
+
+“…but they keep appearing.”
+
+The second file was worse.
+
+“…I tried not reading them,” he said.
+
+“…but it didn’t stop.”
+
+Silence.
+
+“…it just changed.”
+
+The third one—
+
+I almost didn’t play it.
+
+“…if anyone finds this,” he said.
+
+His voice sounded thinner. Distant.
+
+“…don’t listen to the recordings.”
+
+A pause.
+
+Longer this time.
+
+“…don’t read them.”
+
+There was a sound behind him.
+
+Soft.
+
+Breathing.
+
+“…and if you hear it—”
+
+The file cut off.
+
+That should have been enough.
+
+That should have been the point where I stopped.
+
+But that night, at exactly 2:17 AM—
+
+my computer turned on by itself.
+
+The screen flickered.
+
+A new file appeared.
+
+No name.
+
+No date.
+
+I stared at it for a long time.
+
+I knew what it was.
+
+I knew I shouldn’t.
+
+But if I stopped there—
+
+then what?
+
+My brother was gone.
+
+No explanation.
+
+No trace.
+
+Just… this.
+
+So I clicked it.
+
+For a moment, there was nothing.
+
+Then—
+
+“…finally,” a voice said.
+
+It wasn’t my brother.
+
+“…you’re listening.”
+
+I didn’t move.
+
+“…he listened too,” it continued.
+
+My throat felt dry.
+
+“…he followed the stories.”
+
+A pause.
+
+“…you want to find him, don’t you?”
+
+I don’t remember deciding to keep listening.
+
+I just… did.
+
+Because somewhere in all of this—
+
+in these recordings—
+
+in these stories—
+
+there’s something that knows where he is.
+
+And I don’t think it’s going to tell me directly.
+
+I think it wants me to follow.
+
+The same way he did.
+
+I’ve started writing everything down.
+
+Every detail. Every word.
+
+Trying to piece together where it leads.
+
+I don’t know if I’m getting closer.
+
+Or if I’m just going deeper into something I don’t understand.
+
+But I do know this—
+
+the stories are still coming.
+
+And each one feels less like something I’m listening to—
+
+and more like something that’s slowly… including me.
+
+If I stop writing, I think I’ll lose track of what’s real.
+
+And if I lose that—
+
+I don’t think I’ll be able to tell....
+
+if this is real or it's just a bad dream..
