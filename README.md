@@ -1,504 +1,306 @@
-# My Older Brother Works at a Radio Station… He’s Been Missing Ever Since
-I didn’t go to the police right away.
+# Echos in the Gorge
+At first, I was absolutely pumped about our trip to the gorge.
 
-People always ask that first, like it’s the obvious thing. Like there’s a clean order to these kinds of situations—step one, step two, step three. But it didn’t feel like that at the time. It didn’t feel like something the police could fix.
+No, I’m not gonna tell you which one. I know it’s kind of reckless not to, but this is the internet. Someone will *immediately* go there and try it.
 
-It felt… wrong in a quieter way.
+It started off like every one of our other annual camping trips. Kyle and Meghan were making eyes at each other, and the twins were struggling to get their tent set up. George and Garret were not ones for reading instructions, and it was on full display.
 
-Like something had already happened long before anyone noticed he was gone.
+“Jack, can you give us a hand? This damn thing is impossible!”
 
-My brother, Daichi, wasn’t the type to disappear.
+I rolled my eyes. 
 
-He wasn’t reckless. He didn’t get into fights. He didn’t have debts or problems that I knew of. If anything, he was predictable to a fault. Same routine, same habits, same late-night job at that radio station nobody really listened to unless they couldn’t sleep.
+“Yeah, yeah, I’m coming,” I said.
 
-He liked it that way.
+It didn’t take me long to find the right poles and get their tent together. The whole time, I kept glancing at Vicky, as she meticulously organized our tent. While the rest of us had been friends since college, this was her first year in the group. Ever since we met in our rock climbing club, I wanted to ask her out. It took about three months, but I finally worked up the guts to do it. We made it official about a month later.
 
-Said the night shift suited him better. Said people were more honest when they were tired.
+That was about six months ago, so the group had no issue with me inviting her along this year. 
 
-I used to think he just meant callers opening up about their lives.
+“Thanks, man!” said George, sticking out his fist.
 
-Now I’m not so sure.
+“No problem, dude,” I replied, returning the fist bump. “One of these days, you two clowns will get it all by yourselves.”
 
-The last normal conversation we had was three weeks ago.
+George laughed, and Garret scowled.
 
-I remember it because it wasn’t important.
+“Well, if *someone* would actually listen, we might’ve finished half an hour ago. And are you sure this is a good spot? I think I heard a rattlesnake earlier….”
 
-That’s the part that keeps replaying in my head—not some dramatic goodbye, not anything meaningful. Just something small and forgettable that somehow became the last thing.
+“Hey, we got it up in the end!” said George, waving his hand dismissively. “And I ain’t worried about snakes. If any of ‘em show up, we got our resident sharpshooter here!*”*
 
-He was standing in the kitchen, leaning against the counter, scrolling through his phone. I asked him if he wanted me to save him some dinner.
+His eyes quickly turned to Vicky, before shooting me a wink. Leave it to George to play wingman for someone already dating their crush. I loved that man.
 
-He didn’t answer right away.
+“Well, sor-RY for caring about your wellbeing,” Garret muttered.
 
-That wasn’t unusual. He had a habit of getting distracted mid-conversation.
+“Soooooo,” Meghan interrupted. “What’s for dinner?”
 
-But then he said, “Have you ever heard someone say your name… when no one’s there?”
+“Venison burgers,” said Kyle excitedly, clapping his hands together and rubbing them. He had abandoned goals of a business degree halfway through to pursue culinary arts. “I’ve been dying to try this new recipe I’ve been working on!”
 
-I remember laughing a little.
+“Good to know I get to be a guinea pig for my own deer,” Garret muttered. 
 
-“Like what, ghosts?” I said.
+George shot him a look.
 
-He didn’t laugh back.
+“Well, I think it sounds great!” said Vicky. “I can’t wait! Thanks, Kyle.”
 
-“Not like that,” he said. “I mean… it sounds exactly like someone you know. Same voice. Same way of talking.”
+“Yeah,” I said with a smile. “Let’s get that fire going!”
 
-I shrugged. “Probably just your brain messing with you. You work nights. That stuff happens.”
+“Hell, yeah,” said George, standing up and glancing at his brother. “C’mon, asshole; let’s go get some wood.”
 
-He nodded slowly, like he wanted to agree, but couldn’t quite convince himself.
+Dinner was *fantastic.* The food turned out incredible. Juicy burgers, grilled corncobs, and homemade potato salad, washed down with good beer. The conversations were as fun as they had been on any other trip. Maybe even better. Scratch that, it was *definitely* better. Vicky was a little shy, but she held her own as if she had been with the group from the beginning. She adjusted her blanket and leaned against me as we sat by the dying fire. I looked up at the starry night sky.
 
-“…yeah,” he said. “Probably.”
+*It doesn’t get any better than this,* I thought with a smile. 
 
-Then he grabbed his jacket and left for work.
+“Well,” said George, slapping his knees and standing up. “I think it’s time we turn in.” Garret grunted in agreement.
 
-That was the last time I saw him in person.
+“Yeah, us too,” said Meghan, as she and Kyle exchanged an excited look. 
 
-He didn’t come home the next morning.
+“G’night, guys,” I said. “We won’t be far behind. I just wanna show Vicky something first.”
 
-At first, I didn’t think much of it.
+“Cool,” Kyle chimed in. “Just don’t be late for breakfast! I’ve got something special planned!”
 
-Sometimes he stayed late. Sometimes he crashed at the station if things got busy or if he was too tired to drive. It wasn’t common, but it wasn’t impossible either.
+One by one, our friends entered their tents and shut off their flashlights. I looked down at Vicky. She smiled back at me. I could tell she wasn’t quite ready to leave, either.
 
-By the afternoon, I sent him a message.
+“What was it you wanted to show me, Jack?”
 
-No reply.
+“It’s nothing crazy,” I said. “But it’s definitely something you’ll wanna see.”
 
-By evening, I called him.
+I nudged her gently, and we both stood up.
 
-Straight to voicemail.
+“Right this way.”
 
-That’s when something started to feel off—not panic, not yet, just… a small shift. Like noticing a sound in a room that wasn’t there before.
+Hand in hand, we moved a little further down the belly of the gorge, following the small stream, towards a site I knew well. The ravine narrowed in this area, with two sheer walls around a hundred feet high forming a bottleneck.
 
-By the second day, that feeling got worse.
+“Wow,” Vicky breathed. “These are-”
 
-By the third, I went to the station.
+“Perfect for climbing?” I finished for her.
 
-The building looked exactly how I remembered it, but being there alone made it feel different.
+“Yeah!”
 
-It sat too far from everything else, like it had been placed there and then forgotten. The kind of place you’d drive past without realizing, unless you were looking for it.
+“I’ve never scaled them, but I always wanted to.” I squeezed her hand gently. “What do you say we come back sometime, babe? Just the two of us and our climbing gear.”
 
-The sign outside flickered weakly. Not completely broken, just… struggling.
+Her face lit up. She truly looked stunning. The moonlight gave her long blonde ponytail a shine to match her joyous expression. I felt like the luckiest guy alive.
 
-I stood there for a while before going in.
+“Absolutely!” she replied. “I would love that!”
 
-I don’t know why. Something about the place made me hesitate.
+“We will, then.”
 
-Like I was about to walk into something I wouldn’t understand.
+She kissed me. I noticed a shiver as she pulled away.
 
-The manager was already at the front desk when I entered.
+“Yeah, I know,” I said. “It’s getting cold. Let’s head back.”
 
-He looked tired. Not just in the usual way—there was something heavier about it, like he hadn’t been sleeping properly.
+As we turned back, I remembered another neat thing about this spot.
 
-“You’re Daichi’s brother,” he said.
+“One sec. Check this out.”
 
-It wasn’t a question.
+I pivoted back towards the cliffs.
 
-“Yeah. I’ve been trying to reach him. Is he here?”
+“*HelllllllllllllooOooOoo!*” I called out, startling Vicky.
 
-There was a pause.
+“Helllll**l**llll**l**llooOooO**o**o,” my voice reverberated through the gorge.
 
-Just a second.
+“The echos here are amazing in this spot,” I explained.
 
-But it was enough.
+She shook her head.
 
-“…he hasn’t been in for three days,” the manager said.
+“Let’s do this tomorrow, Jack,” she said with a yawn.
 
-I stared at him.
+I nodded.
 
-“That doesn’t make sense. He had a shift.”
+“*Good niiiiiight!”* I said loudly as we took our first steps back towards camp.
 
-“He was here,” he said. “That night. He was on air.”
+“Go**O**d nii**iii**ight.”
 
-“And then?”
+My smile faded. I couldn’t put my finger on what it was about the sound that unnerved me, but something just seemed… *off.*
 
-The manager glanced toward the hallway behind him.
+A glance at Vicky confirmed that I wasn’t the only one who felt that sense of unease.
 
-“…and then he wasn’t.”
+We returned to camp at a quicker pace than we had left it, but once the embers of the dead fire were in sight, my body relaxed itself. By the time we were making out in our tent, the feeling of dread had left us completely.
 
-I didn’t like that answer.
+I wish it hadn’t. I should have trusted my gut and left that damn canyon then and there.
 
-Not because it didn’t make sense—but because it felt like he wasn’t even trying to make it make sense.
+As we kissed, the tent beside us rumbled with George’s snoring.
 
-“What do you mean he wasn’t?” I asked. “Did he leave? Did someone see him go?”
+*Glad I remembered the earplugs,* I thought to myself.
 
-“No,” he said quietly. “That’s the problem.”
+Then came the sound of their zipper. I heard Garret emerging, grumbling under his breath about his brother. Clearly, he had forgotten to pack plugs of his own. The sound of his footsteps soon drew quiet as he made his way into the night. 
 
-He showed me the studio.
+I turned my attention back to Vicky
 
-Nothing looked out of place.
+“What the fuck?!” Garret shouted from somewhere outside the camp.
 
-That was the worst part.
+***BANG BANG.***
 
-If something violent had happened, if there had been signs of a struggle, at least that would have been something real. Something I could understand.
+The gunshots woke everyone immediately.
 
-But everything looked… paused.
+Before any of us could react, Garret called out to us.
 
-Like a moment that never finished.
+“Sor**r**y. Heard a rat**t**lesnake.”
 
-His headphones were still on the desk. His chair slightly pushed back. A coffee cup half-full, like he had planned to come back to it.
+“God damn it, I’m gonna kill you!” George yelled from the open tent. “Don’t scare me like that!”
 
-There was no sign that anything had gone wrong.
+“Sor**r**y,” Garret repeated.
 
-Only the fact that he wasn’t there.
+My ears pricked up at the sound. Garret sounded strangely calm. I reached for the zipper, ready to investigate further, but something stopped me. The footsteps returned, trudging further from the camp. There was a shuffling sound along with them now, as if he had started dragging his feet with each step.
 
-“I want to hear what happened,” I said.
+“Dude, where are you going?” Kyle called out. There was no reply.
 
-The manager didn’t move.
+“Should we… should we check on him?” Vicky asked nervously.
 
-“…you don’t,” he said.
+“Well *I’m* not going to,” came George’s voice. “He’s probably hanging out over there because he knows I’m pissed.”
 
-“I do.”
+“I’ll go,” I said, grabbing my flashlight. “Something doesn’t seem right, man.”
 
-He looked at me for a long time, then sighed.
+I figured I would walk less than a hundred feet, find Garret, talk him down and look brave in front of Vicky. Everybody wins.
 
-“…fine.”
+But I didn’t find him. 
 
-The recording started normally.
-
-Music. Faint background noise. Then Daichi’s voice, steady and familiar.
-
-“Good evening. You’re listening to Night Signal.”
-
-Hearing him again hit harder than I expected.
-
-It didn’t feel like a recording. It felt like he was just in the next room.
-
-“…we have a story sent in tonight,” he said. “From an anonymous listener.”
-
-That made me frown.
-
-He didn’t like anonymous submissions. He told me that more than once.
-
-But he kept going.
-
-“…they asked me to read it exactly as written.”
-
-The story itself wasn’t anything special at first.
-
-A person receiving phone calls at the same time every night. No one speaking. Just breathing.
-
-I remember thinking it sounded like something you’d read online late at night when you couldn’t sleep.
-
-Then the tone shifted.
-
-“…on the seventh night,” Daichi read, “…the caller finally spoke.”
-
-His voice dropped slightly.
-
-“…it said, ‘You’ve been listening for so long… why won’t you answer?’”
-
-Something about the way he said it felt off.
-
-Not dramatic. Not exaggerated.
-
-Just… too natural.
-
-The story ended with the person answering the call and realizing the voice on the other end was their own.
-
-Daichi let out a small laugh.
-
-“…that was unsettling,” he said.
-
-But it didn’t sound like he meant it.
-
-Then he said something that made my stomach drop.
-
-“…we have one more story tonight.”
-
-That wasn’t planned.
-
-I knew it wasn’t.
-
-“This one also comes from an anonymous sender,” he said.
-
-There was a pause before he continued.
-
-Long enough to notice.
-
-“…they didn’t leave a message. Just a file.”
-
-His voice changed after that.
-
-Not completely, but enough that I noticed it immediately.
-
-Like he was focusing on something else while reading.
-
-Or listening to something I couldn’t hear.
-
-“…there was a radio host,” he read.
-
-I felt my chest tighten.
-
-“…who read stories sent to him late at night.”
-
-The audio began to distort slightly.
-
-“…one day, he received a story that wasn’t meant to be heard.”
-
-There was a faint sound behind his voice.
-
-I didn’t catch it at first.
-
-Then I realized.
-
-Breathing.
-
-“…but he read it anyway,” Daichi continued.
-
-“…and something listened back.”
-
-I glanced at the manager.
-
-He didn’t react.
-
-Like he had already heard this too many times.
-
-“…after that night, the host began receiving more stories,” Daichi said.
-
-The breathing got louder.
-
-“…each one stranger than the last.”
-
-The audio crackled.
-
-For a moment, it sounded like there were two voices speaking at once.
-
-“…until the stories stopped being stories…”
-
-The breathing was right next to the microphone now.
-
-“…and became instructions.”
-
-The recording cut.
-
-I waited.
-
-Nothing.
-
-“That’s it?” I asked.
-
-The manager shook his head.
-
-“There’s one more part,” he said.
-
-Then he played it.
-
-Static filled the room.
-
-Not light static. Thick, heavy, like something pressing against the speakers.
-
-Then—
-
-“…hello?”
-
-I felt something in my chest tighten.
-
-That voice didn’t belong there.
-
-“…are you still listening?”
-
-It sounded close.
-
-Too close.
-
-“…you’ve been listening so well.”
-
-The manager stopped the recording.
-
-Just like that.
-
-“We don’t play that part anymore,” he said.
-
-I didn’t argue.
-
-I didn’t need to.
-
-I had already heard enough.
-
-That night, I went to Daichi’s apartment.
-
-I don’t know what I expected to find.
-
-Something obvious, maybe.
-
-A note. A message. Anything that explained where he went.
-
-But the apartment looked normal.
-
-Too normal.
-
-I searched anyway.
-
-Drawers, shelves, under the bed.
-
-Nothing.
-
-Then I checked the old radio by his bed.
-
-He always kept it unplugged.
-
-I noticed that before, but I never thought much about it.
-
-This time, I turned it over.
-
-And that’s when I found the USB taped underneath it.
-
-I just stood there for a while, holding it.
-
-I don’t know why.
-
-Part of me already knew I shouldn’t plug it in.
-
-But I did.
-
-The files were all audio recordings.
-
-His voice.
-
-The first one sounded tired.
-
-“…I don’t know where they’re coming from,” he said.
-
-There was a pause.
-
-“…they don’t show up in the system. No sender. No time stamp.”
-
-A quiet breath.
-
-“…but they keep appearing.”
-
-The second file was worse.
-
-“…I tried not reading them,” he said.
-
-“…but it didn’t stop.”
+“Come on, man, this isn’t funny!” I yelled into the dark.
 
 Silence.
 
-“…it just changed.”
+“Garret?”
 
-The third one—
+“Garret!” said Meghan, as she and Kyle left their tent. George and Vicky followed suit.
 
-I almost didn’t play it.
+“Hey dumbass!” shouted George. “Quit pouting and get back here! You’re scaring the hell out of the girls!”
 
-“…if anyone finds this,” he said.
+I stepped forward, and nearly lost my balance when my foot came down on something unsteady. I looked down at it and gasped.
 
-His voice sounded thinner. Distant.
+It was our friend’s Glock 17.
 
-“…don’t listen to the recordings.”
+“Guys! I found his gun!”
 
-A pause.
+“*What?!*” George yelled, before running over to me. He snatched the pistol from my hand.
 
-Longer this time.
+“This ain’t good,” he said. “He wouldn’t leave this. Ever.”
 
-“…don’t read them.”
+His expression matched the fear in his voice. The bluster and bravado had vanished.
 
-There was a sound behind him.
+“We’ll find him,” I said, placing a hand on his shoulder, before turning to the others.
 
-Soft.
+“Spread out, everyone. Meghan, you and Kyle go that way. I’ll take Vicky this way. George, you try to find a trail. You’re good at that.”
 
-Breathing.
+Everyone nodded. Meghan shook slightly, and Kyle took her hand. 
 
-“…and if you hear it—”
+“I’ll be right here. It’s gonna be okay.”
 
-The file cut off.
+George ran back to camp to grab everyone’s flashlights, and we split off to search for our friend.
 
-That should have been enough.
+“Garret! Where are you, dude?”
 
-That should have been the point where I stopped.
+“Garrrrrrrret!”
 
-But that night, at exactly 2:17 AM—
+Their voices softened as the distance between us grew. I looked back over my shoulder. I could see a light scanning the ground as George looked for tracks, and the sweeping beam of our other friends, though they were beyond the reach of my own flashlight. I turned my attention forward, and we continued.
 
-my computer turned on by itself.
+“Jack,” said Vicky, a tremor in her voice. “What if we don’t find him?”
 
-The screen flickered.
+“We will, babe. He couldn’t have gone that far. He probably just drank too much and passed out somewhere.”
 
-A new file appeared.
+She nodded. Even though we both knew that George was the drinker of the two.
 
-No name.
+“Gar**r**et!” shouted Meghan from far behind us.
 
-No date.
+“Ri**g**ht he**r**e,” Kyle called out.
 
-I stared at it for a long time.
+That was when we finally heard Garret’s voice for the first time since he’d left camp:
 
-I knew what it was.
+“Wel**l** so**r**\-RY.”
 
-I knew I shouldn’t.
+Vicky and I didn’t hesitate, we started *sprinting* towards their voices. I could see George’s light approaching them as well.
 
-But if I stopped there—
+“It’**s** gonna be o**k**ay,” said Kyle.  
 
-then what?
+The voices were closer now. I couldn’t see their flashlight, though.
 
-My brother was gone.
+“So**o**oooo, what’**s** for di**n**ner?”
 
-No explanation.
+I stopped dead in my fucking tracks. So did Vicky. I looked at her, and saw the most horrified, wide-eyed expression I had ever seen. When I looked back, I noticed the flashlight on the ground maybe ten yards ahead, its beam mostly obstructed by brush.
 
-No trace.
+Movement. Just ahead.
 
-Just… this.
+*Everything* in me screamed not to shine the light on whatever it was. Before I could even react, George came running up behind us.
 
-So I clicked it.
+“You found him?!” he panted, fully out of breath.
 
-For a moment, there was nothing.
+“**J**ack, can y**o**u give us a han**d**?”
 
-Then—
+The voice before me belonged to George. The same man directly behind me. George reacted much faster than I had, and shined his light directly ahead.
 
-“…finally,” a voice said.
+I wish he hadn’t.
 
-It wasn’t my brother.
+Garret stood before us. I heard George sigh in relief. For a moment, everything was silent.
 
-“…you’re listening.”
+He stood no more than five feet tall, and both twins were well beyond that. There was a pronounced slouch in his posture, and his *skin*. It hung in loose rolls throughout his body, except for the arms, where it was stretched tight, almost like a long shirt with sleeves a size too small.
 
-I didn’t move.
+No. *Exactly* like a shirt. It was wearing him.
 
-“…he listened too,” it continued.
+Garret cocked his head as he stared at us. There was blood all over his clothes, a steady drip coming from his left eye. He smiled at us. Sharp teeth appeared, but his open lips and sagging face didn’t move. Behind it, I could see another figure approaching, the ill-fitting face of Meghan staring back at us. 
 
-My throat felt dry.
+“Helllll**l**llll**l**llooOooO**o**o,” came my voice from the creature, just as it had “echoed” earlier.  
 
-“…he followed the stories.”
+Without hesitation, George dropped his light and drew his revolver.
 
-A pause.
+***BAM BAM BAM BAM BAM BAM.***
 
-“…you want to find him, don’t you?”
+*Click, click, click.*
 
-I don’t remember deciding to keep listening.
+Whatever was wearing Garret screeched as George emptied the .357’s cylinder into its torso, but remained on its feet.
 
-I just… did.
+“Fucking *RUN!”* I shouted, pushing Vicky ahead of me. 
 
-Because somewhere in all of this—
+I’ve never ran so fast in my life. None of us had. George was on the heavier side, but even he managed to keep up. Horrible sounds behind us made it clear those things had given chase. And by the sound of it, they were pretty damn fast. We sprinted along the stream, and I came to realize we were following the same path I had taken earlier with Vicky. As we neared the bottleneck cliffs, the flailing beam of my flashlight illuminated Kyle standing between the rocky walls.
 
-in these recordings—
+Before I could warn anyone, “Kyle” charged us. Instinctively, I tackled Vicky to the ground. It sped past us, and attacked George. Adrenaline must have been nectar to him, as he tucked his shoulder and plowed straight through the creature, sending it tumbling to the ground in a heap. Within a single breath, the other two had finally caught up. George wheeled around, and threw one *hell* of a punch, knocking it to the ground as well. The third one, however, was able to strike. Claws like sharpened iron nails burst through the taunt skin of “Meghan’s” fingers, and severed George’s arm.
 
-in these stories—
+George roared in pain, and stumbled backward, straight into the path of the one on the ground. It sank its teeth into George’s calf and dragged him down. There was nothing we could do as the monsters swarmed our friend.
 
-there’s something that knows where he is.
+I scrambled to my feet, and reached down to pull Vicky to hers.
 
-And I don’t think it’s going to tell me directly.
+“*CLIMB!”* I shouted, interlacing my fingers and holding them down to boost her onto the rockface. Vicky reacted quickly, stepping into my hands and instantly establishing holds above me. I leapt as high as I could, barely managing to snag an outcrop and attach myself to the wall.
 
-I think it wants me to follow.
+We had gone up maybe twenty-five feet before they noticed us.
 
-The same way he did.
+While we were easily the fastest climbers in our club, these things were every bit as good. Around the fifty foot mark, my fingers felt as though they were going to snap each time I gripped the narrow edges. The skin was rubbed raw, but I didn’t care. Though my arms burned as my body screeched for rest, I ignored it.
 
-I’ve started writing everything down.
+Vicky was slightly faster than I was, and maintained a steady pace of around ten feet above me. 
 
-Every detail. Every word.
+By eighty feet, the creatures had closed to within ten, and were slowly gaining. I could tell Vicky was as exhausted as I was, her every move becoming ever so slightly slower with every inch,  but she kept going.
 
-Trying to piece together where it leads.
+Then, my worst fear. Something even worse than the demons behind us.
 
-I don’t know if I’m getting closer.
+Not five feet from the top, the rock Vicky grabbed came loose.
 
-Or if I’m just going deeper into something I don’t understand.
+She frantically reached for another one, only to find a cruel, smooth surface.
 
-But I do know this—
+She lost her footing. Hanging only by her fingertips.
 
-the stories are still coming.
+I frantically climbed after her. I thought maybe I could push her up to where she could regain her grip and plant her feet back into the rock.
 
-And each one feels less like something I’m listening to—
+She looked down at me, her eyes wide and desperate, her lip quivering. I reached up, almost able to touch her.
 
-and more like something that’s slowly… including me.
+Then she fell.
 
-If I stop writing, I think I’ll lose track of what’s real.
+With a scream, my partner’s strength finally gave out, and she slid down the face of the cliff, narrowly missing me, and crashing into the creature just below. 
 
-And if I lose that—
+Then the other. Then the other.
 
-I don’t think I’ll be able to tell....
+My eyes burned with tears as I could do nothing but listen to the four of them fall to the ground. I’m sure I heard the impact, but I think my mind blocked the memory out. I admit, a part of me thought about letting go right then and there. But that look in my girlfriend’s eyes… I knew I was just as afraid to die as she had been.
 
-if this is real or it's just a bad dream..
+I forced one limb in front of the other. Over and over through that last fifteen feet.
+
+Once I cleared the edge, I couldn’t stand. I collapsed then and there on the edge of the gorge.
+
+I don’t know how long I was there for. I listened for the sound of those evil fucking things scaling the cliff to finish the job. 
+
+They never did.
+
+Someone camped above the gorge must have heard the screams, because I soon found myself swarmed by police and EMTs. Only then did I finally surrender and fall unconscious.
+
+I had torn multiple ligaments and muscles in my frantic climb. The doctors patched me up with many rounds of surgery, though they still recommended that I never climb again.
+
+I don’t plan to.
+
+After my recovery, I moved as far away as possible. I got a tattoo to commemorate my fallen friends. Slowly, I rebuilt my life. I live in a city highrise, as removed from nature as I could get.
+
+Until last week.
+
+I heard Vicky’s voice again.
+
+*“Wh****a****t was* ***i****t you* ***w****ant****ed*** *to s****h****ow* ***m****e,* ***J****a****c****k?”* 
