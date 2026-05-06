@@ -1,306 +1,115 @@
-# Echos in the Gorge
-At first, I was absolutely pumped about our trip to the gorge.
+# The previous tenant of my apartment left a list of rules taped inside the bathroom cabinet and I've been breaking them
+I moved into my apartment about six weeks ago. Studio, third floor, old building in a part of the city that used to be nice and is slowly deciding to be nice again. Rent was suspiciously reasonable but the landlord seemed normal, the walls seemed solid, and I needed a place fast after my lease fell through. I signed without thinking twice.
 
-No, I’m not gonna tell you which one. I know it’s kind of reckless not to, but this is the internet. Someone will *immediately* go there and try it.
+The first thing I noticed was how clean the bathroom was. Not landlord-clean. Obsessively clean. The grout between the tiles looked like someone had gone at it with a toothbrush. The mirror was spotless. The cabinet behind it had been wiped down inside and out.
 
-It started off like every one of our other annual camping trips. Kyle and Meghan were making eyes at each other, and the twins were struggling to get their tent set up. George and Garret were not ones for reading instructions, and it was on full display.
+Taped to the inside of the cabinet door was a piece of paper. Handwritten. Neat, small print. No signature, no date.
 
-“Jack, can you give us a hand? This damn thing is impossible!”
+It said:
 
-I rolled my eyes. 
+Rules for this apartment. Please follow them.
 
-“Yeah, yeah, I’m coming,” I said.
+1. Do not run the shower after 11pm.
+2. If you hear knocking from the pipes, knock back twice. Never three times.
+3. Do not look at the bathroom mirror with the lights off.
+4. If the drain in the shower makes a sound like breathing, leave the bathroom and close the door. Do not reopen it for at least thirty minutes.
+5. On the first night of every month, leave a glass of water on the bathroom sink before you go to sleep. It will be empty in the morning. Do not watch it.
+6. If you follow these rules, nothing in this apartment will hurt you.
 
-It didn’t take me long to find the right poles and get their tent together. The whole time, I kept glancing at Vicky, as she meticulously organized our tent. While the rest of us had been friends since college, this was her first year in the group. Ever since we met in our rock climbing club, I wanted to ask her out. It took about three months, but I finally worked up the guts to do it. We made it official about a month later.
+I took a photo of it because I thought it was funny. Sent it to a few friends. We laughed about it. Weird previous tenant with a flair for the dramatic. I threw the list away.
 
-That was about six months ago, so the group had no issue with me inviting her along this year. 
+First two weeks were completely normal. I started to forget the list existed.
 
-“Thanks, man!” said George, sticking out his fist.
+On the third week, I took a shower at midnight. I work late sometimes and I didn't think about it until I was already under the water. Nothing happened. I dried off, went to bed, and felt pleased with myself for not being superstitious.
 
-“No problem, dude,” I replied, returning the fist bump. “One of these days, you two clowns will get it all by yourselves.”
+The next morning the grout between the bathroom tiles was darker. Not dirty. Just darker. Like the color had shifted overnight from white to a faint grey. I told myself it was the lighting.
 
-George laughed, and Garret scowled.
+Four days later I heard the knocking.
 
-“Well, if *someone* would actually listen, we might’ve finished half an hour ago. And are you sure this is a good spot? I think I heard a rattlesnake earlier….”
+I was brushing my teeth around 10pm and there was a distinct knock from somewhere inside the wall behind the shower. Two sharp taps. Then silence. Then two more.
 
-“Hey, we got it up in the end!” said George, waving his hand dismissively. “And I ain’t worried about snakes. If any of ‘em show up, we got our resident sharpshooter here!*”*
+I remembered the rule. Knock back twice. Never three times.
 
-His eyes quickly turned to Vicky, before shooting me a wink. Leave it to George to play wingman for someone already dating their crush. I loved that man.
+I didn't knock at all. Because I'm a grown adult and I don't knock on walls because a piece of paper told me to.
 
-“Well, sor-RY for caring about your wellbeing,” Garret muttered.
+The knocking came back that night at 2am. Louder. Not from the bathroom wall. From the wall next to my bed. Two knocks. Pause. Two knocks. Pause. It went on for about forty minutes. I put in earbuds and eventually fell asleep.
 
-“Soooooo,” Meghan interrupted. “What’s for dinner?”
+The next morning the grout was darker again. Noticeably now. Almost charcoal in places. And there was a smell in the bathroom I couldn't identify. Faint. Wet. Like the underside of a rock in a river.
 
-“Venison burgers,” said Kyle excitedly, clapping his hands together and rubbing them. He had abandoned goals of a business degree halfway through to pursue culinary arts. “I’ve been dying to try this new recipe I’ve been working on!”
+I started sleeping with the bathroom door closed.
 
-“Good to know I get to be a guinea pig for my own deer,” Garret muttered. 
+The following Saturday night I got up to use the bathroom at around 3am. Half asleep, didn't turn the light on, just walked in and stood at the sink. I was washing my hands in the dark when I remembered rule three. Do not look at the bathroom mirror with the lights off.
 
-George shot him a look.
+I was already looking at it.
 
-“Well, I think it sounds great!” said Vicky. “I can’t wait! Thanks, Kyle.”
+I don't know how to describe what I saw. My reflection was there. The shapes were right. My shoulders, my head, the outline of the sink. But something about the proportions was wrong. The reflection's head was tilted maybe two degrees more than mine. Not enough to be obvious. Just enough that the longer I looked, the more certain I became that I was not looking at myself.
 
-“Yeah,” I said with a smile. “Let’s get that fire going!”
+I turned the light on and everything was normal. My face, my reflection, exactly as it should be. But my hands were shaking and I couldn't go back to sleep.
 
-“Hell, yeah,” said George, standing up and glancing at his brother. “C’mon, asshole; let’s go get some wood.”
+The next day I dug the photo of the rules out of my phone and read them again. I had broken three of the six. Shower after 11. Didn't knock back. Looked at the mirror in the dark.
 
-Dinner was *fantastic.* The food turned out incredible. Juicy burgers, grilled corncobs, and homemade potato salad, washed down with good beer. The conversations were as fun as they had been on any other trip. Maybe even better. Scratch that, it was *definitely* better. Vicky was a little shy, but she held her own as if she had been with the group from the beginning. She adjusted her blanket and leaned against me as we sat by the dying fire. I looked up at the starry night sky.
+I decided to follow the rest. Not because I believed in them. Because I was running out of explanations for the grout and the smell and whatever I saw in the mirror, and following some rules felt like doing something instead of nothing.
 
-*It doesn’t get any better than this,* I thought with a smile. 
+I skipped rule four because the drain hadn't made any breathing sounds. Rule five was coming up. First of the month. Leave a glass of water on the sink. Don't watch it.
 
-“Well,” said George, slapping his knees and standing up. “I think it’s time we turn in.” Garret grunted in agreement.
+I left the glass out on March 1st. Went to bed. Set an alarm for 3am because I'm an idiot and I wanted to see.
 
-“Yeah, us too,” said Meghan, as she and Kyle exchanged an excited look. 
+I didn't watch from the bathroom door. I just listened from bed with the door cracked open. For two hours nothing happened. At approximately 3:20am I heard something I will try to describe accurately.
 
-“G’night, guys,” I said. “We won’t be far behind. I just wanna show Vicky something first.”
+It was the sound of water being consumed. But not drinking. Not the sound a human mouth makes. More like the sound of water being absorbed. A soft, continuous reduction in volume with no gulping, no breathing, no pause. Like the water was being pulled into something that didn't need to swallow.
 
-“Cool,” Kyle chimed in. “Just don’t be late for breakfast! I’ve got something special planned!”
+It lasted maybe ninety seconds. Then silence.
 
-One by one, our friends entered their tents and shut off their flashlights. I looked down at Vicky. She smiled back at me. I could tell she wasn’t quite ready to leave, either.
+In the morning the glass was empty. Bone dry. Not a drop left, not even a residue ring. And the glass was in a different position on the sink. I had left it on the right side. It was now on the left, closer to the mirror.
 
-“What was it you wanted to show me, Jack?”
+The grout was almost black.
 
-“It’s nothing crazy,” I said. “But it’s definitely something you’ll wanna see.”
+I tried to find the previous tenant. My landlord gave me a name and I found her on social media after some digging. I messaged her. It took four days for her to respond.
 
-I nudged her gently, and we both stood up.
+Her message was short.
 
-“Right this way.”
+"You found the list?"
 
-Hand in hand, we moved a little further down the belly of the gorge, following the small stream, towards a site I knew well. The ravine narrowed in this area, with two sheer walls around a hundred feet high forming a bottleneck.
+Yes, I said.
 
-“Wow,” Vicky breathed. “These are-”
+"Are you following the rules?"
 
-“Perfect for climbing?” I finished for her.
+I told her I broke three of them before I started following the rest. The shower. The knocking. The mirror.
 
-“Yeah!”
+She didn't respond for two days. Then:
 
-“I’ve never scaled them, but I always wanted to.” I squeezed her hand gently. “What do you say we come back sometime, babe? Just the two of us and our climbing gear.”
+"I need you to understand something. I didn't write those rules. I found them the same way you did, taped inside the cabinet, when I moved in. I followed them perfectly for three years. I never broke a single one. And nothing ever happened to me. Nothing. The apartment was quiet, the grout stayed white, the mirror was just a mirror."
 
-Her face lit up. She truly looked stunning. The moonlight gave her long blonde ponytail a shine to match her joyous expression. I felt like the luckiest guy alive.
+"The rules work. Whatever is in that apartment respects them. But you broke three. I don't know what happens when you break them because I never did."
 
-“Absolutely!” she replied. “I would love that!”
+"The tenant before me broke one. Just one. The shower rule. She moved out after two weeks and wouldn't tell me what happened."
 
-“We will, then.”
+"You broke three."
 
-She kissed me. I noticed a shiver as she pulled away.
+I asked her what she thinks is in the apartment.
 
-“Yeah, I know,” I said. “It’s getting cold. Let’s head back.”
+She said: "I don't think anything is IN the apartment. I think the apartment IS it. The walls, the pipes, the tiles, the mirror. It's all one thing. And the rules are the terms it set for living inside it."
 
-As we turned back, I remembered another neat thing about this spot.
+"You broke its terms. I don't know what that means. But the grout changing color means it's angry. When I moved in, the grout was white. When the woman before me moved in, the grout was white. If it's turning dark for you, something has changed and it's not going back."
 
-“One sec. Check this out.”
+I haven't responded to her last message yet. That was three days ago.
 
-I pivoted back towards the cliffs.
+The grout is completely black now. Every line between every tile in the bathroom. It happened overnight. I went to bed and it was dark grey. I woke up and it looked like someone had filled every seam with ink.
 
-“*HelllllllllllllooOooOoo!*” I called out, startling Vicky.
+The smell is stronger. Not just the bathroom anymore. It's in the hallway outside the bathroom door. Wet stone. River water. Something underneath.
 
-“Helllll**l**llll**l**llooOooO**o**o,” my voice reverberated through the gorge.
+Last night I heard the drain. The breathing sound from rule four. Slow, rhythmic, unmistakable. Not mechanical. Not pipes. Something pulling air in and pushing it out, coming from the drain of my shower, and it didn't stop when I left the room and closed the door.
 
-“The echos here are amazing in this spot,” I explained.
+It's been going for nine hours now.
 
-She shook her head.
+I'm sitting in my kitchen writing this. The bathroom door is closed. I can still hear it from here. Slow, steady, patient. Like something that was asleep for a long time and is now very much awake.
 
-“Let’s do this tomorrow, Jack,” she said with a yawn.
+I don't know what to do. I can't afford to break my lease. I can't explain this to my landlord without sounding insane. I followed the remaining rules perfectly for three weeks and it hasn't mattered. Whatever this is, it's not following the rules anymore either.
 
-I nodded.
+I just want to know one thing. The woman before the woman before me. The one who broke just the shower rule and left after two weeks.
 
-“*Good niiiiiight!”* I said loudly as we took our first steps back towards camp.
+What did she see that made her leave that fast?
 
-“Go**O**d nii**iii**ight.”
+Because I broke three rules and I'm still here and I'm starting to think that's not because I'm brave. I'm starting to think it's because it hasn't decided what to do with me yet.
 
-My smile faded. I couldn’t put my finger on what it was about the sound that unnerved me, but something just seemed… *off.*
-
-A glance at Vicky confirmed that I wasn’t the only one who felt that sense of unease.
-
-We returned to camp at a quicker pace than we had left it, but once the embers of the dead fire were in sight, my body relaxed itself. By the time we were making out in our tent, the feeling of dread had left us completely.
-
-I wish it hadn’t. I should have trusted my gut and left that damn canyon then and there.
-
-As we kissed, the tent beside us rumbled with George’s snoring.
-
-*Glad I remembered the earplugs,* I thought to myself.
-
-Then came the sound of their zipper. I heard Garret emerging, grumbling under his breath about his brother. Clearly, he had forgotten to pack plugs of his own. The sound of his footsteps soon drew quiet as he made his way into the night. 
-
-I turned my attention back to Vicky
-
-“What the fuck?!” Garret shouted from somewhere outside the camp.
-
-***BANG BANG.***
-
-The gunshots woke everyone immediately.
-
-Before any of us could react, Garret called out to us.
-
-“Sor**r**y. Heard a rat**t**lesnake.”
-
-“God damn it, I’m gonna kill you!” George yelled from the open tent. “Don’t scare me like that!”
-
-“Sor**r**y,” Garret repeated.
-
-My ears pricked up at the sound. Garret sounded strangely calm. I reached for the zipper, ready to investigate further, but something stopped me. The footsteps returned, trudging further from the camp. There was a shuffling sound along with them now, as if he had started dragging his feet with each step.
-
-“Dude, where are you going?” Kyle called out. There was no reply.
-
-“Should we… should we check on him?” Vicky asked nervously.
-
-“Well *I’m* not going to,” came George’s voice. “He’s probably hanging out over there because he knows I’m pissed.”
-
-“I’ll go,” I said, grabbing my flashlight. “Something doesn’t seem right, man.”
-
-I figured I would walk less than a hundred feet, find Garret, talk him down and look brave in front of Vicky. Everybody wins.
-
-But I didn’t find him. 
-
-“Come on, man, this isn’t funny!” I yelled into the dark.
-
-Silence.
-
-“Garret?”
-
-“Garret!” said Meghan, as she and Kyle left their tent. George and Vicky followed suit.
-
-“Hey dumbass!” shouted George. “Quit pouting and get back here! You’re scaring the hell out of the girls!”
-
-I stepped forward, and nearly lost my balance when my foot came down on something unsteady. I looked down at it and gasped.
-
-It was our friend’s Glock 17.
-
-“Guys! I found his gun!”
-
-“*What?!*” George yelled, before running over to me. He snatched the pistol from my hand.
-
-“This ain’t good,” he said. “He wouldn’t leave this. Ever.”
-
-His expression matched the fear in his voice. The bluster and bravado had vanished.
-
-“We’ll find him,” I said, placing a hand on his shoulder, before turning to the others.
-
-“Spread out, everyone. Meghan, you and Kyle go that way. I’ll take Vicky this way. George, you try to find a trail. You’re good at that.”
-
-Everyone nodded. Meghan shook slightly, and Kyle took her hand. 
-
-“I’ll be right here. It’s gonna be okay.”
-
-George ran back to camp to grab everyone’s flashlights, and we split off to search for our friend.
-
-“Garret! Where are you, dude?”
-
-“Garrrrrrrret!”
-
-Their voices softened as the distance between us grew. I looked back over my shoulder. I could see a light scanning the ground as George looked for tracks, and the sweeping beam of our other friends, though they were beyond the reach of my own flashlight. I turned my attention forward, and we continued.
-
-“Jack,” said Vicky, a tremor in her voice. “What if we don’t find him?”
-
-“We will, babe. He couldn’t have gone that far. He probably just drank too much and passed out somewhere.”
-
-She nodded. Even though we both knew that George was the drinker of the two.
-
-“Gar**r**et!” shouted Meghan from far behind us.
-
-“Ri**g**ht he**r**e,” Kyle called out.
-
-That was when we finally heard Garret’s voice for the first time since he’d left camp:
-
-“Wel**l** so**r**\-RY.”
-
-Vicky and I didn’t hesitate, we started *sprinting* towards their voices. I could see George’s light approaching them as well.
-
-“It’**s** gonna be o**k**ay,” said Kyle.  
-
-The voices were closer now. I couldn’t see their flashlight, though.
-
-“So**o**oooo, what’**s** for di**n**ner?”
-
-I stopped dead in my fucking tracks. So did Vicky. I looked at her, and saw the most horrified, wide-eyed expression I had ever seen. When I looked back, I noticed the flashlight on the ground maybe ten yards ahead, its beam mostly obstructed by brush.
-
-Movement. Just ahead.
-
-*Everything* in me screamed not to shine the light on whatever it was. Before I could even react, George came running up behind us.
-
-“You found him?!” he panted, fully out of breath.
-
-“**J**ack, can y**o**u give us a han**d**?”
-
-The voice before me belonged to George. The same man directly behind me. George reacted much faster than I had, and shined his light directly ahead.
-
-I wish he hadn’t.
-
-Garret stood before us. I heard George sigh in relief. For a moment, everything was silent.
-
-He stood no more than five feet tall, and both twins were well beyond that. There was a pronounced slouch in his posture, and his *skin*. It hung in loose rolls throughout his body, except for the arms, where it was stretched tight, almost like a long shirt with sleeves a size too small.
-
-No. *Exactly* like a shirt. It was wearing him.
-
-Garret cocked his head as he stared at us. There was blood all over his clothes, a steady drip coming from his left eye. He smiled at us. Sharp teeth appeared, but his open lips and sagging face didn’t move. Behind it, I could see another figure approaching, the ill-fitting face of Meghan staring back at us. 
-
-“Helllll**l**llll**l**llooOooO**o**o,” came my voice from the creature, just as it had “echoed” earlier.  
-
-Without hesitation, George dropped his light and drew his revolver.
-
-***BAM BAM BAM BAM BAM BAM.***
-
-*Click, click, click.*
-
-Whatever was wearing Garret screeched as George emptied the .357’s cylinder into its torso, but remained on its feet.
-
-“Fucking *RUN!”* I shouted, pushing Vicky ahead of me. 
-
-I’ve never ran so fast in my life. None of us had. George was on the heavier side, but even he managed to keep up. Horrible sounds behind us made it clear those things had given chase. And by the sound of it, they were pretty damn fast. We sprinted along the stream, and I came to realize we were following the same path I had taken earlier with Vicky. As we neared the bottleneck cliffs, the flailing beam of my flashlight illuminated Kyle standing between the rocky walls.
-
-Before I could warn anyone, “Kyle” charged us. Instinctively, I tackled Vicky to the ground. It sped past us, and attacked George. Adrenaline must have been nectar to him, as he tucked his shoulder and plowed straight through the creature, sending it tumbling to the ground in a heap. Within a single breath, the other two had finally caught up. George wheeled around, and threw one *hell* of a punch, knocking it to the ground as well. The third one, however, was able to strike. Claws like sharpened iron nails burst through the taunt skin of “Meghan’s” fingers, and severed George’s arm.
-
-George roared in pain, and stumbled backward, straight into the path of the one on the ground. It sank its teeth into George’s calf and dragged him down. There was nothing we could do as the monsters swarmed our friend.
-
-I scrambled to my feet, and reached down to pull Vicky to hers.
-
-“*CLIMB!”* I shouted, interlacing my fingers and holding them down to boost her onto the rockface. Vicky reacted quickly, stepping into my hands and instantly establishing holds above me. I leapt as high as I could, barely managing to snag an outcrop and attach myself to the wall.
-
-We had gone up maybe twenty-five feet before they noticed us.
-
-While we were easily the fastest climbers in our club, these things were every bit as good. Around the fifty foot mark, my fingers felt as though they were going to snap each time I gripped the narrow edges. The skin was rubbed raw, but I didn’t care. Though my arms burned as my body screeched for rest, I ignored it.
-
-Vicky was slightly faster than I was, and maintained a steady pace of around ten feet above me. 
-
-By eighty feet, the creatures had closed to within ten, and were slowly gaining. I could tell Vicky was as exhausted as I was, her every move becoming ever so slightly slower with every inch,  but she kept going.
-
-Then, my worst fear. Something even worse than the demons behind us.
-
-Not five feet from the top, the rock Vicky grabbed came loose.
-
-She frantically reached for another one, only to find a cruel, smooth surface.
-
-She lost her footing. Hanging only by her fingertips.
-
-I frantically climbed after her. I thought maybe I could push her up to where she could regain her grip and plant her feet back into the rock.
-
-She looked down at me, her eyes wide and desperate, her lip quivering. I reached up, almost able to touch her.
-
-Then she fell.
-
-With a scream, my partner’s strength finally gave out, and she slid down the face of the cliff, narrowly missing me, and crashing into the creature just below. 
-
-Then the other. Then the other.
-
-My eyes burned with tears as I could do nothing but listen to the four of them fall to the ground. I’m sure I heard the impact, but I think my mind blocked the memory out. I admit, a part of me thought about letting go right then and there. But that look in my girlfriend’s eyes… I knew I was just as afraid to die as she had been.
-
-I forced one limb in front of the other. Over and over through that last fifteen feet.
-
-Once I cleared the edge, I couldn’t stand. I collapsed then and there on the edge of the gorge.
-
-I don’t know how long I was there for. I listened for the sound of those evil fucking things scaling the cliff to finish the job. 
-
-They never did.
-
-Someone camped above the gorge must have heard the screams, because I soon found myself swarmed by police and EMTs. Only then did I finally surrender and fall unconscious.
-
-I had torn multiple ligaments and muscles in my frantic climb. The doctors patched me up with many rounds of surgery, though they still recommended that I never climb again.
-
-I don’t plan to.
-
-After my recovery, I moved as far away as possible. I got a tattoo to commemorate my fallen friends. Slowly, I rebuilt my life. I live in a city highrise, as removed from nature as I could get.
-
-Until last week.
-
-I heard Vicky’s voice again.
-
-*“Wh****a****t was* ***i****t you* ***w****ant****ed*** *to s****h****ow* ***m****e,* ***J****a****c****k?”* 
+The breathing just got louder.
